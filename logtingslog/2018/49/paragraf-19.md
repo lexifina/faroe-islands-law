@@ -1,0 +1,5 @@
+## Vinnuligt djórahald
+§ 19. Vinnuligt djórahald rekur tann, sum við sølu ella fíggjarligum vinningi fyri eyga elur, hevur, gagnnýtir og selur djór, djóraúrdráttir ella tænastur beinleiðis ella um heilsølu ella smásølu til brúkaran ella til meirvirking við sølu fyri eyga.
+Stk. 2. Heilsufrøðiliga starvsstovan hevur eftirlit við, at djór, sum eru partur av einum vinnuligum djórahaldi, verða viðfarin, ansað og røkt í samsvari við ásetingarnar í hesi løgtingslóg, ásetingar, givnar við heimild í hesi løgtingslóg og ásetingar í aðrari viðkomandi lóggávu. Politiið skal, um neyðugt, vera eftirlitsmyndugleikanum til hjálpar, tá ið eftirlit eftir hesi áseting verður framt.
+Stk. 3. Heilsufrøðiliga starvsstovan kann geva tí, ið er fevndur av ásetingini í stk. 1, ítøkilig boð til tess at røkka endamálinum í stk. 2. Heilsufrøðiliga starvsstovan kann, verður tað mett neyðugt, seta tiltøk í verk fyri at røkka endamálinum í stk. 2. Slík tiltøk verða rindað av tí, ið rekur vinnuliga djórahaldið.
+Stk. 4. Landsstýrismaðurin kann í kunngerð áseta nærri reglur um vinnuligt djórahald.

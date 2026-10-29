@@ -1,0 +1,3 @@
+§ 22. Tann, ið rekur vinnuligt djórahald, skal tryggja, at rakstrarhættir, mannagongdir, útgerð og tøkniligar loysnir, sum verða brúkt til djór, eru egnað at røkja fyrilitið fyri vælferðini hjá djórunum.
+Stk. 2. Tann, sum marknaðarførir og selur nýggjar rakstrarhættir, mannagongdir, útgerð og tøkniligar loysnir at brúka til djór ella djórahald, skal tryggja, at hesi eru roynd í verki, og at tey, við støði í fyriliti fyri vælferð djóranna, eru egnað og góðkend til endamálið.
+Stk. 3. Landsstýrismaðurin kann í kunngerð áseta nærri reglur um sølu og brúk av ávísum rakstrarháttum, mannagongdum, útgerð og tøkniligum loysnum, umframt reglur um góðkenning og um skjalprógv fyri, at rakstrarhættir, mannagongdir, útgerð og tøkniligar loysnir eru egnað til endamálið.

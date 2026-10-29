@@ -1,0 +1,1 @@
+§ 21. Landsstýrismaðurin kann í kunngerð áseta krøv í sambandi við at seta á stovn, staðseta, skipa og reka virksemi, ið er fevnt av hesi løgtingslóg, undir hesum krøv um loyvi og afturkalling av loyvum, fráboðan, skráseting og góðkenning og um afturtøku av góðkenning.

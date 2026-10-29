@@ -1,0 +1,2 @@
+§ 17. Tann, ið hevur djórahald, skal tryggja, at djórini, inni sum úti, eru í einum umhvørvi, sum fyri trivnað og vælferð er hóskandi til tann tørv, sum bæði djóraslagið og einstaka djórið hevur, undir hesum tryggja, at djórini hava rásarúm og møguleika fyri rørslu, hvíld, skjóli og aðrari natúrligari atferð.
+Stk. 2. Landsstýrismaðurin kann í kunngerð áseta neyvari krøv til umhvørvi, undir hesum krøv um egnað og trygg tilhaldsrúm og um undantøk frá kravinum um tilhaldsrúm.

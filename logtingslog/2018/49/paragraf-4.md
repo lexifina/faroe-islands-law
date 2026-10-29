@@ -1,0 +1,7 @@
+## Hjálparskylda
+§ 4. Ein og hvør, sum kemur fram á djór, sum er eyðsýniliga sjúkt, skatt ella hjálparleyst, skal eftir førimuni hjálpa djórinum. Er talan um djór frá djórahaldi, og ber ikki til at veita nóg góða hjálp á staðnum, skal eigarin ella politiið hava boð beinanvegin. Hesi taka tá við hjálparskylduni.
+Stk. 2. Vegfarandi skulu hava fyrilit og vísa varsemi við djórum, ið eru á ella við veg. Við ákoyring eru ásetingarnar í stk. 1 galdandi.
+Stk. 3. Er eyðsýnt, at djórinum ikki er lív lagað, ella at djórið ikki kann gerast frískt aftur, kann tann, ið kemur fram á djórið, avlíva tað beinanvegin. Djór frá djórahaldi skulu ikki avlívast eftir hesi áseting, um tað ber til at boða eigaranum, djóralækna ella politinum frá innan fyri rímiliga tíð. Kortini kann djór frá djórahaldi verða avlívað beinanvegin, um tað er eyðsýnt, at djórinum ikki er lív lagað.
+Stk. 4. Landið rindar fyri neyðugar útreiðslur til átøk eftir hesi grein. Fyri djór frá djórahaldi kunnu útreiðslur, ið standast av øðrum átøkum eftir hesi grein, og sum eigarin ella tann, ið varðar av djórahaldinum, hevur latið samtykki til, krevjast aftur frá eigara ella tí, ið rekur djórahaldið.
+Stk. 5. Ásetingarnar í stk. 1-3 galda á sama hátt fyri tann, sum tilvitað ella av grovum ósketni elvir djóri skaða, men viðkomandi kann ikki krevja landið eftir endurgjaldi fyri útreiðslur fyri átøk, sum standast av hesum.
+Stk. 6. Landsstýrismaðurin kann áseta nærri reglur um endurgjald fyri útreiðslur eftir hesi grein.

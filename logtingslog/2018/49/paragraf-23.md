@@ -1,0 +1,3 @@
+§ 23. Tann, ið rekur vinnuligt djórahald, fevnt av ásetingini í § 19, skal geva eftirlitsmyndugleikanum ótarnaða atgongd til øll støð ella rúm, har djór verða hildin, ella har annað virksemi, ið er fevnt av løgtingslógini, verður rikið.
+Stk. 2. Um eftirlitsmyndugleikin ikki fær ótarnaða atgongd, og um orsøk er at halda, at djór eru fyri óneyðugari overving, kann eftirlitsmyndugleikin fáa politiið at hjálpa sær.
+Stk. 3. Tann, ið rekur vinnuligt djórahald, skal uttan kostnað lata eftirlitsmyndugleikanum neyðug høli, innbúgv, arbeiðshjálp og amboð, ið eru neyðug fyri at fremja eftirlitið, og skal annars hjálpa eftirlitsmyndugleikanum við at leggja eftirlitsvitjanina til rættis.

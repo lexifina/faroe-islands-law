@@ -1,0 +1,4 @@
+§ 31. Tann, sum er dømdur fyri skammfaring av djórum, eins og tann, ið áður hevur brotið ásetingar í hesi løgtingslóg, kann við dóminum fáa forboð fyri at eiga, brúka, halda ella slakta djór ella sum heild sjálvur at fáast við djór. Forboðið kann vera tíðaravmarkað ella tíðaróavmarkað, og forboðið kann avmarkast til ávís sløg av djórum.
+Stk. 2. Brot á forboð eftir stk. 1 verður revsað við sekt.
+Stk. 3. Í sambandi við brot á stk. 1 kann politiið flyta djórið og selja ella avlíva tað, um ikki eigarin, áðrenn eina freist, ið er ásett av politinum, syrgir fyri, at djórið verður sett aðrastaðni. Útreiðslurnar, ið standast av hesum, verða rindaðar av tí, ið hevur brotið forboðið.
+Stk. 4. Tann, ið veit um slíkt forboð, og sum letur ein persón, hvørs rættur at fáast við djór heilt ella partvíst er frádømdur eftir stk. 1, á ein og hvønn hátt fáast við djór, fevnd av forboðnum, verður revsaður við sekt.
