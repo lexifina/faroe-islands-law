@@ -1,0 +1,6 @@
+§ 10. Grannskoðari skal tillaga niðurstøðuna í teimum førum, ið eru nevnd í § 6, stk. 1-3.
+Stk. 2. Um grannskoðari tillagar niðurstøðuna eftir stk. 1, skal hann gera eina niðurstøðu við fyrivarni, gera eina avsannandi niðurstøðu, sbr. § 6, stk. 8, ella lata vera við at orða eina niðurstøðu.
+Stk. 3. Ger ein grannskoðari eina niðurstøðu við fyrivarni, skal hann lýsa viðurskiftini í einum parti fyri seg beint frammanfyri niðurstøðuni undir yvirskriftini: Grundarlag fyri niðurstøðu við fyrivarni. Yvirskriftin, eftir § 9, stk. 2, skal síðani broytast til: Niðurstøða við fyrivarni.
+Stk. 4. Ger ein grannskoðari eina avsannandi niðurstøðu, skal hann lýsa viðurskiftini í einum parti fyri seg beint frammanfyri niðurstøðuni undir yvirskriftini: Grundarlag fyri avsannandi niðurstøðu og yvirskriftin, eftir § 9, stk. 2, verður broytt til: Avsannandi niðurstøða.
+Stk. 5. Kann ein grannskoðari ikki orða eina niðurstøðu, skal hann lýsa viðurskiftini í einum parti fyri seg beint frammanfyri niðurstøðuna undir yvirskriftini: Grundarlag fyri manglandi niðurstøðu og yvirskriftin, eftir § 9, stk. 2, verður broytt til: Manglandi niðurstøða.
+Stk. 6. Grannskoðari skal í váttanini týðiliga grundgeva fyri øllum viðurskiftum, sum hava ført til eina tillagaða niðurstøðu.

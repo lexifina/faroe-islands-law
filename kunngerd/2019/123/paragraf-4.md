@@ -1,0 +1,1 @@
+§ 4. Skal grannskoðari sambært avtalu vátta við vissu á eina ella fleiri ískoytisfrágreiðingar, ið er partur av ársfrásøgnini, kunnu váttanirnar fyri frágreiðingarnar gerast hvør sær. Slíkar váttanir verða gjørdar sambært §§ 16-19.
