@@ -1,0 +1,3 @@
+§ 3. Tann, sum hevur foreldramyndugleikan, skal hava umsorgan fyri barninum og kann taka avgerðir um persónligu viðurskiftini hjá barninum í samsvari við áhugamál og tørvin hjá barninum.
+Stk. 2. Hava foreldur felags foreldramyndugleika, skulu tey vera samd um týðandi avgerðir viðvíkjandi barninum. Tað av foreldrunum, sum barnið býr hjá, avger sjálvt yvirskipaði viðurskifti í gerandisdegnum hjá barninum, so sum hvar í landinum barnið skal búgva.
+Stk. 3. Hava foreldur felags foreldramyndugleika, og eru tey ósamd um, hvør teirra skal hava foreldramyndugleikan einsamalt, skulu bæði geva samtykki til, at barnið fer av landinum, sbr. tó § 28.

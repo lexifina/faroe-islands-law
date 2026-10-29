@@ -1,0 +1,1 @@
+§ 14. Eftir umbøn frá einum av foreldrunum, sum ikki hevur lut í foreldramyndugleikanum, kann rætturin taka avgerð um, at foreldrini skulu hava felags foreldramyndugleika, at foreldramyndugleikin verður fluttur til viðkomandi, ella at tann, sum hevur foreldramyndugleikan, varðveitir hann.

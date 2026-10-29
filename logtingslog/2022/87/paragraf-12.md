@@ -1,0 +1,2 @@
+## Uppafturtøka av samlívi
+§ 12. Eru foreldrini gift ella sundurlisin, fáa tey aftur felags foreldramyndugleika, um tey taka upp aftur ella halda fram við samlívinum, hóast avtala er gjørd, ella avgerð er tikin um, at annað av foreldrunum skal hava foreldramyndugleika einsamalt. Eru foreldrini ógift ella fráskild, fáa tey ikki felags foreldramyndugleika, uttan so, at tey verður uppafturgift, sbrt. § 6, stk. 1, ella avtala tað, sbrt. § 9.

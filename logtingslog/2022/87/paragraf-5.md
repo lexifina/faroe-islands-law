@@ -1,0 +1,5 @@
+§ 5. Er eitt foreldur dømt treytaleysa fongsulsrevsing ella aðra rættarfylgju sbrt. §§ 68-70 í revsilógini fyri yvirgang ella fyri at taka undir við brotsverki, sbrt. § 114-114 h, sbrt. § 136, stk. 2 í revsilógini, blóðskemd, sbrt. § 210 í revsilógini, kynslig brotsverk, sbrt. kapittul 24 í revsilógini, tó undantikið brot á § 228 í revsilógini, manndráp, sbrt. § 237 í revsilógini, grovan harðskap, sbrt. §§ 245 og 246 í revsilógini, umskering av kvinnum, sbrt. § 245 a í revsilógini ella menniskjahandil, sbrt. § 262 a í revsilógini, kann tað ikki, uttan so at tað er best fyri barnið, verða tikin avgerð um:
+1) At foreldrið fær foreldramyndugleikan ella lut í foreldramyndugleikanum yvir barninum sbrt. § 11, stk. 2, § 13, stk. 2, § 14, § 15, stk. 2-4, ella §§ 32-34.
+2) At barnið býr hjá foreldrinum, sbrt. § 18, stk. 1, ella § 32.
+3) At barnið hevur samveru ella annað samband við foreldrið, sbrt. §§ 21, 25 ella 35.
+Stk. 2. Stk. 1 er eisini galdandi fyri onnur, sum kunnu fáa foreldramyndugleika, sbrt. § 13, stk. 2, § 15, stk. 2-4, og onnur, sum kunnu hava samveru við barnið, sbrt. §§ 22 og 23.

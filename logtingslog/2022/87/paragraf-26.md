@@ -1,0 +1,4 @@
+## Kunning um barnið
+§ 26. Tað av foreldrunum, ið ikki hevur foreldramyndugleika, hevur rætt til kunning um viðurskifti um barnið frá stovnum, myndugleikum og heilsustarvsfólkum. Viðkomandi hevur eisini rætt til at fáa handað skjøl um viðurskifti um barnið, um hesi eru til skjals.
+Stk. 2. Stovnar, myndugleikar og heilsustarvsfólk kunnu nokta at útflýggja upplýsingar, um hetta verður mett at vera barninum til bága. Upplýsingar um tað av foreldrunum, sum hevur foreldramyndugleikan, umframt tess samband við barnið, skulu ikki útflýggjast.
+Stk. 3. Familjufyrisitingin kann í serligum førum, og eftir umbøn frá tí, sum hevur foreldramyndugleika, ella einum av teimum í stk. 1 nevndu myndugleikum, stovnum ella heilsustarvsfólkum, nokta rætt til kunning eftir stk. 1 og 2. Avgerðin hevur virknað frá tí, at myndugleikin fær fráboðan um avgerðina.
