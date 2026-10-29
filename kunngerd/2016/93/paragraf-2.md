@@ -1,0 +1,1 @@
+§ 2. Persónar, ið tann 1. januar 2016 ella áðrenn, lógliga áttu skotvápn, nevnd í § 1, stk. 1, nr. 1 og § 2, stk. 1, nr. 1 í løgtingslógini, skulu einans útvega sær vápnaprógv, um teir skulu nýta hesi til skjóting.
