@@ -1,0 +1,1 @@
+[^1]: Broytt við løgtingslóg nr. 46 frá 29. mai 2026, har § 2 ljóðar soleiðis: “Landsstýrisfólkið ásetur í kunngerð, nær løgtingslógin kemur í gildi.” (Løgtingslógin er sett í gildi tann 1. juli 2026 við kunngerð nr. 61 frá 16. juni 2026.)
