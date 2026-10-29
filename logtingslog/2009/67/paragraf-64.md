@@ -1,0 +1,5 @@
+§ 64. Endurgjaldið fyri miss av uppihaldara er ein framhaldandi tíðaravmarkað veiting, sum árliga samsvarar við 30% av ársløn hins deyða, roknað sambært § 42, og sum í mesta lagi kann verða veitt í 10 ár, sí tó § 66.
+Stk. 2. Árliga endurgjaldið sambært stk. 1 verður veitt frá deyðadegnum og goldið mánaðarliga frammanundan. Framhaldandi árliga veitingin kann eftir áheitan frá tí, sum hevur rætt til veitingina, roknast um til eina ávísa peningaupphædd, samsvarandi ásetingunum í § 51, stk. 2.
+Stk. 3. Fær viðkomandi eftirsitiløn orsakað av andlátinum, byrjar útgjaldingin av endurgjaldinum fyri miss av uppihaldara ikki, fyrr enn eftirsitilønartíðarskeiðið er runnið.
+Stk. 4. Fekk tann deyði framhaldandi veiting fyri miss av vinnuføri, sbr. § 50, kemur endurgjaldið fyri miss av uppihaldara ikki til útgjaldingar fyrr enn tann 1. í mánaðinum eftir andlátið.
+Stk. 5. Upphæddin sambært stk. 1 er óbroytt í ásetta tíðarskeiðinum, uttan so, at móttakarin biður um at fáa upphæddina roknaða um til eina ávísa peningaupphædd, sbr. stk. 2, ella móttakarin av veitingini doyr.

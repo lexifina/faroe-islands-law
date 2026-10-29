@@ -1,0 +1,4 @@
+## Upplýsingarskylda hins tryggjaða
+§ 54. Tann, ið fær framhaldandi árliga veiting fyri mist vinnuføri, hevur skyldu til at boða Vanlukkutryggingarráðnum frá broytingum í viðurskiftum sínum.
+Stk. 2. Á sama hátt hava Vanlukkutryggingarráðið, tryggingarfelagið, landið, sbr. § 15, stk. 2, ella Vinnusjúkugrunnurin skyldu til at geva tí gætur, um viðurskifti hins tryggjaða broytast, sum ásett í stk. 1.
+Stk. 3. Hevur tryggjaði sbrt. stk. 2 ikki boðað frá viðkomandi broytingum, nevndar í stk. 1, kann Vanlukkutryggingarráðið áleggja honum - ella deyðsbúgvi hansara - at endurrinda tryggingarfelagnum, landinum, sbr. § 15, stk. 2, ella Vinnusjúkugrunninum ta upphædd, ið hann soleiðis av órøttum hevur móttikið. Skyldugar upphæddir kunnu mótroknast í framhaldandi veitingum sambært hesi lóg, tó undantikið veitingunum sambært 13. og 14. kapitli. Ásetingarnar í §§ 21 og 22 verða nýttar samsvarandi.

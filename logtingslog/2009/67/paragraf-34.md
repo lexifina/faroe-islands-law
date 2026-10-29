@@ -1,0 +1,1 @@
+§ 34. Fær Vanlukkutryggingarráðið orsakað av viðurskiftum hins tryggjaða ella hansara avvarðandi ikki tikið støðu til, um ein fráboðaður tilburður kann viðurkennast sum ein arbeiðsskaði, fellur kravið um málsviðgerð burtur, tá 5 ár eru liðin, síðani tilburðurin av fyrsta sinni varð fráboðaður ráðnum.

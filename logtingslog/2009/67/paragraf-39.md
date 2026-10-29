@@ -1,0 +1,2 @@
+§ 39. Veitingarnar til tryggjaða sambært 9., 10., 11. og 12. kapitli verða ásettar í mun til avleiðingarnar av arbeiðsskaðanum og kunnu tí lækka ella, eftir umstøðunum, heilt detta burtur, um verandi heilsuliga og sosiala støðan ikki einans er elvd av arbeiðsskaðanum.
+Stk. 2. Verður mist vinnuføri ella varandi mein staðfest, ella letur persónur lív, verður hetta roknað sum avleiðing av arbeiðsskaða sambært hesi lóg, uttan so, at mestu sannlíkindini tala ímóti hesum.

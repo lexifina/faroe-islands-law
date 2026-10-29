@@ -1,0 +1,1 @@
+§ 65. Tann, ið fær framhaldandi endurgjald fyri miss av uppihaldara, sbr. § 64, kann innan 5 ár eftir avgerðina biðja Vanlukkutryggingarráðið um at fáa veitingartíðarskeiðið longt, tó ikki longri enn í samanlagt 10 ár.

@@ -1,0 +1,5 @@
+## Freistir Vanlukkutryggingarráðsins
+§ 29. [^3] Vanlukkutryggingarráðið skal í seinasta lagi 3 mánaðir eftir fráboðan um vanlukku, kunna tryggjaða ella hansara avvarðandi, um tilburðurin kann viðurkennast sum ein arbeiðsskaði, ið kann geva rætt til veitingar sambært lógini. Er talan um vinnusjúku, sbr. § 10, nr. 1, er freistin 9 mánaðir. Samstundis skal skaddi, um talan er um vinnusjúku, ella hansara avvarðandi og viðkomandi arbeiðsgevari kunnast um avgerðina.
+Stk. 2. [^3] Fyri vinnusjúkur, nevndar í § 10, stk. 1 og stk. 3, galda einans tær í § 48, stk. 2 og § 56, stk. 2 ásettu freistir fyri støðutakanina til avleiðingarnar av einum viðurkendum arbeiðsskaða og ella vinnusjúku.
+Stk. 3. Somu freistir, sum ásettar í stk. 1, eru galdandi fyri fráboðan til avvarðandi, tá tryggjaði ella persónur fevndur av Vinnusjúkugrunninum doyr, eftir at ein tilburður honum viðvíkjandi er fráboðaður Vanlukkutryggingarráðnum. Í hesum førum verða freistirnar roknaðar frá tí degi, ráðið, sbr. § 23, stk. 4, fekk fráboðan um andlátið.
+Stk. 4. Vanlukkutryggingarráðið kann í serligum førum víkja frá tríggja mánaða freistini sambært stk. 1.

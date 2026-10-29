@@ -1,0 +1,1 @@
+§ 30. Hóast Vanlukkutryggingarráðið samsvarandi § 29 hevur viðurkent ein fráboðaðan tilburð sum arbeiðsskaða ella vinnusjúku av arbeiðinum sbrt. § 10, stk. 2, kann ráðið tó ikki uttan í heilt serligum førum játta tryggjaða ella persóni við vinnusjúku veitingar sambært lógini - tó burtursæð frá dagpeningi, sbr. 10. kapittul - fyrr enn kærufreistin í § 36, stk. 1 er runnin.

@@ -1,0 +1,2 @@
+§ 32. Hevur Vanlukkutryggingarráðið boðað tryggjaða frá, at ein fráboðaður tilburður - hóast viðurkendur sum arbeiðsskaði - ikki hevur havt avleiðingar, sum geva rætt til veitingar sambært lógini, kunnu krøv hesum viðvíkjandi ikki verða sett fram seinni enn 5 ár eftir hesa fráboðan.
+Stk. 2. Tá heilt serligar umstøður tala fyri tí, kann Vanlukkutryggingarráðið síggja burtur frá 5 ára freistini í stk. 1.

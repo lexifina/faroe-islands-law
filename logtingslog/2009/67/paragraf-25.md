@@ -1,0 +1,4 @@
+## Mannagongdin í sambandi við fráboðan um arbeiðsskaða
+§ 25. [^1] Við fráboðan um arbeiðsskaða sambært hesi lóg skal fylgja læknaváttan, ið verður rindað av tryggingarfelagnum ella landinum, sbr. § 21, stk. 7, ella av Vinnusjúkugrunninum, sbr. § 78, stk. 3. Ásetingarnar í §§ 21 og 22 verða nýttar samsvarandi.
+Stk. 2. [^2] Landsstýrisfólkið ásetir eftir tilmæli frá Vanlukkutryggingarráðnum nærri reglur um mannagongdina í sambandi við fráboðanir um arbeiðsskaðar og vinnusjúkur, haruppií hvussu fráboðanin skal fremjast, hvørji oyðubløð skulu nýtast, hvørjar læknaváttanir skulu fylgja við fráboðanini, og gjøldini fyri hesar læknaváttanir.
+Stk. 3. [^2] Landsstýrisfólkið kann áseta nærri reglur um, at upplýsingar skulu skrásetast og sendast talgilt, og kann áseta nærri reglur um talgilda samskiftið.

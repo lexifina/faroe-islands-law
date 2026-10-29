@@ -1,0 +1,2 @@
+§ 9. [^3] Við eina vanlukku er sambært hesi løgtingslóg at skilja ein persónskaði, ið er elvdur av einum tilburði ella eini ávirkan, sum hendir brádliga ella innan fyri 5 dagar.
+Stk. 2. [^3] Fyri vanlukkur er rættarvirknaðurin í hesi løgtingslóg galdandi frá degnum, tá vanlukkan hendi, ella frá degnum, tá ávirkanin, sum hevur elvt til vanlukkuna, heldur uppat, um ikki annað er ásett í løgtingslógini.

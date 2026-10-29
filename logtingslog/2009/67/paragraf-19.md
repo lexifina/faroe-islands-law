@@ -1,0 +1,2 @@
+§ 19. Tryggingin í hesi lóg fevnir um tann persónsskaða, sum er elvdur av arbeiðsskaðanum, hóast skaðin í sjálvum sær er lítil í mun til samlaðu heilsustøðu hins tryggjaða.
+Stk. 2. Er ein persónsskaði ikki einans elvdur av fráboðaða tilburðinum, skal tryggjaði hava boð um hetta í seinasta lagi, tá Vanlukkutryggingarráðið sambært § 29 kunnar tryggjaða um, hvørt tilburðurin kann viðurkennast sum ein arbeiðsskaði.

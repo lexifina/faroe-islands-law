@@ -1,0 +1,2 @@
+§ 14. Ein arbeiðsgevari, ið hevur átikið sær eitt arbeiði, hevur skyldu til eisini at tryggja tey arbeiðsfólk, ið hin sáttmálaparturin letur honum til tess at útinna hetta arbeiðið.
+Stk. 2. Tann, ið rekur vinnuvirki, ella útinnir tryggingarskyldugt arbeiði, hevur skyldu at tryggja tey arbeiðsfólk, sum eru knýtt at virkinum ella arbeiðinum, sjálvt um arbeiðsfólkið er sett í starv av øðrum arbeiðsgevara, sum hevur átikið sær at útinna ein part av arbeiðinum. Hevur hesin seinni arbeiðsgevarin sjálvur tryggjað sítt arbeiðsfólk, er hann tryggingarskyldugur arbeiðsgevari.
