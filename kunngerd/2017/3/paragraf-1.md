@@ -1,0 +1,1 @@
+§ 1. Henda kunngerð er galdandi fyri sjófólk og skipsførarar sambært § 1, stk. 1 og § 47 í løgtingslógini, ið starvast umborð á einum føroyskt skrásettum skipi, uttan mun til sigliøki og hvat skipini verða nýtt til, tó eru fiskiskip og stuttleikafør undantikin.

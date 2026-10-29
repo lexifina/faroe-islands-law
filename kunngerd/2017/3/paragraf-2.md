@@ -1,0 +1,2 @@
+§ 2. Sum upplýsing um rættindi hjá sjófólkum og skipsførarum sambært løgtingslóg um trygging móti avleiðingunum av arbeiðsskaða, skal tann í skjali 1 og 2 viðfesta váttanin verða atkomulig fyri sjófólkini umborð á skipinum.
+Stk. 2. Váttanin skal vera á arbeiðsmálinum umborð á skipinum ella á enskum. Um skipið er í altjóða sigling, skal váttanin verða á enskum, ella hava viðfest eina enska umseting.
