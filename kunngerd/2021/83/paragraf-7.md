@@ -1,0 +1,1 @@
+§ 7. Umsókn um stuðul til gransking verður send til metingar hjá óheftum metarum, við serkunnleika innan viðkomandi granskingarøki, tá ið stuðulsupphædd og vavið á verkætlanini talar fyri tí. Viðkomandi metarar gera ummæli til nevndina, um tað granskingarliga innihaldið í umsóknini er í lagi.
