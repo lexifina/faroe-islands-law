@@ -1,0 +1,4 @@
+§ 19. Útbjóðing av fiski, veiddur av keyptum kvotum í Barentshavinum, fer fram eftir reglunum í kunngerð um almenna uppboðssølu av fiski, samanber tó stk. 2-4.
+Stk. 2. Tann, ið keypir fisk, ið er ella verður veiddur av keyptum kvotum í Barentshavinum, skal vera á lista yvir góðkend framleiðsluvirki í Føroyum sambært Heilsufrøðiligu Starvsstovuni.
+Stk. 3. Verður fiskurin boðin út, áðrenn farið verður til fiskiskap, skal seljari skjalprógva yvir fyri Vørn, at væntaða veiðan er boðin út til í minsta lagi 3 keyparar undir somu treytum við rímiligari freist. Verður fiskur ikki seldur áðrenn, skal hann bjóðast út á uppboðssølu sambært stk. 1.
+Stk. 4. Verður fiskur, veiddur av keyptum kvotum í Barentshavinum, ikki seldur á uppboðssølu sambært stk. 1, hóast fiskurin er boðin út um uppboðssølu, kann seljari selja fiskin til keypara uttanlands. Tó er landingarkravið sambært § 18 galdandi.

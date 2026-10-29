@@ -1,0 +1,1 @@
+§ 2. Rætturin at veiða kann seljast eigarum av fiskiførum undir føroyskum flaggi at fiska við ávísum fiskifari, sum hevur veiðiloyvi. Rætturin at veiða kann eisini seljast eigarum av bátum í bólki 5, sambært løgtingslóg um vinnuligan fiskiskap, at fiska við ávísa bátinum.
