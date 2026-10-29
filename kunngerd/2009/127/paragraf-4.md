@@ -1,0 +1,1 @@
+§ 4. Um ein blóðroynd hevur í sær eina lítla restmongd av einum dusandi evni, sum er flokkað sum vandamikið fyri ferðslutrygdina, men sum ikki er tilskilað í skjali 1 í hesari kunngerð, verður blóðroyndin ikki mett at hava í sær viðkomandi dusandi evni.

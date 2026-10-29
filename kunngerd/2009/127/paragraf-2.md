@@ -1,0 +1,1 @@
+§ 2. Staðfesting av, um ein blóðroynd hevur í sær eitt dusandi evni, ið verður flokkað sum vandamikið fyri ferðslutrygdina, skal fara fram við máting av, um blóðroyndin hevur í sær tað virkna evnið, sum í skjali 1 í hesari kunngerð verður tilskilað fyri viðkomandi dusandi evni.
