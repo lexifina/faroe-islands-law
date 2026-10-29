@@ -1,0 +1,2 @@
+§ 72. Avgerðir eftir § 70 eru endaligar innan fyrisitingina.
+Stk. 2. Avgerðir eftir §§ 70 og 71 kunnu leggjast fyri dómsvaldið. Avgerðir eftir §§ 70 og 71 skulu innihalda upplýsingar um rættin til at leggja avgerðina fyri dómsvaldið og um kærufreist. Áheitan um at leggja málið fyri dómsvaldið skal fráboðast Fútanum í seinasta lagi 4 vikur eftir, at avgerðin er boðað viðkomandi. Málið verður lagt fyri dómsvaldið eftir reglunum í § 78, stk. 3 í revsilógini. Áheitanin, um at leggja málið fyri dómsvaldið, hevur ikki steðgandi virknað.

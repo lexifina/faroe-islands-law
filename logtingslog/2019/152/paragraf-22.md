@@ -1,0 +1,4 @@
+## Aðrar skipanir í fiskiskapi í føroyskum sjógvi
+§ 22. [^2] [^5] [^3] Landsstýrisfólkið kann skipa fiskiskapin í føroyskum sjógvi, undir hesum m.a. áseta skipan, býti og treytir um fiskiskapin. Kvotunøgdir, undir hesum ásettar føroyskar kvotur, heildarkvotur, felags árskvotur, umframt fiskidagatal o.tíl. kunnu kunngerast við eini fráboðan.
+Stk. 2. Landsstýrismaðurin ásetir nærri reglur um at skipa fiskiskapin eftir botnfiski og øðrum djórasløgum á Føroyabanka og um, hvørjir bólkar av fiskiførum ella veiðihættir kunnu gerast partar av skipanini.
+Stk. 3. [^2] [^1] Landsstýrismaðurin ásetir nærri reglur um at skipa fiskiskap við opnum, føroyskt bygdum, bátum undir 15 tons í bólki fyri seg uttan fyri fiskidagaskipanina, sambært § 18, stk. 1, nr. 5, og ásetir nærri reglur og mannagongdir um atgongd, fiskiloyvi og hvussu fiskiskapurin skal fara fram.

@@ -1,0 +1,1 @@
+§ 71. Fyri grov brot, ella endurtøku av brotum, kann landsstýrismaðurin avgera, at givin rættindi verða tikin aftur fyri ásett tíðarskeið ella endaliga. Landsstýrismaðurin ásetir nærri reglur um afturtøku av loyvum.

@@ -1,0 +1,1 @@
+§ 61. Fiskifør skulu hava allan fiskireiðskap burturstúgvaðan innanborða á sínum natúrliga staði, tá tey eru stødd á eini leið, har tað ikki er loyvt fiskifarinum at fiska. Tað sama er galdandi, tá fiskifarið liggur í havn.

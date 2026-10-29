@@ -1,0 +1,1 @@
+§ 62. Upplýsingar, harundir viðkvæmar og trúnaðarupplýsingar, sum hava týdning fyri eftirlitið við fiskiskapi og veiðu, kunnu, treytað av trygd og trúnaði, útflýggjast myndugleikum í øðrum londum, altjóða felagsskapum og økisbundnum fiskiveiðifelagsskapum.

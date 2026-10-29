@@ -1,0 +1,6 @@
+## Avhending og flyting av loyvum og rættindum í bólki 5, smábátar
+§ 32. [^2] [^1] Fiskiloyvi til fiskiskap í bólki 5, sambært § 18, stk. 1, nr. 5, kann flytast á annan bát uttan fiskiloyvi í sambandi við, at bátur verður skiftur út, treytað av, at fiskiorkan ikki økist. Loyvt er ikki at flyta fiskiloyvi á bát størri enn 15 tons.
+Stk. 2. [^2] [^1] Fiskiloyvi hjá tveimum bátum í bólki 5, sambært § 18, stk. 1, nr. 5, kann flytast á annað fiskifar við ongum fiskiloyvi treytað av, at fiskiorkan ikki økist. Loyvt er ikki at flyta fiskiloyvi á fiskifar størri enn 15 tons.
+Stk. 3. [^2] Skiftir fiskifar við fiskiloyvi eigara, kann fiskiloyvið fylgja fiskifarinum, um nýggi eigarin lýkur treytirnar fyri at reka vinnuligan fiskiskap undir føroyskum flaggi í hesi løgtingslóg.
+Stk. 4. [^2] [^1] Landsstýrismaðurin kann eftir umsókn veita eigara av fiskifari í bólki 5, sambært § 18, stk. 1, nr. 5, sum verður tikið úr vinnuligum fiskiskapi, tilsøgn um, at fiskiloyvið innan tvey ár kann flytast á annað fiskifar samsvarandi stk. 1 ella stk. 2. Landsstýrismaðurin kann í serligum førum víkja frá 2 ára tíðarfreistini.
+Stk. 5. Landsstýrismaðurin ásetir nærri reglur um mannagongd og treytir fyri umsiting av hesi grein.

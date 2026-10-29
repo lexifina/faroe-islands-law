@@ -1,0 +1,3 @@
+§ 26. [^3] Bannað er førum undir fremmandum flaggi at umskipa o.tíl. í føroyskum sjógvi og í føroyskum havnum uttan loyvi frá landsstýrisfólkinum. Harumframt er teimum bannað at taka ímóti vørum og tænastuveitingum, sum stuðla undir, at fiskiskapur kann fara fram.
+Stk. 2. [^3] Landsstýrisfólkið kann loyva førum undir fremmandum flaggi at umskipa o.tíl. í føroyskum sjógvi og í føroyskum havnum, og at tey taka ímóti vørum og tænastuveitingum sambært stk. 1. Harumframt kann landsstýrisfólkið áseta nærri treytir hesum viðvíkjandi.
+Stk. 3. [^3] Landsstýrisfólkið kann sýta loyvi eftir stk. 2, um ikki er fiskað í samsvari við semjur í økisbundnum fiskiveiðifelagsskapum um at gagnnýta og verja sjófeingi, sum Føroyar hava tikið undir við.

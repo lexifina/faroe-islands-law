@@ -1,0 +1,8 @@
+## Kapittul 6
+## Fiskiskapur við føroyskum skipum uttan fyri føroyskan sjógv
+§ 23. Fiskiskapur hjá føroyskum fiskiførum, uttan fyri føroyskan sjógv, verður skipaður samsvarandi sínámillum fiskiveiðiavtalum, samtyktum í økisbundnum fiskiveiðifelagsskapum og eftir millumlanda avtalum. Eru Føroyar ikki partar av avtalu ella samtykt, ella eingin samtykt er um fiskiskap í altjóða sjógvi, ásetir landsstýrismaðurin kvotur, fiskidagar ella aðra skipan.
+Stk. 2. Landsstýrismaðurin ásetir nærri reglur um býti av tøkum fiskimøguleikum, ið ikki eru bodnir út á uppboði, og hvussu fiskiskapurin skal fara fram.
+Stk. 3. Reglur og treytir fyri fiskiskapi hjá føroyskum fiskiførum í fiskiveiðiløgdøminum hjá teimum londum, Føroyar hava sínámillum fiskiveiðiavtalu við, eru tær, sum eru galdandi í fiskiveiðiløgdøminum hjá viðkomandi landi.
+Stk. 4. Føroyskt fiskifar kann ikki fara til fiskiskap í fiskiveiðiløgdøminum hjá londum, Føroyar ikki hava sínámillum fiskiveiðiavtalu við, ella fiska av rættindum, ið ikki eru fevnd av slíkari avtalu, uttan við loyvi og góðkenning frá landsstýrismanninum.
+Stk. 5. Føroyskt fiskifar kann ikki fara til fiskiskap uttan fyri fiskiveiðiløgdømið hjá strandarlondum uttan fiskiloyvi frá landsstýrismanninum.
+Stk. 6. Fyri øll før undir føroyskum flaggi og á øllum leiðum krevst loyvi frá Fiskiveiðieftirlitinum fyri at fáast við slíkt, ið knýtt er at fiskiskapi, so sum at umskipa veiðu, uppskipa veiðu, virka umborð, pakka ella á annan hátt handfara veiðu ella úrdrátti úr veiðu, umskipa útgerð ella ankra við tí í hyggju at taka lut í umskiping av veiðu ella taka inn útgerð.

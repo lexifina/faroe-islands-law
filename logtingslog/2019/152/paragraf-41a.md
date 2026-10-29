@@ -1,0 +1,5 @@
+§ 41 a. [^5] 25% av veiðuni av svartkjafti, makreli ella norðhavssild, gjørd upp 31. desember fyri árið, ella í minsta lagi ein last av hvørjum fiskaslagi hjá hvørjum fiskifari, kann landast og avreiðast uttanlands.
+Stk. 2. Landsstýrisfólkið kann áseta reglur um undantak frá avmarkingini í stk. 1 galdandi fyri ávís fiskasløg, fiskaúrdráttir ella fiskiskap í avmarkað tíðarskeið.
+Stk. 3. [^3] Landsstýrisfólkið kann við eini fráboðan kunngera bráðfeingis undantak frá markinum í stk. 1 at landa og avreiða uttanlands fyri ávíst fiskaslag. Undantakið kann í mesta lagi vera 14 dagar hvørja ferð.
+Stk. 4. [^3] Er veiða landað uttanlands í ósamsvari við stk. 1, skal eigarin av fiskifarinum rinda eitt gjald til landskassan, sum samsvarar við 30% av søluvirðinum av tí nøgd, sum er avreidd uttanlands.
+Stk. 5. [^3] Landsstýrisfólkið ásetir nærri reglur um uppgerð, gjaldfreist og rentu. Gjaldið, saman við rentu og møguligum innkrevjingarkostnaði, kann krevjast inn við panting. TAKS fremur panting eftir reglunum um innkrevjing av skattum.

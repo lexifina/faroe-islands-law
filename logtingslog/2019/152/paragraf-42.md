@@ -1,0 +1,2 @@
+## Uppboðssøla av veiddum fiski
+§ 42. [^4] [^2] [^1] Landsstýrismaðurin kann gera reglur um, at veiða hjá føroyskum fiskifari skal seljast um góðkenda uppboðssølu í Føroyum og treytir fyri søluni. Undantikið er veiða av rættindum latin bólki 5 sambært § 18, stk. 1, nr. 5. Reglurnar skulu áseta, hvørji fiskasløg og hvussu stórur partur av veiðuni er fevndur av kravinum, og hvørji tíðarskeið veiðan verður gjørd upp.

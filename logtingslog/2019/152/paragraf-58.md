@@ -1,0 +1,1 @@
+§ 58. Fiskiveiðieftirlitið kann krevja, at fiskifar, fiskaflutningsfar og fiskaframleiðslufar verður verandi á eini knattstøðu í ásetta tíð, til tess at kanningar kunnu fremjast. Knattstøða og tíðarskeið skal so vítt gjørligt avtalast við skiparan á avvarðandi fari.

@@ -1,0 +1,4 @@
+## Veiða til húsbrúks og ferðavinnufiskiskapur
+§ 35. Veiða til húsbrúks er ikki loyvd við fiskifari skrásett undir fremmandum flaggi. Tað er ikki loyvt at avreiða ella á annan hátt selja veiðu til húsbrúks. Minni stuttleikafiskikapping, har veiðan verður seld, og møguligur peningaligur vinningur av sølu fer til vælgerandi endamál, krevur ikki loyvi.
+Stk. 2. Landsstýrismaðurin ásetir nærri reglur um veiðu til húsbrúks, m.a. reiðskap, fiskileiðir, friðað øki, veiðinøgd, bann fyri at fiska ávíst fiskaslag, ella um serligt loyvi krevst til ávíst djóraslag ella fiskaslag.
+Stk. 3. Landsstýrismaðurin kann geva serstakt loyvi til fiskiskap í føroyskum sjógvi í sambandi við ferðavinnu og kann áseta nærri reglur um treytir fyri fiskifari, fiskiskapi, fiskileiðir, friðað øki, veiðinøgdir, reiðskapi o.a. Loyvt er ikki at avreiða veiðu frá slíkum fiskiskapi.
