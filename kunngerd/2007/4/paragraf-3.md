@@ -1,0 +1,3 @@
+§ 3. Tá Høvuðsbarnaverndarnevndin sendir familju til familjuviðgerð sum samdøgursstilboð á stovni hjá landinum, rindar avvarðandi barnaverndarøki fyri hvørja familju tað, ið svarar til hægstu samsýning til fosturforeldur at sera truplum børnum, tá fleiri enn 2 børn eru í somu fosturfamilju, tó ikki lummapening, sambært kunngerð um samsýning til fosturforeldur.
+Stk. 2. Tá Høvuðsbarnaverndarnevndin sendir familju til familjuviðgerð sum dagtilboð á stovni hjá landinum, rindar avvarðandi barnaverndarøki fyri hvørja familju tað, ið svarar til 3 ferðir samsýning til fosturforeldur, sambært kunngerð um samsýning til fosturforeldur.
+Stk. 3. Gjald sambært stk. 1 og 2 er uttan mun til talið av børnum og vaksnum í familjuni.

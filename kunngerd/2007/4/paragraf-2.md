@@ -1,0 +1,2 @@
+§ 2. [^1] [^2] Tá Høvuðsbarnaverndarnevndin setir barn á samdøgursstovn ella aðra samdøgursfyriskipan hjá landinum, rindar avvarðandi barnaverndarøki fyri hvørt barnið tað, ið svarar til hægstu samsýning til fosturforeldur at óvanliga truplum børnum, tá fleiri enn 2 børn eru í somu fosturfamilju, sambært kunngerð um samsýning til fosturforeldur.
+Stk. 2. Tá Høvðsbarnaverndarnevndin setir barn á samdøgursstovn uttanlands, rindar avvarðandi barnaverndarøki til landi, sambært stk. 1.
