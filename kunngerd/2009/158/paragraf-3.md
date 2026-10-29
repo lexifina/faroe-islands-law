@@ -1,0 +1,3 @@
+§ 3. Fráboðanarskyldan hvílir á tryggingarskylduga arbeiðsgevaranum.
+Stk. 2. Er talan um sjálvstøðugt vinnurekandi, ella persón, sum roynir at bjarga mannalívi, sbr. lógarinnar § 5, nr. 4, hevur tryggjaði sjálvur ella hansara avvarðandi fráboðanarskylduna.
+Stk. 3. Boðar tann fráboðanarskyldugi, sbr. lógarinnar § 24, ikki frá møguligum arbeiðsskaða, ella verður tilburðurin fráboðaður ov seint, kann tryggjaði ella avvarðandi hansara innan eitt ár eftir tilburðin kortini seta fram krav um veitingar sambært hesi lóg. Um serligar umstøður tala fyri tí, kann ráðið síggja burtur frá 1 árs fráboðanarfreistini.

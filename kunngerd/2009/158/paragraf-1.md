@@ -1,0 +1,7 @@
+§ 1. Ein arbeiðsskaði, sum hildin verður tryggjaður sambært hesi lóg, skal fráboðast skjótast gjørligt og í seinasta lagi 9 yrkadagar eftir hendingina. Tann fráboðanarskyldugi, sbr. § 3, skal fráboða arbeiðsskaðan til tað tryggingarfelag, har tryggingin er teknað. Er trygging ikki teknað, sbr. lógarinnar § 5, nr. 4, § 15, stk. 2 og § 17, skal skaðin fráboðast til Vanlukkutryggingarráðið.
+Stk. 2. Um tilburðurin ikki er fráboðaður samsvarandi stk. 1, og skaddi ella sjúki 5 vikur eftir hendingina framvegis ikki er førur fyri í fullan mun at taka upp aftur arbeiðið, skal tilburðurin innan 9 yrkadagar eftir hetta verða fráboðaður samsvarandi reglunum í stk. 1.
+Stk. 3. Fyri vinnusjúkur, sbr. lógarinnar § 10, verður fráboðanarfreistin roknað frá tí degi, tann fráboðanarskyldugi gjørdist varugur við, at sjúkan kann vera treytað av arbeiðinum. Vinnusjúkur skulu fráboðast til Vanlukkutryggingarráðið.
+Stk. 4. Vanlukkutryggingarráðið skal innan 48 tímar hava fráboðan um andlát, ið kunnu vera elvt av arbeiðsskaða, haruppií øll andlát, hend á arbeiðsplássinum. Fráboðanarskyldan er galdandi, hóast tilburðurin, ið kann hava elvt til andlátið, longu frammanundan er ella skal verða fráboðaður ráðnum.
+Stk. 5. Við tryggingarfelag skilst í hesari kunngerð:
+1) eitt tryggingarfelag, ið sambært løgtingslóg um tryggingarvirksemi hevur loyvi at tekna arbeiðsskaðatryggingar í Føroyum, ella
+2) landið, um tað ikki hevur latið ábyrgdarvandan sambært hesi lóg til eitt tryggingarfelag, sbr. lógarinnar § 15, stk. 2.

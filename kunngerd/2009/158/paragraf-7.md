@@ -1,0 +1,1 @@
+§ 7. Er talan um skaðar, sum kunnu haldast einans at kunna grunda krav uppá veitingar eftir lógarinnar § 44 (sjúkuviðgerð, uppvenjing og hjálpitól v.m.), kann tryggingarfelagið, áðrenn málið verður sent Vanlukkutryggingarráðnum, sjálvt gera av at játta og gjalda hesar veitingar.

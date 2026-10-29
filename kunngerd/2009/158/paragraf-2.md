@@ -1,0 +1,2 @@
+§ 2. Er skaðin hendur í útlandinum, og kann fráboðanin av praktiskum orsøkum ikki gerast til tryggingarfelagið, skal fráboðanin gerast mótvegis eitt danskt ella føroyskt konsulát, sum beinanvegin sendir fráboðanina víðari til Vanlukkutryggingarráðið. Fráboðanin skal gerast innan omanfyri nevndu freistir.
+Stk. 2. Er skaðin hendur undir sigling, verður fráboðanarfreistin roknað frá tí, at skipið hevur samband við land.
