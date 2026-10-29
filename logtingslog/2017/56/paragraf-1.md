@@ -1,0 +1,1 @@
+§ 1. Løgtingslógin er galdandi fyri landsstovnar, grunnar o.o., sum eiga at verða tikin við á løgtingsfíggjarlógina, hereftir nevnd landið, og fyri øll, sum senda almennum stovnum rokningar, hereftir nevndir ognarar.
