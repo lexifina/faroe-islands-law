@@ -1,0 +1,1 @@
+§ 9. Viðvíkjandi upplýsingarskyldu í samband við lán verður kapittul 12, um skyldu at geva upplýsingar um lønir o.a. í løgtingslóg nr. 86 frá 1. september 1983 um landsskatt og kommunuskatt við seinni broytingum, tilsvarandi galdandi.
