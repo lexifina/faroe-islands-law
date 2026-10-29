@@ -1,0 +1,1 @@
+Við heimild í § 48, 3. stk. í løgtingslóg nr. 45 frá 29. juni 1972 hevur landsstýrið góðkent, at markið ímillum Tórshavnar kommunu og Tórshavnar uttanbíggja kommunu samsvarandi semju ímillum kommunurnar verður umskipað soleiðis, at bygdirnar Hoyvík og Hvítanes gerast ein partur av Tórshavnar kommunu.
