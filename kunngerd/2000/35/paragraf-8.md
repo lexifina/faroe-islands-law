@@ -1,0 +1,1 @@
+§ 8. Um so er, at broytingar fara fram í grundarlagnum undir einum frádrátti, sum virkið hevur gjørt fyri inngangandi avgjald í sambandi við keyp av íløgugøgnum (rakstrargøgnum, um keypsprísurin, ikki íroknaður meirvirðisgjald, fer upp um 20.000 kr., og føst ogn), skal javnan fara fram av tí frádrigna avgjaldinum í samsvari við reglurnar í kapitli 7.

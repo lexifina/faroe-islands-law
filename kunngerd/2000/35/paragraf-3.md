@@ -1,0 +1,8 @@
+## Kapittul 3
+## Føst ogn
+§ 3. Avgjald viðvíkjandi gerð av bygningum, herímillum uppíbygging, sum umframt høli til skrásetta virkið eisini fevnir um onnur høli, kann roknast við í inngangandi avgjald við tí partinum av samlaða avgjaldinum av byggingini, sum byggiútreiðslurnar fyri høli hjá virkinum verða mettar at vera í mun til samlaðu byggiútreiðslurnar. Um so er, at hølini til ta ymisku nýtsluna eru á sama støði (standard), kann sundurbýtingin gerast grundað á lutfallið millum gólvvíddina í hølunum hjá virkjunum og samlaðu gólvvíddina í bygninginum.
+Stk. 2. Hetta verður ikki roknað sum høli hjá virkinum:
+1. høli, ið verða nýtt sum íbúð hjá handhava ella starvsfólki á virkinum, uttan mun til um hølini eisini verða nýtt í vinnu hjá viðkomandi, ella
+2. høli, ið verða leigað út, uttan so at útleigan er fevnd av reglunum um sjálvbodna skráseting, javnber kunngerð um sjálvbodna skráseting, sambært lóg um meirvirðisgjald, fyri útleigu, uppsiting og sølu av fastari ogn.
+Stk. 3. Avgjald viðvíkjandi arbeiði við umbygging, umvæling og viðlíkahaldi av teimum í stk. 1 umrøddu bygningum, kann roknast við í inngangandi avgjald, í tann mun avgjaldið beinleiðis viðvíkur hølunum hjá virkinum. Hetta er treytað av, at latarin í rokningini hevur býtt prísin fyri gjørt arbeiði sundur.
+Stk. 4. Avgjald viðvíkjandi arbeiði við umbygging, umvæling og viðlíkahaldi, sum ikki beinleiðis kann vísast til tey einstøku hølini í bygninginum, t.d. uttanhýsis viðlíkahald ella umvæling av hitaskipan í bygninginum, skal roknast við í inngangandi avgjald grundað á lutfallið millum gólvvíddina í hølunum hjá virkinum og samlaðu gólvvíddina í bygninginum.

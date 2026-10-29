@@ -1,0 +1,5 @@
+## Kapittul 4
+## Vøru- og lastvognar
+§ 5. Avgjald, ið viðvíkur keypi av persón-, vøru- og lastvognum og avgjald av gjøldum sambært leigu- og leasingsáttmálum av somu vognum, tá veruliga totalvektin fer ikki upp um 3500 kg, kann ikki roknast við í inngangandi avgjald, uttan so at akførini burturav verða nýtt í sambandi við sølu av vørum og avgjaldsskyldugum tænastum hjá virkinum. Fyri lastvognar, har veruliga totalvektin er størri enn 3500 kg, og sum verða nýttir bæði í virkinum og til egna nýtslu, ella til annað endamál, ið ikki viðvíkur virkinum eru reglurnar í § 2 galdandi.
+Stk. 2. Avgjald, ið viðvíkur rakstri av teimum í stk. 1, nevndu akførum, kann í síni heild roknast við í inngangandi avgjald, uttan mun til um akførini einans partvís verða nýtt í virkinum. Gjøld sambært leigu- og leasingsáttmálum verða í hesum sambandi ikki roknað sum rakstrarútreiðslur sambært hesum stk.
+Stk. 3. Frádráttarrættur sambært stk. 1 og 2 er tó treytaður av, at sølan av vørum og avgjaldsskyldugum tænastum hjá virkinum fer upp um kr. 20.000 árliga.

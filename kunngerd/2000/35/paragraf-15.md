@@ -1,0 +1,1 @@
+§ 15. Toll- og Skattstova Føroya kann veita loyvi til, at trygd verður sett fyri javningarskyldu, ið liggur á fastari ogn. Hetta er tó treytað av, at trygdin verður verandi óbroytt í javningartíðarskeiðnum, og at javningarupphæddin fyri restina av tíðarskeiðnum fellur til gjaldingar, um fasta ognin av nýggjum verður avhendað, javnber tó § 12, nr. 3.

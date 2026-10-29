@@ -1,0 +1,7 @@
+## Kapittul 1
+## Blandað nýtsla
+§ 1. Avgjald av vørum og tænastum, ið virki keypa, ið bæði reka skrásetingarskyldugt og ikki skrásetingarskyldugt virksemi, skal roknast við í inngangandi avgjald sambært reglunum í stk. 2-5. Hetta er tó ikki galdandi fyri keyp av tí slagnum, sum er nevnt í kapitli 2-4.
+Stk. 2. Avgjald av vørum og tænastum, ið verða keyptar til nýtslu burturav í skrásetta partinum av virkinum, skal í síni heild roknast við í inngangandi avgjald.
+Stk. 3. Avgjald av vørum og tænastum, ið verða keyptar til nýtslu bæði í skrásetta og í ikki skrásetta partinum av virkinum (felags nýtslu), skal roknast við í inngangandi avgjald við tí partinum av avgjaldinum, ið svarar til munin millum søluna (ikki íroknað avgjald) av vørum og avgjaldsskyldugum tænastum og samlaðu søluna hjá virkinum í viðkomandi roknskaparári.
+Stk. 4. Tá ið boðast skal frá avgjaldi fyri tað einstaka avgjaldstíðarskeiðið, kann virkið gera eina fyribils uppgerð av tí partinum av avgjaldi á keypi hjá virkinum, ið kann roknast við í inngangandi avgjald. Henda uppgerð verður grundað á sølu í undanfarna roknskaparári. Eftir roknskaparárslok skal endalig javnan av avgjaldinum gerast. Fyri nýstovnað virki er fyribils uppgerðin grundað á sølu í tí einstaka avgjaldstíðarskeiðinum
+Stk. 5. Avgjald av vørum og tænastum, ið verða keyptar til nýtslu burturav í ikki skrásetta partinum av virkinum, kann ikki roknast við í inngangandi avgjald.

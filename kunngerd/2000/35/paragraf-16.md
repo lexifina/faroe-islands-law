@@ -1,0 +1,2 @@
+§ 16. Bókhald v.m. í sambandi við keyp, sølu og javning skal fara fram sambært reglum í kunngerð um minstukørv til bókhald og roknskap sambært lóg um meirvirðisgjald.
+Stk. 2. Javningarupphæddin skal takast við í uppgerðina av inngangandi avgjaldi hjá virkinum fyri tað avgjaldstíðarskeiðið, tá ið vavið á javningini kan staðfestast, t.d. tá ið íløgugøgn fer yvir til aðra nýtslu, ella tá ið roknskaparárið endar.

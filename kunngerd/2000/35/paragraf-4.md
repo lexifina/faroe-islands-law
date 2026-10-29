@@ -1,0 +1,1 @@
+§ 4. Avgjald viðvíkjandi umvæling og viðlíkahaldi av aðrari fastari ogn enn bygningum (t.d. grundstykki, havnir v.m.) kann roknast við í inngangandi avgjald við tí partinum, sum verður gjørdur upp sambært meginreglunum í §§ 1 og 2.

@@ -1,0 +1,1 @@
+§ 7. Um so er, at eitt virki fevnir um fleiri øki (t.d. fleiri virki við sama eigara ella ymiskan rakstur í sama virki), kann Toll- og Skattstova Føroya loyva ella krevja, at roknskapur viðvíkjandi avgjaldi við frádráttarrætti sambært §§ 1-5 verður gjørdur hvør sær fyri eitt ella fleiri av økjunum hjá virkinum. Virkið skal í tílíkum førum føra serstakan roknskap fyri umrøddu øki.

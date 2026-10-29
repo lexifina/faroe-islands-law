@@ -1,0 +1,1 @@
+§ 17. Tann, ið tilætlað ella av grovum ósketni gevur skeivar ella villleiðandi upplýsingar ella dylur upplýsingar til nýtslu við avgjaldseftirlit í sambandi við broyting av nýtslu av íløgugøgnum, verður revsaður við sekt, uttan so, at hann er skyldugur til strangari revsing sambært § 33, stk. 3 í lóg um meirvirðisgjald. Reglurnar í § 33, stk. 4 og § 34 í lógini eru galdandi.
