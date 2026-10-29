@@ -1,0 +1,2 @@
+§ 3. [^1] Boð í samband við útbjóðing skulu verða opnað ta frammanundan ásettu tíðina á útbjóðingarstaðnum. Tey, sum boðið hava, hava rætt til at vera hjástødd tá ið boðini verða latin upp og verða gjørd kunnug við boðsupphæddirnar og møgulig fyrivarni.
+2. stk. Har umhugsni fyri undirarbeiðstakarum ger tað neyðugt, kann almannakunngerðing av tilboðum útsetast til aftaná høvuðstilboðini eru latin upp, um nevndu boð frá undirarbeiðstakarum eru partur av hesum

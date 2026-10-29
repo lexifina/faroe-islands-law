@@ -1,0 +1,4 @@
+§ 2. [^1] Sum útbjóðing eftir hesi lóg er at skilja, at arbeiðir ella veitingar verða bodnar út soleiðis, at fleiri innan somu tíðarfreist, og við sama útbjóðingartilfari sum grundarlag, kunnu geva bindandi skrivlig boð, og soleiðis at tað í útbjóðinigi verður upplýst, at eisini aðrir hava fingið høvi til at bjóða. Boð kunnu verða latin inn talgilt, uttan so, at útbjóðarin frammanundan hevur útihýst hesum. Útbjóðarin kann gera av, at boð skulu latast inn talgilt.
+2. stk. Verður í útbjóðingartilfarinum biðið um broytingar-, frádráttar- og/ella sertilboð ella tílíkt, skal tað greitt í útbjóðingartifarinum vera sagt frá, hvørjar av hesum upphæddum tilsamans eru kappingargrundarlagið.
+3. stk. Almenn útbjóðing verður lýst í bløðunum ella á líknandi hátt uttan nakra avmarking av, hvør ið kann bjóða.
+4. stk. Er útbjóðingin bundin (ikki almenn) verður áheitan um at bjóða send beinleiðis og bert til teir, ið ein ynskir at fáa boð frá.

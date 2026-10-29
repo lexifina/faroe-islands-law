@@ -1,0 +1,3 @@
+§ 6. Loyvt er ikki at taka ímóti framíhjáboðum um so er, at ein áður uppá sama arbeiði ella somu veiting hevur fingið útbjóðingarboð ella meira enn eitt framíhjáboð og ikki eru lidnir í minsta lagi 6 mánaðir frá útbjóðingardegnum, ávikavist aftaná móttøkuna av seinasta framíhjáboðnum, ella tríggjar mánaðir aftaná afturtøku av útbjóðingini ella havnan av framíhjáboðunum.
+2. stk. Útbjóðing av arbeiði ella veiting, sum áður er útboðin ella framíhjáboð útvegað, kann í fyrsta lagi fara fram, tá ið tann fyrra útbjóðingin er tikin aftur, ella móttikin framíhjáboð eru havnað.
+3. stk. Afturtøka av útbjóðing skal skrivliga fráboðast øllum bjóðandi.
