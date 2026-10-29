@@ -1,0 +1,1 @@
+§ 1. Veiða eftir laksi (Salmo salar) við øðrum reiðskapi enn línu er ikki loyvd. Veiðan er treytað av, at skipið hevur veiðuloyvi frá landsstýrinum (Fiskivinnustovuni). Veiðuloyvini eru tíðaravmarkað.

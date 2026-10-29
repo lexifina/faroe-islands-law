@@ -1,0 +1,1 @@
+§ 6. Brot móti ásetanum í hesi kunngerð og í veiðuloyvi koma undir bót og herafturat kann allur fiskireiðskapur, so sum línur, uppstandarar v.m. og fongur koma undir konfiskatión. Skipið kann eisini heftast til rindingar av bót og kostnað.

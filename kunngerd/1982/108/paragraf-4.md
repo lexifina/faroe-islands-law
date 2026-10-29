@@ -1,0 +1,1 @@
+§ 4. Fyri veiðuloyvi verður at gjalda landsstýrinum (Føroya gjaldstovu) 1 kr./kg landað vekt av laksi, jbr. løgtingslóg nr. 68 frá 21. mai 1980 um avgjald av laksi, veiddum á landleiðini. Gjaldið verður at gjalda hvønn túrin sær og er fallið til gjaldingar 14 dagar aftaná uppskiping.
