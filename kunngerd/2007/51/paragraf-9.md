@@ -1,0 +1,3 @@
+## Revsiásetingar og gildiskoma
+§ 9. Uttan so at strangari revsing kann áleggjast eftir aðrari lóggávu, verður tann revsaður, sum brýtur ásetingarnar í §§ 3-5, brýtur boð og forboð sett sambært § 7, stk. 2, brýtur ásetingarnar í artikklunum 3-9, 14(1)(b), 23(1)-(2) og 24(4)(a) í flutningsfyriskipanini og tey fylgiskjøl til flutningsfyrikipanina, sum hesar ásetingarnar vísa til; veitir skeivar upplýsingar til myndugleikar í sambandi við ásetingarnar í artikklunum 10-11, 14(1)(a), 15 og 17-21 í flutningfyriskipaniniog tey fylgiskjøl til flutningsfyriskpanina, sum hesar ásetingarnar.vísa til
+Stk. 2. Feløg o.a. (løgfrøðiligir persónar) kunnu revsast eftir kapittul 5 í revsilógini.
