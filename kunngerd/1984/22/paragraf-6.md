@@ -1,0 +1,1 @@
+§ 6. Sjómansskatturin, verður býttur soleiðis, at landskassin fær 60% og avvarðandi kommuna 40% av avroknaða skattinum. Barnafrádráttur verður drigin av landskassans parti og kommununnar parti svarandi til barnafrádráttin sambært galdandi skattalóggávu.
