@@ -1,0 +1,3 @@
+## Eftirlitsstað og eftirlitsfólk
+§ 10. Fiskifør skulu sigla til russiskt eftirlitsstað, áðrenn fiskiskapurin í russiskum sjógvi byrjar, og tá fiskiskapurin í russiskum sjógvi endar. Skiparin skal senda fráboðan sambært skjali 1 til russiska marknaverjueftirlitið um, at siglt verður til eftirlitsstað.
+Stk. 2. Fiskifør, sum veiða í russiskum sjógvi, skulu hava eftirlitsfólk frá russiska marknaverjueftirlitinum umborð. Fiskifarið skal sigla til russiskt eftirlitsstað ella á aðra knattstøðu í russiskum sjógvi sambært góðkenning frá russiska marknaverjueftirlitinum at taka ímóti og seta av eftirlitsfólk.
