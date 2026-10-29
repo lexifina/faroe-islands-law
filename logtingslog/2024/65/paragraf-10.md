@@ -1,0 +1,1 @@
+§ 10. Er ikki hægri revsing ásett í aðrari lóggávu, verður við sekt revsaður tann, sum tilætlað ella av grovum ósketni gevur ófullfíggjaðar, skeivar ella villleiðandi upplýsingar ella tigur um viðurskifti, sum hava týdning fyri mál eftir §§ 2, 5 ella 6, sum upplýsingarnar verða savnaðar til.
