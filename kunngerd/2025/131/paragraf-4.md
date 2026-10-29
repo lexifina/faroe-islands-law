@@ -1,0 +1,2 @@
+## Loyvisbrøv til útlendsk skip
+§ 4. Útlendsk skip, sum eru úr einum landi, ið hevur tikið undir við The International Convention on Civil Liability for Oil Pollution Damage, 1992, kunnu hava loyvisbræv, ið málførur myndugleiki í tí landinum hevur givið út. Loyvisbrævið skal tó vera í samsvari við krøvini í grein VII í The International Convention on Civil Liability for Oil Pollution Damage, 1992, ella grein VII í The International Convention on Civil Liability for Oil Pollution Damage, 1969.

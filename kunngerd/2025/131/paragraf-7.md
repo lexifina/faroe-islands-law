@@ -1,0 +1,1 @@
+§ 7. Útlendsk skip úr einum landi, ið ikki hevur tikið undir við The International Convention on Civil Liability for Oil Pollution Damage, 1992, kunnu hava loyvisbræv, ið málførur myndugleiki í einum landi, sum hevur tikið undir við nevnda sáttmála, hevur útskrivað. Loyvisbrævið skal tó vera í samsvari við grein VII í nevnda sáttmála.

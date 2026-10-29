@@ -1,0 +1,3 @@
+§ 11. Sjóvinnustýrið sendir avrit av útskrivaða loyvisbrævinum til skipaeigara ella til tann, ið vegna eigaran hevur søkt um loyvisbræv. Fyri útlendsk skip verður avrit av útskrivaða loyvisbrævinum eisini sent skrásetingarmyndugleikanum í viðkomandi landi.
+Stk. 2. Skipaeigari, ið hevur fingið loyvisbræv, hevur skyldu at lata Sjóvinnustýrinum loyvisbrævið aftur beinanvegin, tá tryggingin ella trygdin fellur burtur, ella tá ið loyvisbrævið er farið úr gildi.
+Stk. 3. Henda broytingar í tryggingini ella trygdini, sum kunnu ávirka gildi loyvisbrævsins, hevur skipaeigarin, so skjótt hann fær kunnleika til hetta, skyldu at boða Sjóvinnustýrinum frá hesum.
