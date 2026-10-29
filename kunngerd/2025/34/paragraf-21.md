@@ -1,0 +1,3 @@
+§ 21. Um matvørur skulu goymast kalt, ella um tær skulu borðreiðast kaldar, skulu tær skjótast gjørligt eftir møguliga hitaviðgerð ella, um tær ikki verða hitaviðgjørdar, eftir endaliga tilgerð, verða niðurkøldar til ein temperatur, sum ikki kann elva til heilsuvanda.
+Stk. 2. Matvørur skulu tiðna soleiðis, at minst møguligur váði er fyri gróðrarlíkindum av eiturevnum ella sjúkuelvandi smálívverum.
+Stk. 3. Matvørur skulu tiðnast fyri seg í temperaturi, sum ikki kann elva til heilsuvanda. Væta, sum rennur frá matvøruni, og sum kann elva til heilsuváða, skal leiðast burtur. Matvøra, sum er tiðnað, skal viðgerast soleiðis, at minst møguligur váði er fyri gróðrarlíkindum av eiturevnum ella sjúkuelvandi smálívverum.

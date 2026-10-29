@@ -1,0 +1,4 @@
+## Persónligt reinføri
+§ 16. Øll, sum arbeiða á støðum, har matvørur verða handfarnar, skulu hava gott persónligt reinføri og bera ein hóskandi, reinan og, um neyðugt, verjandi klædnabúna.
+Stk. 2. Eingin, sum hevur ella ber sjúku, sum kann berast gjøgnum matvørur, ella sum t.d. hevur sár við ígerð, vanlig sár ella leyst lív, má handfara matvørur ella hava atgongd at einum stað, har matvørur verða handfarnar, um nakar váði er fyri beinleiðis ella óbeinleiðis dálking. Starvsfólk við sjúkueyðkennum, sum kann koma í samband við matvørur, skal beinanvegin boða virkisleiðsluni frá sjúku ella sjúkueyðkennum og, tá tað er gjørligt, um orsøkina.
+Stk. 3. Matvøruframleiðari skal tryggja, at starvsfólk eru gjølliga kunnað um týdningin av persónligum reinføri, og at tey hava fingið nøktandi upplæring í hesum.

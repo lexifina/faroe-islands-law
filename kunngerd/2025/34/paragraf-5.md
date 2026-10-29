@@ -1,0 +1,1 @@
+§ 5. Matvøruframleiðari skal tryggja, at Heilsufrøðiliga starvsstovan á kravdan hátt fær, og støðugt hevur, dagførdar upplýsingar um allar virkiseindir, sum framleiða, viðgera og marknaðarføra matvørur.
