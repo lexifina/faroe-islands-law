@@ -1,0 +1,1 @@
+§ 2. Reiðarin hevur ábyrgd av, at gjørdar verða skrivligar mannagongdir fyri rímuliga, munadygga og skjóta viðgerð av klagum frá sjófólkum um viðurskifti viðvíkjandi hýruuppgerðini, skipstænastuni og starvsviðurskiftunum, umframt tilhaldsrúmum, frítíðarhentleikum, heilsutrygd, kosti og røkt umborð.

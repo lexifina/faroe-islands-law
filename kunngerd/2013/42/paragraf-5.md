@@ -1,0 +1,1 @@
+§ 5. Í klagumannagongdini skulu vera reglur um verju móti vandanum fyri persónsjagstran. Persónsjagstran fevnir um eina og hvørja neiliga atgerð frá manningini ella øðrum við tilknýti til skipið ella reiðaríið, ið er grundað á eina klagu, sum ikki bert hevur til endamáls at skaða reiðaríið ella ein starvssettan.
