@@ -1,0 +1,2 @@
+§ 9. Løgmaður eins væl og løgtingið kann gera av at reisa ákæru viðvíkjandi broti á hesa løgtingslóg, og ger samstundis av, hvør skal virka sum ákæri vegna hitt almenna í málinum.
+Stk. 2. Tann av løgmanni ella løgtinginum tilnevndi ákærin hevur somu heimildir og skyldur í málinum sum fútin/statsadvokaturin/ríkisákærin/løgmálaráðharrin hevur eftir rættargangslógini, men er ikki undirgivin nøkrum ríkismyndugleika.

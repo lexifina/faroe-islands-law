@@ -1,0 +1,2 @@
+§ 5. Løgmaður ella landsstýrismaður verður revsaður, um hann tilætlað ella av grovum ósketni skúgvar til viks tær skyldur, sum liggja á honum sambært løgtingslóg um stýrisskipan Føroya ella lóggávuni annars ella starvsinnihaldi hansara.
+Stk. 2. Ásetanin í stk. 1 er eisini galdandi, um so er, at løgmaður ella landsstýrismaður gevur løgtinginum skeivar ella villleiðandi upplýsingar, ella um hann, tá løgtingið viðger eitt mál, tigur við upplýsingum, sum eru av stórum týdningi fyri tingsins meting av málinum.

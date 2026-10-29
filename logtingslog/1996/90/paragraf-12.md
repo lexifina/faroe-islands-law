@@ -1,0 +1,1 @@
+§ 12. Henda lóg fær gildi 29. juli 1996. Samstundis fer úr gildi løgtingslóg nr. 102 frá 23. juni 1992 um ábyrgd landsstýrismanna. Brot, ið eru framd áðrenn henda lóg kemur í gildi, verða viðgjørd eftir higartil galdandi lóggávu.
