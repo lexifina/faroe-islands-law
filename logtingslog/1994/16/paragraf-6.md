@@ -1,0 +1,1 @@
+§ 6. Hald skal leggjast á vinning frá gerðum, ið eru revsiverdar sambært § 1. § 75, stk. 1, 2. pkt., § 76, stk. 1 og stk. 3-5 og § 77, stk. 1 og 3, eru eisini galdandi viðvíkjandi inndrátti eftir hesi ásting.

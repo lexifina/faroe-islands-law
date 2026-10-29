@@ -1,0 +1,1 @@
+§ 3. Ásetingarnar í § 1 eru ikki galdandi fyri vørur við uppruna uttan fyri Irak, ið verða fluttar gjøgnum Irak ella bráðfeingis eru í Irak bert fyri at verða sendar víðari í samsvari við tey stevnumið, sum góðkenningarnevndin hjá Trygdarráð Sameindu Tjóða ásetur.

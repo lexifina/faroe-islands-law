@@ -1,0 +1,1 @@
+§ 4. Endurgjaldskrøv frá myndugleikum í Irak, frá løgfrøðiligum og likamligum persónum í Irak ella krøv teirra vegna í sambandi við sáttmálar ella onnur tiltøk, hvørs fremjing ásetingarnar í hesi lóg hava forðað, kunnu ikki setast.
