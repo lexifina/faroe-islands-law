@@ -1,0 +1,2 @@
+§ 1. Tann, sum á egna grund ella leigaða grund ella á grund hjá leigara av bygningum byggir til sølu ella útleigu, skal rinda avgjald av tí arbeiði við verkætlanina og byggingina, sum verður gjørt av viðkomandi sjálvum og starvsfólki hansara, og av tí tilfari, sum verður nýtt til hetta endamál.
+Stk. 2. Somuleiðis skal avgjald rindast av tí arbeiði, ið verður gjørt av starvsfólki hjá honum, ið byggir til egna nýtslu ella til nýtslu hjá virkinum.

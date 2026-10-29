@@ -1,0 +1,1 @@
+§ 4. Avgjaldsskylduga virðið er vanligi prísurin hjá virkinum við sølu av viðkomandi vøru ella tænastu. Er eingin vanligur søluprísur, er avgjaldsskylduga virðið ein roknaður søluprísur, ið skal fevna um allar útreiðslur og vinning, ið vanliga eru partar av avgjaldsskylduga virðinum fyri vørur ella tænastur av viðkomandi slagi.
