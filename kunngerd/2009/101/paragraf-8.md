@@ -1,0 +1,1 @@
+§ 8. Arbeiðsloysisskipanin kann krevja neyðugar upplýsingar í sambandi við viðgerð av umsóknum um arbeiðsloysisstuðul. Arbeiðsloysisskipanin kann krevja at hesar upplýsingar verða váttaðar av øðrum t.d. reiðara ella skipasmiðju.
