@@ -1,0 +1,1 @@
+§ 2. §§ 3, 4, 4 a, 4 b og 5 og § 8, stk. 2 í løgtingslóg nr. 10 frá 8. januar 1993 um samsýning og eftirløn landsstýrismanna v.m. fara úr gildi. Greinirnar hava tó framvegis gildi fyri landsstýrismenn og hjúnafelaga ella børn, sum sita, ella hava sitið áðrenn úrgildissetanardagin. Eftirlønaraldurin hjá landsstýrismanninum hækkar tó ikki eftir nevnda dag.
