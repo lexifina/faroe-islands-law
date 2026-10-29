@@ -1,0 +1,10 @@
+## Alifirðir o.a. [^1]
+§ 6. a. [^1] Alifirðir eru tey sjóøki, vík, sund ella fjørður, sum sbrt. kunngerð frá landsstýrismanninum kunnu verða nýtt til aling á sjónum av matfiski av laksi og sílum.
+Stk. 2. Landsstýrismaðurin kann eisini í kunngerð áseta, hvørji onnur landaøkir og sjóøkir kunnu verða nýtt til aling.
+Stk. 3. Ein alifjørður verður ásettur sum eitt nærri geografiskt avmarkað sjóøki, vík, sund ella fjørður, og skal ásetast við atlitum til fyribyrging og niðurberjing av sjúkum hjá fiski, umframt atlitum til m.a. umhvørvi og annað brúk av økinum.
+Stk. 4. Áðrenn kunngerð um áseting av alifirðum ella broyting av alifirðum verður sett í gildi, skulu viðkomandi partar verða hoyrdir.
+Stk. 5. Eftir hesi løgtingslóg er laksaaliloyvi eitt loyvi til aling á sjónum av matfiski av laksi og sílum á alifirðum sbrt. stk. 1.
+Stk. 6. Á einum øki á landi, sum liggur við ein alifjørð, kann bert verða givið loyvi til framleiðslu av laksi ella øðrum fiskasløgum, um hetta virksemið ikki er til ampa fyri virksemið sambært laksaaliloyvi.
+Stk. 7. Á einum alifirði til aling á sjónum av matfiski av laksi og sílum kann verða givið loyvi til at ala onnur djóra- og plantusløg, sum liva í vatni ella sjógvi, enn laks og síl, um hetta virksemið ikki er til ampa fyri virksemið sambært laksaaliloyvi.
+Stk. 8. Um loyvi, sum verður givið sbrt. stk. 7 til at ala onnur djóra- og plantusløg, sum liva í vatni ella sjógvi, enn laks og síl, ikki hevur verið brúkt í tvey fylgjandi ár, fellur tað aftur til landið. Landsstýrismanninum verður givin heimild til í serligum førum at víkja frá 2 ára tíðarfreistini, sum ásett í 1. pkt.
+Stk. 9. Fjórða hvørt ár, áðrenn 1. november, leggur landsstýrismaðurin fyri Løgtingið frágreiðing, sambært § 51, stk. 4 í Tingskipan Løgtingsins, um støðuna í alivinnuni, og hvørjar ætlanirnar eru fyri víðari menning av vinnuni í mun til aling á sjógvi og landi, útlendskan ognarskap, um metingarnar av vistfrøðiligu støðuni í firðunum og aðrar viðkomandi tættir. Fyrsta frágreiðing verður løgd fyri Løgtingið áðrenn 1. november 2020.

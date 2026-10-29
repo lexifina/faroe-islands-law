@@ -1,0 +1,5 @@
+## Upplýsingar- og kanningarskylda
+§ 18. Tann, sum rekur virksemi, ið er fevnt av lógini, hevur skyldu til at veita landsstýrismanninum upplýsingar, skjøl, tilfar til royndir og annað, sum er neyðugt fyri at landsstýrismaðurin kann røkja sínar uppgávur sambært lógini.
+Stk. 2. Landsstýrismaðurin kann áleggja tí, sum rekur virksemi, ið er fevnt av lógini, at gera kanningar, sum eru neyðugar fyri at landsstýrismaðurin kann røkja sínar uppgávur sambært lógini.
+Stk. 3. Landsstýrismaðurin kann í kunngerð áseta nærri reglur um upplýsingar- og kanningarskylduna í stk. 1 og 2, og undir hesum at ávísar skyldur skulu útinnast regluliga.
+Stk. 4. [^1] [^5] Alifeløg, sum hava laksaaliloyvi, skulu fyri hvørt aliøki sær skráseta og boða frá til Heilsufrøðiligu starvsstovuna, um nakað havsúgdjór ótilætlað doyr í sambandi við alivirksemi. Fráboðast skal slag av og tal á havsúgdjóri. Fráboðast skal eina ferð um árið til Heilsufrøðiligu starvsstovuna í tí sniði, sum starvsstovan ásetur. Heilsufrøðiliga starvsstovan skal lata upplýsingarnar víðari til granskingarstovnar og myndugleikar, sum biðja um tað.

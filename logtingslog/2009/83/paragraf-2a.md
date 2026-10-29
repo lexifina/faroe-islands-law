@@ -1,0 +1,1 @@
+§ 2 a. [^1] Rættindi, sum verða latin til alivirksemi sambært hesi løgtingslóg, eru avmarkað rættindi. Rættindini eru grundað á aliloyvið, eru avmarkaði av innihaldinum í loyvinum og ta til eina og hvørja tíð galdandi lóggávu.

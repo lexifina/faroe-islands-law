@@ -1,0 +1,5 @@
+## Dagbøtur
+§ 22. Til tess at tryggja, at ásetingar í lógini ella ásetingar, settar við heimild í lógini, verða framdar, kann landsstýrismaðurin taka avgerð um dagbøtur mótvegis tí, sum ábyrgdina hevur. Tað kann eisini takast avgerð um dagbøtur, sum fella til gjaldingar fyri hvørt brot. Avgerð um dagbøtur kann ásetast, samstundis sum álegging verður givin eftir § 21 ella seinni.
+Stk. 2. Dagbøturnar byrja at renna, um so er, at tann, sum ábyrgdina hevur, ikki heldur freistina at rætta viðurskiftini, sum landsstýrismaðurin hevur ásett, og tær renna so leingi ólógligu viðurskiftini standa við. Dagbøturnar renna tó ikki, um so er, at rætting av viðurskiftunum ikki er møgulig, orsakað av umstøðum, sum ikki kunnu tilroknast ábyrgdarhavandi.
+Stk. 3. Har fleiri ábyrgdast eftir avgerðini um dagbøtur, hefta tey ábyrgdarhavandi samhaldsfast fyri, at dagbøturnar verða rindaðar. Dagbøtur eru tvangsgrundarlag fyri útleggi. Landsstýrismaðurin kann fráfella dagbøtur.
+Stk. 4. Landsstýrismaðurin kann í kunngerð áseta nærri reglur um dagbøtur, herundir stødd á dagbótum, hvussu leingi tær kunnu renna, áseting av dagbótum og fráfall av tilkomnum dagbótum.
