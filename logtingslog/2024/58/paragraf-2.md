@@ -1,0 +1,1 @@
+§ 2. Skipast kann fyri undirvísing í móðurmáli og fyri annaðmálsundirvísing í øðrum máli enn føroyskum fyri næmingar, sum eru fevndir av hesi løgtingslóg, og sum hava annað mál enn føroyskt sum sítt fyrsta mál.
