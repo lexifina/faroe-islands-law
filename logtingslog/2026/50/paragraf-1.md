@@ -1,0 +1,2 @@
+§ 1. Landsstýrisfólkinum verður heimilað at fara undir fyrra byggistig í verkætlan um at byggja tvey sambýlir í Miðvági til fólk við ávikavist menningartarni og samansettum avbjóðingum, harímillum autismu, og til fólk við sálarligum og sosialum avbjóðingum. Fyrra byggistig fevnir um at dagføra og umvæla ognirnar á Leitisvegi 70.
+Stk. 2. Útreiðslurnar til fyrra byggistig kunnu í mesta lagi vera 20,9 mió. kr.
