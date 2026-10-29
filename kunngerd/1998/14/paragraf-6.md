@@ -1,0 +1,1 @@
+§ 6. Er akfar sambært § 1 burturav nýtt til uttanlandsflutning síðan 1. juli 1996, kann akfarið verða skrásett til uttanlandsflutning frá 1. juli 1996 at rokna, um skrásetingin fer fram innan 1 mánað eftir, at hesar reglur eru ásettar, og verða gjøldini tá javnað samsvarandi.

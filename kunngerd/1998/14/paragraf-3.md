@@ -1,0 +1,1 @@
+§ 3. Tá akfar sambært § 1 er skrásett til uttanlandsflutning, skal orðið “UTTANLANDSFLUTNINGUR” standa í teiginum “Viðmerkingar” á skrásetingarskjali akfarsins. Eisini skal á sjónligum stað, aftan fyri á akfarinum, vera frámerki við orðingini “UTTANLANDSFLUTNINGUR”. Stavirnir skulu vera 7 cm til hæddar og 1,5 cm tjúkkir og skulu á liti týðuliga skilja seg frá botninum.
