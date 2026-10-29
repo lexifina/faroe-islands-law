@@ -1,0 +1,3 @@
+§ 2. Skip kunnu provianterast við toll- og avgjaldsfríum vørum til nýtslu umborð og til sølu til ferðafólk v.m., tá farið verður í fremmanda havn uttan fyri tað føroyska tolløkið.
+Stk. 2. Fiskifør, bæði føroysk og útlendsk, ið fara til fiskiskap á fjarleiðum ella í minsta lagi í 30 samdøgur uttan fyri tað føroyska tolløkið, og útlendsk fiskifør, ið fara til fiskiskap í eitt styttri tíðarskeið, uttan fyri tað føroyska tolløkið, kunnu provianterast við toll- og avgjaldsfríum vørum til nýtslu umborð.
+Stk. 3. Toll- og Skattstova Føroya kann nokta proviantering við toll- og avgjaldsfríum vørum, tá ið høvuðsendamálið við eini rutu ella einum einstøkum túri ikki er at hava ella varðveita ferðasamband í vanligari merking ímillum Føroyar og útlond.

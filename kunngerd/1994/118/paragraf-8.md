@@ -1,0 +1,2 @@
+§ 8. Toll- og avgjaldsfríar vørur kunnu krevjast undir tollstongsul, tá ið skip ella flogfør eru í føroyskum tolløki. Kann tollstongsul ikki fáast til høldar á fullgóðan hátt, kann verða skipað so fyri til trygd fyri toll- og avgjaldsfríu vøruni, harímillum at tollvakt verður sett við skipið ella flogfarið fyri egnan kostnað.
+Stk. 2. Skiparin ella ánarin á skipinum ella flogfarinum ábyrgist fyri tolli og avgjøldum á írestandi vøru og provianti, sum avhendast, goymist, brúkast ella útflytist úr tí føroyska tolløkinum, í stríð við reglurnar í hesi kunngerð.

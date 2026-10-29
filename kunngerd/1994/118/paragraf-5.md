@@ -1,0 +1,1 @@
+§ 5. Proviantering av flogførum kann fara fram við eini hóskandi nøgd eftir meting Toll- og Skattstovunnar ásett við atliti til verandi proviantnøgdina umborð, túralongd og hvussu stórt manningar- og ferðafólkatalið er.
