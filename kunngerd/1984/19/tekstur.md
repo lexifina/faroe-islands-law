@@ -1,0 +1,1 @@
+Við heimild í § 8 í løgtingslóg nr. 87 frá 1. september 1983 um áseting av skatti til landskassan, hevur landsstýrið fyrisett: Løgtingslóg nr. 87 frá 1. september 1983 um áseting av skatti til landskassan kemur í gildi 1. apríl 1984.
