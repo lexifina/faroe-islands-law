@@ -1,0 +1,1 @@
+§ 6. Myndugleikin hevur ábyrgd av at ávaringarskipanin og peilingarskipanin einans verður nýtt til endamálið, og at nýtslan annars er í tráð við lóggávu á økinum, undir hesum persónsupplýsingarlóggávu.

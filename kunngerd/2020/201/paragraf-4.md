@@ -1,0 +1,1 @@
+§ 4. Fallávaringarskipan og herindisávaringarskipan sambært § 2, nr. 2 er skipan, ið umvegis sensorar gevur boð um rørslu ella óvirkni, undir hesum rørslu í einum ávísum øki, ella sum gevur boð umvegis persónsbornar sensorar, undir hesum epilepsiávaringarskipan og fallmottu.
