@@ -1,0 +1,1 @@
+§ 4. Fyri umsjón av mikrobiologiskari góðsku á fiskavøru, á øðrum virkjum enn laksavirkjum og virkjum, ið framleiða sild/ makrel til Tollsamgonguna, verður tikið eitt gjald upp á kr. 5.500,00 fyri hvørt sýni.

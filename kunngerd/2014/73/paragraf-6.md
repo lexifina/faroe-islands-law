@@ -1,0 +1,1 @@
+§ 6. Fyri dataviðgerð og samlaða árliga frágreiðing av kanningum fyri sild, makrel, laks og annan fisk lýst í §§ 3-5 verður tikið eitt gjald upp á kr. 13.600,00 frá hvørjum virki, ið er á listanum yvir matvøruvirki, ið kunnu útflyta til Tollsamgonguna.

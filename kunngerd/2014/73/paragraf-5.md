@@ -1,0 +1,2 @@
+§ 5. Fyri umsjón av dálkingarevnum í fiskavøru, ið verður útflutt til Tollsamgonguna, laksur undantikin, verður tikið eitt gjald upp á kr. 11,00 fyri hvørt tons, sum verður útflutt frá matvøruvirkjum í tíðarskeiðinum 1. januar til og við 31. desember. Gjaldið verður gjørt upp við støði í nøgdini av útflutninginum kalendaraárið frammanundan.
+Stk. 2. Fyri gjaldið í 2014 verður útflutta nøgdin í 2012 brúkt sum grundarlag o.s.fr.

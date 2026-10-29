@@ -1,0 +1,1 @@
+§ 1. Kunngerðin fevnir um rindan av gjaldi fyri umsjón, íroknað eftirlit, løggilding, skráseting, góðkenning, fráboðan og kanningar í sambandi við, at matvørur verða útfluttar til Russland, Kazakstan og Hvítarussland, t.e. Tollsamgongan, og Kina.
