@@ -1,0 +1,1 @@
+§ 9. [^2] Avgerðir hjá TAKS kunnu kærast til Føroya Kærustovn. Kæran skal vera skrivlig og grundgivin. Saman við kæruni skal fylgja við avrit av kærdu avgerðini umframt avrit av teimum skjølum, sum kærarin metir vera av týdningi fyri avgerðina. Freistin at kæra er 4 vikur eftir, at kærarin hevur fingið fráboðan um avgerðina.

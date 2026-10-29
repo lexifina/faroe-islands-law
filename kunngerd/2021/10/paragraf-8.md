@@ -1,0 +1,1 @@
+§ 8. Endurgoldið meirvirðisgjald skal rindast aftur í landskassan eftir ásetingunum í kapittul 7 í kunngerð um lutfalsligan frádráttarrætt fyri meirvirðisgjald og um javnan av inngangandi avgjaldi av íløgugøgnum, um íløgan verður seld ella ikki longur verður nýtt til ætlaða virksemið og til almannagagnligt frítíðarvirksemi.

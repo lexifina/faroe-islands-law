@@ -1,0 +1,1 @@
+§ 5. Meirvirðisgjaldið verður endurrindað eftir umsókn, sum verður send TAKS. Fyri at kunna góðkenna umsóknina, skal TAKS, saman við umsóknini, hava góðkenningar frá grannskoðara og kommunu, sbrt. §§ 3 og 4.
