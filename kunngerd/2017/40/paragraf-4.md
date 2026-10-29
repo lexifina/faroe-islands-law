@@ -1,0 +1,1 @@
+§ 4. Eitt eintak av hesi kunngerð skal altíð vera til staðar umborð á skipum, 15 metrar og longri, ið eru fevnd av kunngerðini. Hetta kravið kann tó eisini lúkast við at hava elektroniska atgongd til hesa kunngerð umborð.

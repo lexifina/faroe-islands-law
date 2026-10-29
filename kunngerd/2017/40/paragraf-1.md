@@ -1,0 +1,2 @@
+§ 1. Samsvarandi ásetingunum í kap. D I, reglu 1 í skjali 1, er henda kunngerð galdandi fyri ferðamannaskip og skjóttgangandi ferðamannaskip, High Speed Crafts, í innanoyggja sigling uttan mun til, hvørjum flaggi skipið siglir undir.
+Stk. 2. Tær higartil galdandi reglurnar fyri ferðamannaskip og skjóttgangandi ferðamannaskip í innanoyggja sigling eru tó framvegis galdandi fyri verandi skip uttan so, at annað verður ásett í hesi kunngerð.

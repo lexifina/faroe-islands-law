@@ -1,0 +1,1 @@
+§ 2. Øll ferðamannaskip í innanoyggja sigling skulu góðkennast av Sjóvinnustýrinum, áðrenn tey annaðhvørt sum nýbygd ella innflutt úr útlandinum fara í sigling. Sjóvinnustýrið kann sum treyt fyri góðkenningini krevja, at ferðamannaskipið hevur eitt trygdarstøði samsvarandi galdandi reglum.
