@@ -1,0 +1,3 @@
+§ 6. TAKS kann frá vinnufyritøkuni, leiðsluni og frá grannskoðaranum hjá fyritøkuni krevja at fáa tær upplýsingar, sum eru neyðugar fyri at skjalprógva, at krøvini í hesi kunngerð og løgtingslógini eru hildin.
+Stk. 2. Hevur ein vinnufyritøka, ið fær stuðul, ikki hildið sína upplýsingarskyldu eftir hesi kunngerð ella løgtingslógini ella móti betri vitan av órøttum fingið stuðul, skal vinnufyritøkan ella búgvið hjá vinnufyritøkuni gjalda aftur ta upphædd, sum er fingin av órøttum.
+Stk. 3. Vinnufyritøkur og grannskoðarar hava skyldu at lata eftirlitsmyndugleikanum upplýsingar. Stuðulin kann verða kravdur aftur, um upplýsingar ikki verða latnar.
