@@ -1,0 +1,2 @@
+§ 2. Landsstýrismaðurin tilnevnir formannin, sum er fastur limur í nevndini. Formaðurin skal verða løgfrøðingur og verða tilnevndur fyri eitt 4 ár skeið. Á sama hátt tilnevnir landsstýrismaðurin ein varalim fyri formannin.
+Stk. 2. Í seinasta lagi 4 vikur eftir, at kæra er móttikin, tilnevnir formaðurin eitt arbeiðsgevaraumboð og eitt løntakaraumboð í nevndina eftir tilmæli frá avvarðandi yrkisfeløgum.
