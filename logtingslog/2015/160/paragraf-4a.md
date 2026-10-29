@@ -1,0 +1,4 @@
+§ 4 a. [^2] [^3] [^4] Í sambandi við oljuískoyti, hjálparískoyti og orkuískoyti skal inntøka hjá øllum vaksnum persónum í húskinum roknast við í inntøkugrundarlagið.
+Stk. 2. [^3] [^4] Inntøkugrundarlagið, sum oljuískoyti, hjálparískoyti og orkuískoyti er grundað á, er inntøkan nevnd í § 7, stk. 1 og 3.
+Stk. 3. [^3] [^4] Fyri A-inntøku er inntøkutíðarskeiðið, sum oljuískoyti, hjálparískoyti og orkuískoyti verður grundað á, inntøkan seinastu 12 mánaðirnar. Fyri B-inntøku og vinning sambært kapitalvinningsskattalógini er inntøkutíðarskeiðið, ið oljuískoyti, hjálparískoyti og orkuískoyti verður grundað á, inntøkan seinasta álíknaða inntøkuár.
+Stk. 4. [^3] Sum skjalprógv fyri inntøkur sambært stk. 1 verða nýttar eitt nú uppgjørdar sjálvuppgávur og endauppgerðir frá TAKS, kontoavrit frá fyribilsskattaskránni hjá TAKS, váttan frá Studna ella útlendskum stuðulsveitara um lestrarstuðul.

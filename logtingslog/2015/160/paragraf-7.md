@@ -1,0 +1,6 @@
+§ 7. Inntøka er skattskyldug inntøka sambært skattalógini, kapitalvinningsskattalógini og leiguinntøka sambært § 8 a í ásetingarlógini.
+Stk. 2. Sum skjalprógv fyri inntøkur sambært stk. 1 verða nýttar eitt nú uppgjørdar sjálvuppgávur og endauppgerðir frá TAKS, kontoavrit frá fyribilsskattaskránni hjá TAKS, váttan frá Studna ella útlendskum stuðulsveitara um lestrarstuðul.
+Stk. 3. [^8] Aðrar inntøkur, vinningur ella møguligur annar stuðul verður lagt afturat inntøkuni. Barnaviðbót/barnagjald, serligt barnaískoyti til einsamallar uppihaldarar, viðbót til ávísar pensjónistar, røktarviðbót, hjálparviðbót, avlamisviðbót, avlamisveiting, leigustuðul sambært løgtingslóg um leigustuðul og endurgjald fyri varandi mein og ikki-fíggjarligan skaða verður ikki tikið við sum inntøka.
+Stk. 4. Fyri A-inntøku er inntøkutíðarskeiðið, sum familjuískoyti verður grundað á, inntøkan seinastu 12 mánaðirnir. Um inntøkan broytist, kann avgerð um familjuískoyti grundast á eina inntøku frá tí mánaðinum, inntøkan broytist, og inntøkutíðarskeiðið verður roknað frá tí mánaðinum og frameftir.
+Stk. 5. Fyri B-inntøku og vinning sbrt. kapitalvinningsskattalógina er inntøkutíðarskeiðið, ið familjuískoyti verður grundað á, inntøkan seinasta álíknaða inntøkuár.
+Stk. 6. Landsstýrismaðurin ásetir nærri reglur um inntøku sbrt. stk. 4 og 5.

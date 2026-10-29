@@ -1,0 +1,5 @@
+§ 3. [^5] [^6] Fyri stakar uppihaldarar, ið hava eitt inntøkugrundarlag hægri enn 220.000 kr., verður familjuískoytið ásett við at taka ein prosentpart av muninum millum inntøkugrundarlagið og 220.000 kr., og draga hetta tal frá støddini av familjuískoytinum sbrt. § 2, stk. 1 ella stk. 2.
+Stk. 2. [^5] [^6] Fyri uppihaldarar, ið liva í samlívi ella eru hjún, og hava eitt inntøkugrundarlag hægri enn 320.000 kr., verður familjuískoytið ásett við at taka ein prosentpart av muninum millum inntøkugrundarlagið og 320.000 kr., og draga hetta tal frá støddini av familjuískoytinum sbrt. § 2, stk. 3 ella stk. 4.
+Stk. 3. [^6] Prosentparturin sbrt. stk. 1 og 2 er:
+1) 25% fyri 1 ella 2 børn. Fyri støk fellur familjuískoytið burtur, tá inntøkugrundarlagið er oman fyri 290.000 kr. Fyri pør fellur familjuískoytið burtur, tá inntøkugrundarlagið er oman fyri 390.000 kr.
+2) 30% fyri 3 børn ella fleiri. Fyri støk fellur familjuískoytið burtur, tá inntøkugrundarlagið er oman fyri 290.000 kr. Fyri pør fellur familjuískoytið burtur, tá inntøkugrundarlagið er oman fyri 410.000 kr.
