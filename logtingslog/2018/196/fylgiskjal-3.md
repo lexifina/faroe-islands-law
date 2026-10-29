@@ -1,0 +1,6 @@
+## Skjal 3
+Ískoytisavtala millum Danmark og Føroyar frá 10. august 2005
+Í viðurskiftunum millum Danmark og Føroyar skal vera galdandi sum ískoyti vísandi til Sáttmála frá 23. september 1996 millum Norðurlond at sleppa undan, at inntøku- og ognarskattir verða tvískattaðir:
+Grein 1
+Hóast reglurnar í grein 15 og grein 21 skal í viðurskiftunum millum Føroyar og Danmark vera galdandi:
+Samsýning fyri starv umborð á føroyskum skipum, skrásett í Føroysku Altjóða Skipaskránni, ella donskum skipum, skrásett í Donsku Altjóða Skipaskránni, kann bert verða skattað í tí partinum av ríkinum, har skipið hevur tjóðarprógv. Henda áseting verður einans nýtt, um arbeiði verður útint umborð á skipi, ið verður nýtt til endamál, sum lúka treytirnar fyri skattalækking eftir bæði føroyskum reglum fyri arbeiði umborð á skipum, skrásett í Føroysku Altjóða Skipaskránni, eins og eftir donskum reglum fyri arbeiði umborð á skipum, skrásett í Donsku Altjóða Skipaskránni. Tá ið hesar reglur verða nýttar, verða fremmand skip, sum ein persónur heimahoyrandi í Føroyum ella í Danmark leigar eftir sonevndum bareboat-treytum, javnmett við føroysk skip, skrásett í Føroysku Altjóða Skipaskránni, ella donsk skip, skrásett í Donsku Altjóða Skipaskránni. Grein 26, stk. 2 er ikki galdandi fyri samsýning, ið er fevnd av hesi grein.
