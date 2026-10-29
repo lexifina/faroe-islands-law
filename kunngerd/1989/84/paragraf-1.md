@@ -1,0 +1,1 @@
+§ 1. Hvør tann, sum framleiðir heilivág hevur skyldu til at tryggja at dygdin er álítandi í heiliváginum og øllum hjálparevni, (heilivágevni, hjálparevni ella innballing og íløgum), sum nýtt verða við heilivágframleiðsluna.

@@ -1,0 +1,2 @@
+§ 5. Heilivágur á goymslu skal ta góðkendu goymslutíðina lúka tær sundurliðingartreytir, sum guldu, tá ið heilivágurin varð framleiddur.
+Stk. 2. Ráevni, sum nýtt verður til framleiðslu av heilivági, skal lúka sína sundurliðing ta tíð, rávøran verður nýtt. Verður sundurliðing fyri ráevni broytt, er loyvt framhaldandi at nýta ráevni á goymslu, sum lýkur sundurliðingina í goymslutíðini til broytingin verður sett í gildi.

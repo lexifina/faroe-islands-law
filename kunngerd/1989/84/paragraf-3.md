@@ -1,0 +1,3 @@
+§ 3. Tá ið einki annað er góðkent, skal dygdin í heilivági vera eftir løggildum fyrimyndarreglum, sum eru í gildi, tá ið heilivágurin varð framleiddur.
+Stk. 2. Tá ið einki annað er góðkent, skal dygdin í ráevni, sum nýtt verður til framleiðslu av heilivági, vera eftir løggildum fyrimyndarreglum, sum eru í gildi, tá ið ráevnið varð nýtt.
+Stk. 3. Uttan mun til ásetingarnar í stk. 1 og 2, kann dygdin í heilivági, sum ikki er ætlað føroyska marknaðinum, ella í ráevni, sum nýtt verður, tá ið hesin heilivágur verður framleiddur, verða fyriskipað samsvarandi løggildum fyrimyndarreglum, sum fyrisettar eru í innflytaralandinum.
