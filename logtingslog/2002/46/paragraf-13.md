@@ -1,0 +1,2 @@
+§ 13. [^2] Skúlastýrið er ovasta leiðsla í skúlanum og virkar samsvarandi viðtøkum skúlans. Eftir tilmæli skúlaleiðarans staðfestir skúlastýrið virksemið í einum skúlaári, eins og tað skal góðkenna skúlans rakstrarætlan og roknskap.
+Stk. 2. [^2] Tá ið eitt skúlastýri er valt, skal tað boða landsstýrismanninum frá, hvørjir limirnir í skúlastýrinum eru. Broytingar í samansetingini av skúlastýrinum skulu somuleiðis boðast landsstýrismanninum.
