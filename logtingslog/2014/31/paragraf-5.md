@@ -1,0 +1,2 @@
+§ 5. Í seinasta lagi innan 5 vikur eftir yvirtøkuna skal kommunan boða viðkomandi yrkisfelag frá, um so er, at kommunan ikki ynskir at taka við sáttmálunum, sum eru galdandi fyri løntakararnar ella partar av løntakarunum á viðkomandi øki. Verður hetta ikki gjørt, hevur kommunan tikið við sáttmálanum.
+Stk. 2. Um so er, at kommunan ikki ætlar at taka við sáttmálunum og hevur gjørt sáttmálar við onnur fakfeløg um arbeiði av tílíkum slagi, hava løntakarar rætt til samráðingar við kommununa um nýggjan sáttmála.
