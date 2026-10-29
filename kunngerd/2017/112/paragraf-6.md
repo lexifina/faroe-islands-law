@@ -1,0 +1,2 @@
+§ 6. Í sambandi við útboð av frekvensum, sbrt. § 4, stk. 1, nr. 2, kann Fjarskiftiseftirlitið taka avgerð um at áseta treytir fyri fremjan av útboðnum, undir hesum formkrøv og fyritreytir fyri luttøku. Útboðið skal virða meginreglurnar um neutralitet, ikki-diskriminatión, gjøgnumskygni og proportionalitet.
+Stk. 2. Í sambandi við útboð av frekvensum, sbrt. § 4, stk. 1, nr. 2, skal Fjarskiftiseftirlitið almannakunngera, hvørjar treytir, undir hesum gildistíð, sum eru galdandi fyri frekvensloyvi, fevnt av útboðnum.
