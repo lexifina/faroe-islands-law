@@ -1,0 +1,3 @@
+§ 22. Heilsustýrið kann, eftir umbøn frá lækna í føroyska heilsuverkinum, lata læknanum upplýsingar úr genomskránni. Upplýsingarnar kunnu bert latast lækna, um tað er neyðugt fyri at fyribyrgja sjúku, til sjúkuavgerð, sjúkuviðgerð, sjúkrarøkt og til arvafrøðiliga ráðgeving til sjúklingin. Heilsustýrið syrgir fyri, at góðskan á upplýsingunum er nøktandi til kliniskt brúk, áðrenn upplýsingarnar verða latnar lækna.
+Stk. 2. Áðrenn lækni biður um upplýsingar eftir stk. 1, skal læknin tryggja sær, at sjúklingurin hevur givið samtykki og frammanundan er kunnaður um møguligar avleiðingar av samtykkinum.
+Stk. 3. Landsstýrisfólkið kann áseta nærri reglur um treytir fyri latan av upplýsingum til lækna sambært hesi grein.

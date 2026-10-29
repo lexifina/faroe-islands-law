@@ -1,0 +1,1 @@
+§ 9. Ein persónur, ið letur vevnað til Heilsustýrið, hevur somu rættindi, sum ein sjúklingur sambært anordning om ikrafttræden for Færøerne af sundhedsloven, serliga við atliti at luttøku í avgerðum, sjálvsavgerðarrætti til vevnað og íleguupplýsingar, umframt ásetingar um innlit, tagnarskyldu, víðarilatan og innheintan av heilsuupplýsingum.

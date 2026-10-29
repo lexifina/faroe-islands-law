@@ -1,0 +1,1 @@
+§ 18. Kliniski ábyrgdarhavarin av einari ávísari granskingarverkætlan, sum er góðkend av Vísindasiðseminevndini og Heilsustýrinum, hevur rætt til at fáa viðkomandi heilsuupplýsingar frá heilsuverkinum. Hetta til tess at tryggja rættleikan av diagnosum o.a.m.

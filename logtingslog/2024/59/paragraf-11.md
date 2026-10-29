@@ -1,0 +1,1 @@
+§ 11. Atgongd til upplýsingar og vevnað í vevnaðarskrá, diagnosuskrá, genomskrá og ættarbandsskrá til gransking er treytað av, at Vísindasiðseminevndin hevur góðkent granskingarverkætlanina, og at Heilsustýrið hevur gjørt sáttmála við granskaran sambært hesi løgtingslóg.

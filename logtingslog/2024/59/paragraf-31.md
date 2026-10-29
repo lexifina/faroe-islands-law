@@ -1,0 +1,1 @@
+§ 31. Í § 7, stk. 2, 1. pkt. í løgtingslóg nr. 23 frá 6. mars 1998 um barna- og ungdómstannrøkt, sum broytt við løgtingslóg nr. 39 frá 6. mai 2014, løgtingslóg nr. 159 frá 10. desember 2021 og løgtingslóg nr. 77 frá 6. mai 2022, verður “Fólkaheilsustýrið” broytt til: “Heilsustýrið”.

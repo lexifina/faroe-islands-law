@@ -1,0 +1,1 @@
+§ 3. Heilsustýrið kann gera avtalu við granskara í føroyska heilsuverkinum um, at hesin stendur fyri at innsavna og handfara vevnað, tongdur at ættartræi. Sáttmálin er treytaður av, at innsavningin og handfaringin fara fram undir skipaðum og tryggum viðurskiftum, umframt at granskari letur Heilsustýrinum part av innsavnaða vevnaðinum.
