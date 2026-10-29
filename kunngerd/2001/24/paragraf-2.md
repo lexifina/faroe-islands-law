@@ -1,0 +1,5 @@
+## Kapittul 2
+## Innflutningur úr triðjalondum og alment um gjøgnumferð
+§ 2. [^1] Meklarar, flogfeløg, linjuagentar, flutningsfeløg, boðberafeløg o.o. skulu senda marknaeftirlitsstøðini (BIP-inum) farmayvirlit (cargomanifest) fyri eitt og hvørt skip ella flogfar, sum kemur til Føroya. Hetta er galdandi uttan mun til, um lastin ella partar av lastini verða verandi umborð, umskipað, løgd upp, innflutt ella eru í gjøgnumferð. Fráboðanin, sum týðiliga skal eyðmerkja skipið ella flogfarið og hvørja last, talan er um, skal vera marknaðeftirlitsstøðini í hendi í seinasta lagi 24 tímar áðrenn skipið ella flogfarið væntandi kemur.
+Stk. 2. [^1] Matvørur, sum eru partur av lastini, nevnd í stk. 1, skulu frammanundan fráboðast, sbr. § 7, uttan so, at tær verða verandi umborð.
+Stk. 3. [^1] Havnir, har marknaeftirlitsstøð er staðsett, skulu senda marknaeftirlitsstøðini fráboðan um, nær væntað verður, at skipini koma á havnina. Í fráboðanini skulu skipini eyðmerkjast við navni, og upplýsast skal, hvaðani skipini koma.

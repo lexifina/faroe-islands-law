@@ -1,0 +1,1 @@
+§ 26. Matvørur, sum eru goymdar á einari goymslu í einum fríøki ella einari frígoymslu, mugu einans takast út fyri at verða fluttar til eina skipsprovianteringsgoymslu ella til útflutning til eitt triðjaland. Flutningur til eina skipsprovianteringsgoymslu skal fara fram við grundarlagi í eini T1-flutningsmannagongd.

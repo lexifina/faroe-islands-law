@@ -1,0 +1,2 @@
+§ 24. Við matvørum úr djórum, sum ikki lúka treytirnar í galdandi ásetingum fyri innflutning í samhandilsøkið, og sum koma til Føroyar um eitt samhandilsland við útflutningi til triðjaland fyri eyga, skal leggjast veterinereftirlitsváttan, útskrivað í einum samhandilslandi, umframt frumrit av tí ásetta skjalinum.
+Stk. 2. Ábyrgdarhavandi fyri flutninginum skal boða marknaeftirlitsstøðini, sum matvørurnar ynskjast fluttar um, frá, at matvørur koma til eftirlit. Fráboðanin skal gerast innanfyri freistirnar, nevndar eru í § 7, stk. 2.

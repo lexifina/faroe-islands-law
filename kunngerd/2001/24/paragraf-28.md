@@ -1,0 +1,1 @@
+§ 28. Flutningsfør, kør ella bingjur, sum hava verið nýtt til flutning ella goymslu av matvørum, nevndar eru í hesum kapitli, skulu vaskast væl og sóttreinsast, áðrenn tey aftur mugu nýtast til flutning ella goymslu av matvørum.

@@ -1,0 +1,1 @@
+§ 25. Allar útreiðslur, herímillum útreiðslur til umsjón og eftirlit, sum standast av §§ 22-24, skulu gjaldast av tí, sum hevur ábyrgdina av farminum ella av umboðnum hjá viðkomandi uttan møguleika fyri at fáa tær endurgoldnar av tí almenna.

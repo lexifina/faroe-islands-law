@@ -1,0 +1,1 @@
+§ 16. Vørur, sum sambært ES-fyriskipan nr. 2913/92 av tollávum eru góðkendar til aðra nýtslu ella aðra ætlan enn ásett í §§ 8 og 15, skulu, uttan so at tær verða vístar burtur ella burturbeindar, gjøgnum eitt samleikaeftirlit og eitt fysiskt eftirlit til tess at staðfesta, um tær lúka treytirnar fyri innflutningi ella ei.

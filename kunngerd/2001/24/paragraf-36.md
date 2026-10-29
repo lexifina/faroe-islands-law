@@ -1,0 +1,1 @@
+§ 36. Embætisdjóralæknin kann kalla aftur tilnevningina av tollgoymslum, frígoymslum, skipsprovianteringsgoymslum, herímillum serliga góðkendum provianteringsgoymslum ella goymslum í fríøki, sbrt. § 4.

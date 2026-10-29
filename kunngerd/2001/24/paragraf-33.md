@@ -1,0 +1,6 @@
+§ 33. Innflutningur av matvørum úr djórum úr øðrum londum enn samhandilslondunum, so sum vørusýnir til analysu, nýtslu í sendistovum, v.m. í Føroyum, má bert fara fram, um so er, at viðkomandi matvørur hava uppruna í triðjalondum ella triðjalandspørtum, sum nevnd eru í fylgiskjali 5, 7, 9 – 11 ella 13 – 15 fyri viðkomandi matvøru, og um so er, at matvørurnar kunnu innflytast eftir nevndu viðkomandi fylgiskjølum ella hava uppruna í Grønlandi ella Íslandi. Matvørur, sum hava verið hitaviðgjørdar í luftøttum afturlatnum íløtum við einum F0-virði uppá í minsta lagi 3,00 (heilkonserves), umframt hunangur, kunnu innflytast úr øllum triðjalondum.
+Stk. 2. Tær í stk. 1 nevndu vørusýnir skulu vísast fram á marknaeftirlitsstøðini(-unum). Innflytarin skal skrivliga mótvegis embætisdjóralæknanum vátta, at hann hevur ábyrgdina av:
+1) at vørusýnin verður flutt beinleiðis og uttan umferming til ætlanarstaðið,
+2) at vørusýnið einans verður at nýta til tilskilaða endamálið og ikki fer í umferð ella verður útflýggjað,
+3) at innpakningur og leivdir av vørusýninum verða fyribeind og brend, og
+4) at lutir, sum vørusýnið hevur nortið við, og umhvørvið luturin hevur verið í, verður væl reinsað og sóttreinsað.

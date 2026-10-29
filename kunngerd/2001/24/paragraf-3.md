@@ -1,0 +1,6 @@
+§ 3. Matvørur úr djórum við uppruna í einum triðjalandi mugu ikki flytast inn til Føroyar, uttan so at tær hava verið undir veterinerum eftirliti á eini góðkendari marknaeftirlitsstøð við ytra mark samhandilsøkisins.
+Stk. 2. Reglurnar í kapitlunum 2, 3, 7 og 8 eru eisini galdandi fyri matvørur úr triðjalondum, sum verða innfluttar til Føroya og sendar víðari til eitt samhandilsland.
+Stk. 3. Afturat vanliga eftirlitinum, sbr. § 1, stk. 2, skal kannast, hvørt upplýsingarnar í heilsuváttanunum ella djóralæknaváttanunum ella øðrum skjølum, tá talan er um innflutning, veita ta trygd, sum kevst eftir galdandi reglum.
+Stk. 4. Tá vørur úr djórum koma í bingjum, skal kannast, hvørt blýinnsiglini, sum embætisdjóralæknin (ella viðkomandi myndugleikin) hevur sett á, eru heil, og at upplýsingarnar, sum standa á teimum, svara til tær, sum standa í skjalinum ella váttanini, sum fylgir við vøruni.
+Stk. 5. Tá talan er um innpakkaðar vørur, ella vørur í pakningi, skal serliga merkingin, sum er kravd í veterinerforskriftunum, kannast.
+Stk. 6. Embætisdjóralæknin skal leggja hald á matvørur, sum, hóast stk. 1, ikki hava verið undir veterinerum eftirliti við ytra markið, og skal embætisdjóralæknin geva boð um, at matvørurnar verða sendar aftur ella fyribeindar.

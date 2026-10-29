@@ -1,0 +1,12 @@
+## Kapittul 6
+## Endurinnflutningur, innflutningur hjá privatum, vørusýnir, v.m.
+§ 31. Matvørur úr djórum, sum eru burturvístar úr einum triðjalandi, kunnu bert endurinnflytast til Føroyar um hetta verður gjørt um eina góðkenda marknaeftirlitsstøð í Føroyum og eftir góðkenning frá embætisdjóralæknanum frammanundan. Vørusendingin skal eftirkannast veterinert, og fylgjandi skal verða víst embætisdjóralæknanum:
+1) upprunaeintakið ella eitt av myndugleikanum í triðjalandinum váttað avrit av tí útflutningsváttan, sum fylgdi við matvørunum, tá tær vórðu fluttar út,
+2) ein váttan frá myndugleikanum í triðjalandinum, sum gevur vissu fyri, at treytirnar fyri goymslu og flutningi av matvørunum eru loknar, og har tað er útgreinað, at tær burturvístu matvørurnar ikki hava verið handfarnar. Er talan um vøru, sum er avvíst av myndugleikunum, skal avvísingin vera grundað, og
+3) tá talan er um ikki innsiglaðar bingjur, eina váttan frá flutningsfyritøkuni um, at innihaldið ikki hevur verið nortið ella tikið út (koyrt av).
+Stk. 2. Matvørurnar skulu gjøgnum eitt skjalaeftirlit og samleikaeftirlit og, tá illgruni er um at galdandi reglur ikki eru fylgdar, eisini fysiskt eftirlit.
+Stk. 3. Stk. 1 er eisini galdandi fyri flutning innaftur til eitt samhandilsland um Føroyar.
+Stk. 4. Tær í stk. 1 nevndu matvørurnar skulu eftir veterineru eftirkanningina flytast beinleiðis til fyritøkuna, sum er tilskilað í loyvinum. Loyvi til endurinnflyting til eitt samhandilsland um Føroyar er treytað av, at ábyrgdarhavandi fyri vørusendingini hevur sæð til, at málsráðandi myndugleikarnir í móttøkulandinum skrivliga hava givið embætisdjóralæknanum loyvi til endurinnflytingina.
+Stk. 5. Endurinnflutningur av eini vørusending við føroyskum matvørum ella matvørum úr samhandilsøkinum, sum eru burturvístar í einum triðjalandi, kann ikki verða noktaður, um myndugleikin, sum hevur skrivað upprunaváttanina, hevur játtað afturtøkuna av vørusendingini, og treytirnar í stk. 1 og 4 eru loknar.
+Stk. 6. Flutningur, nevndur í stk. 5, skal fara fram uttan umferming í einum flutningsfari ella í einum ílati, sum er vatntætt, eyðmerkt og innsiglað, soleiðis at seglið verður brotið beinanvegin flutningsfarið ella ílatið verður latið upp. Vørusendingin skal framhaldandi vera tollafturlatin fram til ætlanarstaðið.
+Stk. 7. Allar útreiðslur, herímillum umsjónar- og eftirlitsútreiðslur, sum standast av hesi grein, skulu berast av tí, ið hevur ábyrgdina av farminum ella av umboðnum hjá viðkomandi, uttan møguleika fyri endurgjaldi frá tí almenna.

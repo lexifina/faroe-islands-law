@@ -1,0 +1,1 @@
+§ 4. Fyritøkur, sum verða nýttar sum tollgoymslur, frígoymslur, skipsprovianteringsgoymslur, herímillum serliga góðkendar provianteringsgoymslur og goymslur í fríøki, skulu góðkennast av embætisdjóralæknanum, áðrenn matvørur úr djórum kunnu leggjast á goymslu.

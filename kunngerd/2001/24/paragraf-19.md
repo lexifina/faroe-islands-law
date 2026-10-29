@@ -1,0 +1,1 @@
+§ 19. Feskar fiskavørur, sum verða landaðar beinleiðis frá einum fiskifari, ið siglir undir triðjalands flaggi, skulu leggjast undir tað veterinereftirlitið, sum er ásett fyri fisk, ið verður landaður beinleiðis frá fiskiførum, ið sigla undir triðjalands flaggi, áðrenn tær verða innfluttar til samhandilsøkið.

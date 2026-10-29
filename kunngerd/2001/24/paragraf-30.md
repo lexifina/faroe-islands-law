@@ -1,0 +1,5 @@
+§ 30. Umskiping beinleiðis frá flogfari ella skipi til eitt annað í somu lufthavn, ávikavist havn av matvøru, sum nevnd er í § 29, stk. 1, skal bert fara fram á økið á eini marknaeftirlitsstøð. Embætisdjóralæknin skal hava fingið boð um hetta við møguligum veterinerum eftirliti fyri eyga.
+Stk. 2. Lossing og fyribils goymsla av matvøru, nevnd í § 29, stk. 1, skal, áðrenn hon kann verða send víðari til triðjaland, fara fram innanfyri økið á eini marknaeftirlitsstøð. Skjala- og samleikaeftirlit skal havast við matvøruni, og hon skal goymast undir embætisdjórlæknaeftirliti.
+Stk. 3. Embætisdjóralæknin kann áseta nærri treytir fyri virksemið í stk. 1 og 2.
+Stk. 4. Í sambandi við eftirlitið, nevnt er í stk. 2, ásetur embætisdjóralæknin treytirnar fyri, hvussu matvøran kann verða send víðari, herímillum tíðarfreistina fyri, nær vørusendingin kann fara fram.
+Stk. 5. Um so er, at matvøra, fevnd av stk. 2, ikki er víðarisend til triðjalandið innan freistina, sum embætisdjóralæknin setti, sbr. stk. 4, skal matvøran undir veterinert eftirlit samsvarandi § 32.

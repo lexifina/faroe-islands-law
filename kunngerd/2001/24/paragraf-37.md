@@ -1,0 +1,1 @@
+§ 37. Veterinersakkøn frá ES-Kommissiónini kunnu í samstarvi við embætisdjóralæknan gera kanningar á staðnum til tess at tryggja sær, at krøvini í direktivi 97/78/EØS eru lokin og at eftirlitið, sum embætisdjóralæknin hevur, verður framt í samsvari við áðurnevnda direktiv.

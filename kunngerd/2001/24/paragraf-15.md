@@ -1,0 +1,2 @@
+§ 15. Tollmyndugleikin loyvir ikki innflutningi av vørusendingum, uttan so at tað er prógvað, at kravda veterinereftirlitið er farið fram við nøktandi úrsliti, og at relevanta váttanin, sum er nevnd í § 6, stk. 5 og 6, er skrivað út.
+Stk. 2. Ein vørusending kann ikki verða innflutt, fara í gjøgnumferð ella verða flutt til ella tikin úr eini goymslu, sum er fevnd av § 4, fyrr enn innflytarin hevur goldið kostnaðin, sum stendst av veterineru kanningini eftir galdandi prísum ella hevur sett samsvarandi trygd.
