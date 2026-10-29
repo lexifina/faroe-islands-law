@@ -1,0 +1,2 @@
+§ 10. Handilsfólk, handverkarar og ídnaðarrekandi kunnu ikki uttan áheitan um hetta frammanundan venda sær persónliga ella í telefon til brúkara á bústaði hansara, arbeiðsplássi ella øðrum stað, har tað ikki er vanlig atgongd, við tí fyri eyga beinanvegin ella seinni at fáa tilboð ella at fáa tílíkt tilboð góðtikið um gerð av avtalu.
+Stk. 2. Stk. 1 er ikki galdandi fyri áheitanir um sølu ella bílegging av vørum, sum eftir § 11, stk. 1, litra a, og stk. 2, og § 12, kunnu seljast í umfarssølu.

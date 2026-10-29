@@ -1,0 +1,1 @@
+§ 3. Skráseting Føroya kann undantaka frá treytunum í § 2. Landsstýrismaðurin í vinnumálum kann áseta reglur um hetta. Verður loyvi latið einstaklingi, sum ikki býr í Føroyum, skal fyri virkinum standa persónur, sum lúkar treytirnar í § 2 fyri at reka avvarðandi vinnu.

@@ -1,0 +1,5 @@
+§ 5. Partafeløg og smápartafeløg hava rætt at reka vinnuvirksemi, sum nevnt í § 1, stk. 1, um tey eru skrásett í Skráseting Føroya ella fráboðað til Skráseting Føroya sum undir stovnan.
+Stk. 2. Onnur feløg, heimahoyrandi í Føroyum, sum hava avmarkaða ábyrgd, íroknað feløg við skiftandi limatali ella skiftandi ogn, felagsskapir, sjálveigandi stovnar við alment góðgerandi endamáli og aðrir sjálvsognarstovnar hava rætt at reka vinnur, sum nevndar í § 1, stk. 1, um stjórarnir og meirilutin av nevndarlimunum lúka treytirnar í § 2, sbr. § 3, fyri at reka viðkomandi vinnu.
+Stk. 3. Deildir hjá útlendskum feløgum v.m. av tí slagi, sum nevnd eru í stk. 1-2, kunnu bert reka vinnu, sum nevnt í § 1, stk. 1, um Skráseting Føroya hevur givið loyvi.
+Deildarstjórar skulu kortini lúka treytirnar í § 2, sbr. § 3, fyri at reka avvarðandi vinnu.
+Stk. 4. [^2] Uttan mun til ásetingarnar í stk. 1-3 kunnu feløg v.m., sum ikki eru heimahoyrandi í Føroyum, men eru fevnd av Hoyvíkssáttmálanum, reka vinnuvirksemi, ið kemur undir hesa lóg.

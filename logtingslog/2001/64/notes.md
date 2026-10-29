@@ -1,0 +1,4 @@
+[^1]: Broytt við løgtingslóg nr. 75 frá 25. mai 2009, har § 13, stk. 1 er soljóðandi: “Hendan løgtingslóg kemur í gildi 1. januar 2010.”
+[^2]: Broytt við løgtingslóg nr. 55 frá 16. mai 2006. har § 10 er soljóðandi: “Henda løgtingslóg fær gildi á gildisdegi Sáttmálans frá 31. august 2005 millum Stjórn Íslands, øðrumegin, og Stjórn Danmarkar og Føroya Landsstýri, hinumegin.”
+[^3]: Broytt við løgtingslóg nr. 18 frá 8. mai 2008, har § 19 er soljóðandi: “Stk. 1. Henda løgtingslóg kemur í gildi dagin eftir, at hon er kunngjørd. Stk. 2. Kærumál, sum eru reist, tá henda løgtingdslógin kemur gildi, verða viðgjørd av kærumyndugleikanum eftir galdandi lóggávu, áðrenn henda lógin kom í gildi.”
+[^4]: Broytt við løgtingslóg nr. 31 frá 17. mars 2022, har § 34 ljóðar soleiðis: “Henda løgtingslóg kemur í gildi 1. juli 2022 og samstundis fara løgtingslóg nr. 110 frá 13. desember 2006 um kærunevnd í lendismálum og løgtingslóg nr. 17 frá 8. mai 2008 um Vinnukærunevnd úr gildi.”
