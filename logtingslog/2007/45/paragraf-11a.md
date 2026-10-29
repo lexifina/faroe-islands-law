@@ -1,0 +1,2 @@
+§ 11 a. [^1] Um festari keypir sethús við hóskandi grundøki á festinum, rindar festarin fyri grundøkið eftir reglum, ásettar við heimild í § 11, umframt fyri sethúsini eftir meting. Í sambandi við keyp av sethúsum sbrt. § 6, stk 3, skal festarin verða hildin skaðaleysur fyri tær íløgur, hann hevur gjørt í sethúsini.
+Stk. 2. Sorinskrivarin útnevnir metingarfólk, sum ásetir metta virðið á bygningum, sum verða yvirtiknir eftir stk. 1. Í sambandi við keyp av sethúsum sbrt. § 6, stk. 3, skal festarin verða hildin skaðaleysur fyri tær íløgur, hann hevur gjørt í sethúsini.
