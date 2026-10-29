@@ -1,0 +1,4 @@
+## Umvæling
+§ 2. [^1] [^2] Umvæling av kirkjubygningi sum hevur við sær nakra broyting, má bert gerast við loyvi frá Stiftsstjórnini. Er talan um bygning eldri enn 100 ár, skal ummæli fáast frá Tjóðsavninum. Ummælið frá Tjóðsavninum skal vera Stiftsstjórnini skrivliga í hendi í seinasta lagi hálvt ár eftir, at Stiftsstjórnin skrivliga hevur heitt á Tjóðsavnið um at fáa til vegar ummælið um ætlaðu umvælingina.
+Stk. 2. [^2] Um ikki nøkur friðing er galdandi fyri kirkjubygning sambært løgtingslóg um friðan av fornminnum og bygningum, kann ætlaða umvælingin av kirkjubygningi, ið hevur við sær nakra broyting, við loyvi frá Stiftsstjórnini, fara fram eftir ta í stk. 1, 3. pkt. nevndu freist.
+Stk. 3. [^2] Landsstýrisfólkið kann í heilt serligum førum eftir skrivligari áheitan frá Tjóðsavninum víkja frá freistini í stk. 1, 3. pkt.
