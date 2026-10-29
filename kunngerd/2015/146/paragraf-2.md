@@ -1,0 +1,1 @@
+§ 2. Fyri inntøkuárið 2015 kunnu løgfrøðiligir persónar, ið hava skyldu at gera ársroknskap sambært ársroknskaparlógini, frávelja at fráboða tær í §103 í løgtingslóum landsskatt og kommunuskatt nevndu upplýsingar í XBRL sniði.
