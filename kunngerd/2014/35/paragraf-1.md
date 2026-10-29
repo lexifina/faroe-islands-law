@@ -1,0 +1,1 @@
+§ 1. Vørur, sum meirvirðisgjaldsskrásett virkir selja til persónar, ið hava bústað uttanlands, og sum hesir taka við sær uttanlands sum ferðagóðs, kunnu verða frítiknar fyri meirvirðisgjald, um vørurnar blíva tollviðgjørdar í seinasta lagi 3 mánaðir aftan á fakturadagfestingina.

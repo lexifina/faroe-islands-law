@@ -1,0 +1,1 @@
+§ 6. Meirvirðisgjaldsskrásetta virkið, ið hevur selt vøruna, skal leggja áteknaða fakturan ella fráboðanina, tax-free kekkin, við í roknskap virkisins sum skjalprógv fyri avgjaldsfrítøkuna. Sølan skal dragast frá avgjaldsskyldugu søluni í tí avgjaldstíðarskeiði, tá skjalprógv er latið fyri útflutningin.
