@@ -1,0 +1,1 @@
+§ 8. Um keypari ætlar at keypa serstakt slag av rúsdrekka, ið ikki vanliga er á goymslu, skal rúsdrekkasølan um gjørligt fáa tað til vega og kann krevja, at keyparin rindar eykakostnaðin, og setir hóskandi trygd fyri keypsprísin.
