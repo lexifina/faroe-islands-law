@@ -1,0 +1,3 @@
+§ 11. Fiskiskapur av rættindum, útlutað sum menningarkvota sambært hesi kunngerð, kann bert fara fram við fiskiførum undir føroyskum flaggi, og sum, samsvarandi avgerð hjá Fiskimálaráðnum, hava fingið fiskiloyvi frá Vørn.
+Stk. 2. Bert persónar og feløg, ið lúka treytirnar í § 5, stk. 1 og §§ 6, 7 og 9 í løgtingslógini kunnu fáa fiskiloyvi.
+Stk. 3. Fiskiskip undir føroyskum flaggi kunnu bert byrja fiskiskap í norskum sjógvi, íslendskum sjógvi, russiskum sjógvi, ES sjógvi ella NEAFC skipanarøkinum, um Vørn hevur váttað, at tey eru á lista yvir fiskifør, sum Noreg, Ísland, Russland ella ES hava givið loyvi at fiska í teirra sjóøki, ella eru fráboðað NEAFC at fiska í NEAFC skipanarøkinum.
