@@ -1,0 +1,2 @@
+## Arbeiðstongdur harðskapur
+§ 25. Arbeiðið skal í øllum liðum verða lagt til rættis, skipað og útint soleiðis, at tað er trygdarliga og heilsuliga fult forsvarligt, bæði yvir styttri og longri tíð, við atliti at vandanum fyri arbeiðstongdum harðskapi. Arbeiðstongdur harðskapur er sambært hesi kunngerð, tá ið persónur, sum ikki er starvsfólk ella arbeiðsgevari, fremur harðskap móti starvsfólki ella arbeiðsgevara í sambandi við arbeiðið, ið verður útint.

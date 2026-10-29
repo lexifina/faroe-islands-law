@@ -1,0 +1,1 @@
+§ 9. Um arbeiðsgevarin ikki hevur neyðugu fakligu vitanina at taka sær av trygdararbeiðinum og heilsuarbeiðinum við sálarliga arbeiðsumhvørvinum á arbeiðsplássinum, skal arbeiðsgevarin fáa uttanhýsis fakliga hjálp við tí endamáli at tryggja, at sálarliga arbeiðsumhvørvið hjá starvsfólkunum altíð er fult forsvarligt.

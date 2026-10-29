@@ -1,0 +1,2 @@
+§ 23. Niðrandi atburður sambært hesi kunngerð er, tá ið ein ella fleiri persónar á einum arbeiðsplássi útseta ein ella fleiri aðrar persónar á arbeiðsplássinum fyri happing, kynsligan ágang ella afturvendandi, niðurgerandi atferð. Fyri at atburðurin kann metast sum niðrandi sambært hesi kunngerð, skal hann verða fataður sum niðrandi av tí ella teimum útsettu persónunum.
+Stk. 2. Vanlig útinnan av leiðslu, afturboðan millum starvsfelagar og líknandi eru ikki í sær sjálvum niðrandi atburður.

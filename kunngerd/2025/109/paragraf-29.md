@@ -1,0 +1,1 @@
+§ 29. Um starvsfólkið arbeiðir einsamalt, og hetta kann hava við sær ein serligan vanda fyri harðskap í arbeiðinum fyri viðkomandi, skal arbeiðið verða lagt til rættis soleiðis, at tann serligi vandin fyri harðskapi verður fyribyrgdur. Um serligi vandin fyri harðskapi ikki kann fyribyrgjast, skal starvsfólkið ikki arbeiða einsamalt.

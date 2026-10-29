@@ -1,0 +1,1 @@
+§ 17. Ógreið og mótstríðandi krøv í arbeiðinum eru, tá ið krøv eru í arbeiðinum, sum ikki eru týðilig, ella sum eru ósamsvarandi, millum annað krøv til arbeiðsuppgávur, góðskustig, arbeiðsfunktión, ábyrgdarøki, arbeiðshættir, arbeiðsgongdir, leiklutabýti, tíðarnýtslu, arbeiðsferð ella arbeiðstíð.
