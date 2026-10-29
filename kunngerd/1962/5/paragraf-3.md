@@ -1,0 +1,2 @@
+§ 3. Um so er, at skip, sum er soleiðis gjørt, at rúm undir yvirdekki (Shelterdeck) undir vissum treytum kann koma undir „opin rúm“ og koma soleiðis ikki undir bruttotonsatal, verður broytt soleiðis, at rúmið ikki longur lýkur treytirnar sum opið rúm, verður avgjald kravt eftir § 1, stk. 2, men bert fyri munin millum skipsins tonsatal sum „lukt“ ella „opið“ skip.
+Einhvør broyting í skipsins tonsatali, sum bert stendst av, at viðkomandi rúm ikki longur kemur undir bruttotonsatalið, ger onga broyting í avgjaldinum.

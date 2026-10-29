@@ -1,0 +1,2 @@
+§ 2. [^1] Avgjaldið fyri málibræv ella rætting av málibrævi aftaná eftiruppmáling eftir § 6 c í lógini verður roknað eftir § 1, stk. 1 ella stk. 2, eftirsum uppmálingin, sum ynskist eftirmáld, er fyrsta uppmáling ella umafturuppmáling. Kemur eftiruppmálingin til tað úrslit, at tonsatalið, sum avgjaldið eftir § 1 í hesari kunngerð longu er goldið eftir, verður óbroytt, verður einki avgjald kravt.
+Stk. 2. Fyri eftiruppmáling av skipi, sum keypt er í útlandinum, verður avgjald at rinda sum fyrisett í § 5 í lógini.
