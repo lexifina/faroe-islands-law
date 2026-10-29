@@ -1,0 +1,1 @@
+§ 6. Um næmingur verður útskrivaður frá sjúkrahúsi til víðari viðgerð á øðrum stovni ella heima, skal skúlaleiðarin í samráð við tann, ið hevur havt sjúkraundirvísingina, kunna avvarðandi stovn ella skúla um undirvísingina, so at sjúkraundirvísingin kann halda fram so skjótt sum til ber.

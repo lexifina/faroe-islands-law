@@ -1,0 +1,3 @@
+§ 5. Lærari, sum undirvísir næmingi, ið hevur fingið játtað heimaundirvísing ella sjúkraundirvísing, skal kunna seg um heilsustøðu, trivnaðarligu førleikar og fakligu førleikar næmingsins og umstøður annars, ið kunnu ávirka undirvísingartilgongdina sbrt. § 3, stk. 1.
+Stk. 2. Skúlaleiðarin hevur skyldu til at veita lærara, ið skal undirvísa næmingi, ið fær heimaundirvísing og sjúkraundirvísing, neyðugar upplýsingar sbrt. stk. 1.
+Stk. 3. Tá ið heimaundirvísing og sjúkraundirvísing enda, skal lærari, sum hevur undirvíst næminginum, tryggja, at skúlin fær upplýsingar um heimaundirvísing og sjúkraundirvísing, úrtøku og støðu næmingsins.
