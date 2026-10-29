@@ -1,0 +1,2 @@
+§ 3. Etiska ráðið eygleiðir gongdina í samfelagnum og tekur, av egnum ávum, til viðgerðar almennar og prinsipiellar etiskar spurningar um gransking í og nýtslu av biotøknifrøði og ílegutøknifrøði, ið hevur ávirkan á menniskju.
+Stk. 2. Harumframt kann ráðið taka til viðgerðar aðrar etiskar spurningar, sum knýta seg til heilsufakligt virksemi á heilsuøkinum, almannaøkinum og kommunala økinum og etiskar spurningar um lívfrøðiliga, medisinska gransking viðvíkjandi menniskjum.
