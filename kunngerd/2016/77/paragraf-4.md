@@ -1,0 +1,2 @@
+§ 4. Avskipari av góðsi, sum verður liðugt pakkað í bingjur í Føroyum, og skal flytast sum altjóða flutningur sjóvegis, skal áseta váttaðu vektina við at nýta eina hóskandi vekt ella eina góðkenda mannagongd og seta upplýsingarnar um váttaðu vektina inn í flutningsskjalið, sum hoyrir til bingjuna.
+Stk. 2. Flutningsskjalið skal latast skipsførara ella umboðsfólki hjá hesum og farma fyriskiparanum í fyrstu fermingarhavn so mikið tíðliga, at flutningsskjalið kann nýtast í fermingarætlanini hjá skipinum.
