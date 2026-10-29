@@ -1,0 +1,2 @@
+§ 3. Samskatting verður bara loyvd millum móður- og dótturfeløg, og er treytað av, at móðurfelagið, antin einsamalt ella saman við einum ella fleiri av samskattaðu dótturfeløgunum, eigur allar kapitalpartar í teimum dótturfeløgum, sum samskattingin viðvíkur, og hevur átt hesar alt inntøkuárið hjá dótturfeløgunum.
+Stk. 2. Sum móðurfelag í samskatting verður roknað ovasta móðurfelagið, sum luttekur í samskattingini.
