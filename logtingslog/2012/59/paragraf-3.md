@@ -1,0 +1,4 @@
+## Skipan
+§ 3. [^1] Málráðið er skipað sum umboðsráð og við einari starvsnevnd. Í Málráðið tilnevnir landsstýrismaðurin 11 umboð. Landsstýrismaðurin tilnevnir sjálvur tvey umboð. Hini umboðini verða tilnevnd eftir tilmæli frá stovnum, feløgum o.ø., sum hava áhuga fyri, ella sum arbeiða við føroyska málinum og føroyska teknmálinum, tó soleiðis, at Fróðskaparsetur Føroya, Móðurmálslærarafelag Føroya, Javnstøðunevndin, Navnanevndin, Nám, Rithøvundafelag Føroya, Staðarnavnanevndin og Deyvafelag Føroya saman við Felagnum fyri hoyribrekað í Føroyum altíð tilmæla hvør sín lim í Málráðið. Málráðið situr í fýra ár í senn, og kunnu limirnir sita tvey skeið á rað.
+Stk. 2. Landsstýrismaðurin tilnevnir limirnar í Málráðið og tilnevnir millum limirnar formann og næstformann, ið báðir skulu hava málfrøðiliga útbúgving.
+Stk. 3. Landsstýrismaðurin kann áseta neyvari reglur um at tilnevna limir í Málráðið.

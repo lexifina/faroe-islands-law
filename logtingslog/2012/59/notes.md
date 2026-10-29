@@ -1,0 +1,1 @@
+[^1]: Broytt við løgtingslóg nr. 104 frá 13. juli 2017, har § 2 ljóðar soleiðis: “Stk. 1. Hendan løgtingslóg kemur í gildi 1. august 2017. Stk. 2. Í tíðarskeiðnum frá 1. august 2017 til 1. juli 2021 verður umboðið, sum Deyvafelag Føroya saman við Felagnum fyri hoyribrekað í Føroyum hava tilmælt, sbrt. § 1, nr. 2 í hesi lóg, 12. umboð í Málráðnum.”

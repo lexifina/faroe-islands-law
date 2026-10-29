@@ -1,0 +1,1 @@
+§ 6. [^1] Málráðið savnar og skrásetir nýkomin orð, máliskur, framburðir og onnur málslig fyribrigdi í føroyskum og er til hjálpar at velja og evna til nýggj orð. Sama er eisini galdandi fyri føroyskt teknmál.
