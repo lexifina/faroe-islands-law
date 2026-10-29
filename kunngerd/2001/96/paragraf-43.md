@@ -1,0 +1,1 @@
+§ 43. Innskriving til sjúkrapróvtøku fer fram í seinasta lagi 25. juni, ávikavist 25. januar. Innskrivingin fer fram hjá skúlastjóranum á einum oyðiblaði, sum Mentamálastýrið ger, og sum fevnir um ta í § 44, stk. 1 og 2, nevndu læknaváttan. Innskriving til sjúkrapróvtøkuna er bindandi.

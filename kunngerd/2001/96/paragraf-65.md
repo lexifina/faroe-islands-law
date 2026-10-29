@@ -1,0 +1,3 @@
+§ 65. Í seinasta lagi 7 dagar aftaná at skúlastjórin hevur móttikið kæruna, skal hann hava útvegað sær neyðugu frágreiðingarnar um hana. Snýr kæran seg um ársmet, verður frágreiðing fingin frá avvarðandi lærara, snýr kæran seg um próvtøl, verður frágreiðing fingin frá próvhoyrara og próvdómara. Hevur ástøðumaður ásett próvtalið, sbr. § 47, stk. 2 og 3, verður frágreiðing fingin frá honum.
+Stk. 2. Skúlastjórin gevur kæraranum 7 dagar at gera viðmerkingar til frágreiðingina.
+Stk. 3. Í málum, sum Mentamálastýrið tekur avgerð um, skal kærarin harafturat innan 7 dagar hava høvi at gera viðmerkingar til tilmæli skúlastjórans, sbr. §§ 66 og 67, stk. 2.

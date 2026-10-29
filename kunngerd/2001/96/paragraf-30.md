@@ -1,0 +1,3 @@
+§ 30. Próvtakararnir fáa próvtøkuspurningarnar við at velja millum seðlar, sum skulu vera óglærir og einsháttaðir. Allir spurningarnir skulu vera lagdir fram, tá ið próvtøkan byrjar. Einstaki próvtakarin skal hava í minsta lagi 5 seðlar at velja ímillum. Próvtøkuspurningurin verður latin próvtakaranum skrivliga í sambandi við fyrireikingina.
+Stk. 2. Um ein próvhoyring fevnir um fleiri spurningar, sum eru óheftir hvør av øðrum, velur próvtakarin ein seðil fyri hvønn spurning.
+Stk. 3. Próvdómari og próvhoyrari skulu báðir vera hjástaddir, tá ið próvtakarin velur ein spurning. Próvhoyrarin skal, meðan próvdómarin lýðir á, tryggja sær, at próvtakarin hevur skilt spurningin.

@@ -1,0 +1,2 @@
+§ 45. Skúlastjórin sendir í seinasta lagi seinasta skúladag Mentamálastýrinum frágreiðing um allar teir næmingar, sum hava fingið loyvi at fara til sjúkrapróvtøku, har í millum um orsøkina til loyvið.
+Stk. 2. Reglurnar í stk. 1, umframt í §§ 42-44, eru eisini at nýta í sambandi við høvuðsuppgávuna. Innskriving til sjúkrapróvtøku í høvuðsuppgávuni fer fram í sambandi við innlating av læknaváttan. Høvuðsuppgávan kann verða skrivað innan sama øki og sama evni, men hon skal hava nýggja uppgávuorðing.

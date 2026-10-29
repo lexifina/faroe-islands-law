@@ -1,0 +1,3 @@
+§ 5. Skúlastjórin sendir Mentamálastýrinum lesipensum og próvtøkupensum til góðkenningar fyri 1. mars (til summarpróvtøkuna). Um próvtøka fer fram aðrar tíðir í árinum, ásetir Mentamálastýrið innlatingarfreistina fyri próvtøkupensum. Næmingarnir fáa ljóstak av lesipensum og próvtøkupensum. Um broytingar verða gjørdar í lesi- ella próvtøkupensum, aftaná at tey eru send inn, verða broytingarnar sendar Mentamálastýrinum til góðkenningar, eins og næmingarnir fáa ljóstak av broytingunum.
+Stk 2. Skúlastjórin sendir próvdómarunum lesipensum og próvtøkupensum eftir nærri ásetingum frá Mentamálastýrinum.
+Stk. 3. Ljóstak av lesipensum og próvtøkupensum skal varðveitast á skúlanum í 3 ár.

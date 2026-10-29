@@ -1,0 +1,4 @@
+## Sjálvlesandi
+§ 9. Sjálvlesandi, her í millum næmingar, ið eru burturvístir frá undirvísingini, innskriva seg til próvtøku í seinasta lagi 1. mars á tí skúlanum, har tey ynskja at fara til próvtøku. Samstundis sum innskrivingin til próvtøku fer fram, letur lærari pensumlista inn til skúlan.
+Stk. 2. Verður próvtøka ikki hildin í tí ynsktu lærugreinini á skúlanum, har tann sjálvlesandi hevur innskrivað seg til próvtøku, kann tann sjálvlesandi verða vístur til annan skúla, har próvtøka er í lærugreinini.
+Stk. 3. Fyri næming, sum ikki lýkur krøvini um møtiskyldu ella innlating av skrivligum avrikum, sum verður vístur at fara til próvtøku eftir serligum treytum, ella sum verður vístur burtur frá undirvísingini aftaná 1. mars, ásetur skúlastjórin eina freist fyri innskriving til próvtøku og innlating av lesipensum.

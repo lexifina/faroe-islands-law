@@ -1,0 +1,3 @@
+§ 74. Mentamálastýrið kann geva undantaksloyvi frá reglunum í hesi kunngerð, um orsøkin er heilt óvanlig viðurskifti, ella tá ið talan er um námsfrøðiligt royndar- og menningarvirksemi.
+Stk. 2. Umsókn um undantaksloyvi til royndar- og menningarvirksemi, ið sum fyritreyt hevur í sær undantaksloyvi frá próvtøkureglunum, har í millum próvtøkuhættum og próvtøkuskipan, verður send Mentamálastýrinum í seinasta lagi 1. oktober í tí skúlaári, viðkomandi próvtøka skal haldast.
+Stk. 3. Mentamálastýrið kann sum eftirlitsmyndugleiki í sambandi við próvtøku útinna tær heimildir, ið sbrt. hesari kunngerð eru litnar skúlastjóranum upp í hendur.

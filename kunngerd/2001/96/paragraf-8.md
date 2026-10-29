@@ -1,0 +1,3 @@
+§ 8. Skúlastjórin kann loyva næmingi at ganga umaftur. Næmingur kann tó í mesta lagi fylgja undirvísingini á einum floksstigi 2 ferðir. Skrivlig umsókn um loyvi at ganga umaftur skal vera skúlastjóranum í hendi í seinasta lagi seinasta skúladag.
+Stk. 2. Skúlastjórin kann frítaka ein næming, sum hevur fingið loyvi at ganga umaftur, fyri at luttaka í undirvísingini og/ella fyri at fara til próvtøku í einari ella fleiri lærugreinum, sum næmingurin longu hevur lokið.
+Stk. 3. Eitt flutt ársmet í einari lærugrein kann ikki setast saman við einum ársmeti í somu lærugrein frá eini aðrari undirvísingargongd.

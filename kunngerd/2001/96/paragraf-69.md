@@ -1,0 +1,3 @@
+§ 69. Próvtakari kann um skúlastjóran kæra avgerð um burturvísing til Mentamálastýrið innan 7 dagar eftir, at avgerðin um burturvísing er fráboðað honum. Um próvtakari ikki er myndugur, kann eisini tann, sum hevur foreldramyndugleikan, senda kæruna.
+Stk. 2. Kæran verður skrivliga send skúlastjóranum, sum sendir hana víðari til Mentamálastýrið saman við einum ummæli av málinum. Áðrenn málið verður sent Mentamálastýrinum, skal skúlastjórin geva tí, ið kærir, 7 dagar at gera viðmerkingar til ummælið. Møguligar viðmerkingar skulu eisini sendast Mentamálastýrinum.
+Stk. 3. Mentamálastýrið ger av, um avgerð skúlastjórans skal standa við, ella um avgerðin skal broytast til frama fyri tann, sum kært hevur. Henda avgerð er endalig.

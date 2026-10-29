@@ -1,0 +1,2 @@
+§ 29. Í fyrireikingartíðini er loyvt próvtakaranum at hava við sær tilfar og hjálparmiðlar eftir egnum vali, sbr. tó §§ 34-38. Próvtakarin skal sjálvur hava við sær skrivi- og tekniamboð, umframt loyvdar roknimaskinur og teldur.
+Stk. 2. Próvhoyrarin hevur ábyrgdina av, at møguligur útbúnaður, ið skal brúkast í sambandi við fyrireiking og próvhoyring, er til staðar í fyrireikingarhølinum og í próvtøkuhølinum.

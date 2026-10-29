@@ -1,0 +1,2 @@
+§ 36. Skrivligu próvtøkurnar í støddfrøði á C-stigi verða gjørdar við støði í, at próvtakararnir nýta lummaroknarar við knøttum fyri eksponentiella notatión, potenslyfting og funkurnar cos, sin, tan, ln og log umframt teirra øvugtu funkur. Harafturat skal minnið í lummaroknararanum vera tømt.
+Stk. 2. Skrivligu próvtøkurnar í støddfrøði á A- og B-stigi, verða gjørdar við støði í, at próvtakararnir nýta lummaroknarar við grafiskum skíggja.

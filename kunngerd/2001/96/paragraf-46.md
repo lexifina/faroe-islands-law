@@ -1,0 +1,3 @@
+§ 46. Mentamálastýrið ásetir dagarnar fyri próvtøkurnar til skrivligu sjúkrapróvtøkuna.
+Stk. 2. Munnligu sjúkrapróvtøkurnar skulu fara fram, so skjótt sum til ber í komandi skúlaári, um ikki sjúkrapróvtøka verður sbrt. § 42, stk. 4, soleiðis at allar munnligar próvtøkur eru lidnar í seinasta lagi 3 vikur eftir skúlaársbyrjan. Mentamálastýrið tilnevnir próvdómarar, meðan skúlastjórin í samráð við lærarar og próvdómarar avtalar dag og tíð fyri sjúkrapróvtøkurnar. Lærari kann ikki vera próvdómari á egnum undirvísingarstaði.
+Stk. 3. Skúlastjórin ásetir tíðarskeiðið fyri sjúkrapróvtøkuskeiðið í høvuðsuppgávuni.

@@ -1,0 +1,3 @@
+§ 18. Próvtøkuhølið verður latið upp í seinasta lagi 10 minuttir, áðrenn próvtøkan byrjar. Øll eftirlitsfólk skulu vera til staðar, tá ið próvtøkuhølið verður latið upp.
+Stk. 2. Áðrenn próvtøkan byrjar verða svarørk og møgulig hjálparørk býtt út. Á hesum ørkunum skal vera teigur við navni og skrátali skúlans. Harafturat koma teigar til navn, nummar, flokk/valbólk og lærugrein hjá próvtakaranum, arknummar, avhent arkatal og navnamerki hjá eftirlitsfólki. Próvtakararnir hava rætt til at fáa útflýggjað fleiri ørk. Ørkini mugu ikki faldast ella býtast í fleiri petti.
+Stk. 3. Uppgávusvar, møguligar kladdur og uppskriftir mugu bert skrivast á tey í stk. 2 nevndu svarørkini, uttan í teimum førum, har uppgávurnar hava fylgiskjøl, ið skulu nýtast í sambandi við svarið.

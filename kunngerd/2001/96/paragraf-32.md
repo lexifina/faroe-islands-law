@@ -1,0 +1,6 @@
+§ 32. Próvdømt verður beint eftir hvørja próvhoyring. Fevnir próvtøkan um eina felags framløgu, skal hvør einstakur próvtakari í bólkinum próvdømast beint eftir, at felags framløgan er liðug.
+Stk. 2. Próvdómarin sigur sína døming fyrst.
+Stk. 3. Bert próvhoyrarin og próvdómarin mugu vera hjástaddir, tá próvdømingin fer fram. Próvdómarin skal í sambandi við próvdømingina gera uppskriftir um avrikið og próvtalsásetan hjá einstaka próvtakaranum. Uppskriftirnar eru persónligar, og skal próvdómarin nýta tær í eini frágreiðing, um kært verður um próvtalið. Próvdómarin skal goyma uppskriftirnar í 1 ár.
+Stk. 4. Beint eftir at próvtalið er ásett, skrivar próvdómarin próvtalið á ein próvtalslista, sum Mentamálastýrið ger. Próvhoyrarin sigur síðan próvtakaranum frá próvtalinum, meðan próvdómarin lýðir á.
+Stk. 5. Próvtalið er endaligt, tá ið tað er skrivað á próvtalslistan, og próvtakarin hevur fingið tað at vita. Síðan kann bert Mentamálastýrið í sambandi við kæru broyta próvtalið.
+Stk. 6. Próvdómarin viðmerkir á próvtalslistan, um ein próvtakari ikki er møttur, ella um próvtalið er úrslit av einum miðaltali av próvtalsuppskoti hjá próvdómara og próvhoyrara. Hvønn dag, tá ið próvhoyringin er liðug, dagfesta og skriva próvhoyrarin og próvdómarin próvtalslistan undir og lata hann inn til skúlastjóran.

@@ -1,0 +1,2 @@
+§ 48. Fyri næming, sum er farin til próvtøku í somu lærugrein á sama stigi 2 ferðir, verður próvtalið, ið er fingið við endurpróvtøkuna, skrivað í prógvið, sbr. tó stk. 2.
+Stk. 2. Til eina HH-próvtøku í eini 2 ára útbúgvingargongd kunnu bert próvtøkur, ið eru tiknar í beinleiðis framhaldi av undirvísingini í lærugreinini vera roknaðar við. Undantikið frá hesum eru lærugreinir, sum eftir góðkenning skúlastjórans eru avriksfluttar, ella próvtøkur, sum eru tiknar á øðrum skúlum ella endurpróvtøku sbrt. § 8, stk. 2, ella til sjúkrapróvtøku sbrt. §§ 42-46.

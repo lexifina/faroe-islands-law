@@ -1,0 +1,3 @@
+§ 16. Mentamálastýrið ásetir tíðirnar fyri skrivligu próvtøkurnar.
+Stk. 2. Skúlastjórin sær til, at próvtøkurnar fara fram undir tryggum umstøðum, og at friður valdar, meðan próvtøkan fer fram. Bert próvtakararnir, eftirlitsfólkini og skúlastjórin ella ein av honum heimilaður persónur kunnu verða til staðar í próvtøkuhølinum, meðan próvtøkan fer fram. Próvtakararnir skulu sita soleiðis, at eingin røkkur hvørjum øðrum.
+Stk. 3. Til allar skrivligar próvtøkur hava próvtakararnir við sær loyvdar hjálparmiðlar sbrt. nærri ásetingum fyri einstøku lærugreinirnar. Harumframt er loyvt próvtakarunum at hava við sær allar orðabøkur.

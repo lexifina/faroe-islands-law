@@ -1,0 +1,1 @@
+§ 3. Vanliga próvtøkan verður hildin í mai-juni mánaði (summarpróvtøkuskeiðið). Sjúkrapróvtøka verður hildin í september-oktober mánaði. Harumframt kunnu eftir áseting hjá Mentamálastýrinum verða hildnar próvtøkur aðrar tíðir í árinum. Mentamálastýrið ásetir freistir í hesum sambandi.

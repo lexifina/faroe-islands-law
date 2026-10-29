@@ -1,0 +1,2 @@
+§ 20. Verður próvtakari ov seinur til eina skrivliga próvtøku, verður hann roknaður sum ikki møttur, sbr. § 6, stk. 5, og hevur ikki rætt til at luttaka í próvtøkuni. Skúlastjórin kann tó innan fyrsta tíman av próvtøkuni loyva einum próvtakara at luttaka í írestandi partinum av próvtøkuni, um hann heldur tað vera ógjørligt, at próvtakarin hevur fingið upplýsingar um uppgávuna, og um skúlastjórin metir orsøkina til seinkanina vera nóg væl grundaða.
+Stk. 2. Skúlastjórin skal alt fyri eitt lata Mentamálastýrinum skrivliga fráboðan um loyvið, hann hevur givið sbrt. stk. 1.

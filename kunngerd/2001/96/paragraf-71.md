@@ -1,0 +1,1 @@
+§ 71. Um Mentamálastýrið ger av at ógilda eina próvtøku, skal tað tryggjast, at tað verður til minst møguligan ampa hjá próvtakara/um. Um endurpróvtøka verður framd, kann Mentamálastýrið gera av, at ein onnur próvtøka dettur burtur fyri próvtakaran/arnar.
