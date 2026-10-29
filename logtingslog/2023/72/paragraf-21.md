@@ -1,0 +1,1 @@
+§ 21. Kappingareftirlitið kann, um samanlegging er framd uttan góðkenning, geva boð um sundurskiljing av samanløgdum ella yvirtiknum fyritøkum ella av ognum ella felagsræði, eins og Kappingareftirlitið kann nýta aðra atgerð, sum er neyðug til tess at endurskapa eina virkna kapping.

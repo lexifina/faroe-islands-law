@@ -1,0 +1,9 @@
+§ 15. Kappingareftirlitið tekur avgerð um, hvørt ein samanlegging skal góðkennast ella forbjóðast.
+Stk. 2. Ein samanlegging, sum ikki munandi forðar fyri virknari kapping, serliga við at skapa ella styrkja eina ráðandi marknaðarstøðu, skal góðkennast. Ein samanlegging, sum munandi forðar fyri virknari kapping, serliga við at skapa ella styrkja eina ráðandi marknaðarstøðu, skal forbjóðast.
+Stk. 3. Í teimum førum, har stovnan av einum samváða sambært § 13, stk. 2, eisini hevur til endamáls ella sum fylgju at samskipa kappingarliga atburðin hjá sjálvstøðugum fyritøkum, verður henda samskipan mett sambært metingarstøðunum í § 6, stk. 1, og § 8, stk. 1, fyri at staðfesta, um samanleggingin kann góðkennast.
+Stk. 4. Í sambandi við sína meting eftir stk. 3 leggur Kappingareftirlitið serliga dent á:
+1) um tað samstundis eru tvær ella fleiri stovnsetandi fyritøkur, sum hava eyðsýndan leiklut á sama marknaði, sum viðkomandi samváði er á, ella á marknaði í fyrra ella seinna liði í mun til hendan marknaðin, ella á einum nærskyldum marknaði, sum er tætt knýttur at hesum marknaði, og
+2) um stovnsetandi fyritøkurnar hava møguleika fyri at forða kapping fyri ein munandi part av viðkomandi vørum ella tænastum.
+Stk. 5. Ein samanlegging, fevnd av hesi løgtingslóg, kann ikki fremjast, fyrr enn góðkenning er fingin frá Kappingareftirlitinum uttan so, at undantaksloyvi til tess er fingið frammanundan.
+Stk. 6. Kappingareftirlitið kann geva undantak til stk. 5, og til tess at tryggja virkna kapping kann Kappingareftirlitið seta treytir við undantaksloyvið og geva boð.
+Stk. 7. Kappingareftirlitið kann eftir eina einfalda málsviðgerð góðkenna eina samanlegging, um Kappingareftirlitið, grundað á tær upplýsingar, sum eru Kappingareftirlitinum kunnugar, metir, at samanleggingin ikki gevur orsøk til ivasemi.

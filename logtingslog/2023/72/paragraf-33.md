@@ -1,0 +1,4 @@
+§ 33. Avgerðir, tiknar av Kappingareftirlitinum eftir hesi løgtingslóg, kunnu ikki leggjast fyri annan fyrisitingarligan myndugleika enn Føroya Kærustovn og kunnu ikki leggjast fyri rættin, fyrr enn úrskurður frá Føroya Kærustovni er til skjals.
+Stk. 2. Kæra um avgerð kann verða skotin inn fyri Føroya Kærustovn innan 4 vikur frá tí, at avgerðin er kunngjørd tí, sum hon viðvíkur. Tá ið serligar orsakir tala fyri, kann Føroya Kærustovnur víkja frá kærufreistini.
+Stk. 3. [^1] Avgerð, tikin av Føroya Kærustovni, kann av kæraranum og Kappingareftirlitinum leggjast fyri Føroya Rætt í seinasta lagi 8 vikur frá tí, at avgerðin er kunngjørd tí, sum hon viðvíkur. Verður ikki kært innan ásettu tíðarfreistina, er avgerðin hjá Føroya Kærustovni endalig.
+Stk. 4. [^1] Tá ið avgerð sambært stk. 3 verður løgd fyri Føroya Rætt, er Kappingareftirlitið ella fyritøka o.a. rætta viðkomandi at stevna.

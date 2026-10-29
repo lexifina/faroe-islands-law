@@ -1,0 +1,6 @@
+§ 14. Samanleggingar, ið eru fevndar av ásetingunum í hesum kapitli, eru tær, har:
+1) tær luttakandi fyritøkurnar samanlagt hava ein árligan umsetning á í minsta lagi 75 milliónir krónur í Føroyum, og minst tvær av luttakandi fyritøkunum hvør sær hava ein samlaðan árligan umsetning upp á 15 milliónir krónur í Føroyum, ella
+2) minst ein av luttakandi fyritøkunum hevur ein árligan umsetning í Føroyum á minst 75 milliónir krónur, og minst ein av hinum fyritøkunum hevur ein umsetning á minst 75 milliónir krónur á heimsstigi.
+Stk. 2. Fer samanlegging fram við yvirtøku av pørtum av eini ella fleiri fyritøkum, verður fyri seljara bert tann parturin av umsetninginum, sum kann knýtast at teimum yvirtiknu ognunum, tikin við í metingina eftir stk. 1.
+Stk. 3. Tvær ella fleiri yvirtøkur eftir stk. 2, ið verða framdar í einum tvey ára tíðarskeiði, eru tó at meta sum ein samanlegging, um somu fyritøkur ella persónar luttaka. Í slíkum føri verður samanleggingin mett at vera farin fram, tá ið seinasta yvirtøkan varð framd.
+Stk. 4. Eftir ummæli frá Kappingareftirlitinum ásetir landsstýrismaðurin nærri reglur um útrokning av umsetningi eftir stk. 1, undir hesum reglur um, hvussu umsetningurin fyri fíggjarligar fyritøkur verður roknaður.

@@ -1,0 +1,6 @@
+§ 18. Í seinasta lagi 30 yrkadagar eftir, at váttan er latin fráboðara um, at fráboðanin er fullfíggjað, verður avgerð tikin um, hvørt samanleggingin kann góðkennast eftir einfaldari málsviðgerð sambært § 15, stk. 5, ella um samanleggingin skal kannast nærri.
+Stk. 2. Avgerð um at góðkenna ella forbjóða eini samanlegging skal takast í seinasta lagi 90 yrkadagar eftir, at váttan sambært stk. 1 er latin fráboðara, samanber tó stk. 4 og 5.
+Stk. 3. Freistin í stk. 2 kann verða longd við 20 yrkadøgum, um ein ella fleiri luttakandi fyritøkur koma við nýggjari ella broyttari tilsøgn. Freistin verður einans longd, um tað, tá ið tilsøgn verður givin, eru færri enn 20 yrkadagar, til avgerð eigur at verða tikin sambært stk. 2.
+Stk. 4. Freistin í stk. 2 kann eisini verða longd við 20 yrkadøgum, um Kappingareftirlitið hevur tikið avgerð um hetta, og tann ella tær fyritøkur, sum hava fráboðað, biðja um hetta ella játta hesum.
+Stk. 5. Er avgerð ikki tikin innan ásettu freistirnar í stk. 1-4, er hetta at meta sum avgerð um, at samanleggingin er góðkend, samanber tó stk. 6.
+Stk. 6. Kærir ein ella fleiri luttakandi fyritøkur um, at fráboðast skal eftir vanligum leisti sambært § 17, stk. 4, steðga freistirnar í § 18, stk. 1-4, til avgerð er tikin í kærumálinum.

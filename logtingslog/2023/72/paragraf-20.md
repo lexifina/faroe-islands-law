@@ -1,0 +1,3 @@
+§ 20. Kappingareftirlitið kann taka aftur eina góðkenning, um avgerðin í stóran mun er grundað á skeivar ella villleiðandi upplýsingar, sum ein ella fleiri av luttakandi fyritøkunum eru atvoldin til.
+Stk. 2. Kappingareftirlitið kann taka aftur eina góðkenning, um ein av luttakandi fyritøkunum noktar at fylgja treytum ella boðum, givin sambært § 19, stk. 1 og 2.
+Stk. 3. Kappingareftirlitið kann taka aftur eina góðkenning, sum er givin eftir § 15, stk. 7, um ein av luttakandi fyritøkunum hevur latið ófullfíggjaðar, skeivar ella villleiðandi upplýsingar, og kann krevja, at tær luttakandi fyritøkurnar innan 2 vikur fráboða eftir vanligum leisti.

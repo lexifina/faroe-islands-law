@@ -1,0 +1,2 @@
+§ 10. Eftir ummæli frá Kappingareftirlitinum kann landsstýrismaðurin áseta reglur um frítøku frá forboðnum í § 6, stk. 1, fyri bólkar av avtalum, viðtøkum og samskipanum, ið lúka treytirnar í § 8, stk. 1.
+Stk. 2. Tá ið avtala, viðtøka í samtøku av fyritøkum ella samskipan millum fyritøkur, sum er fevnd av bólkafrítøkuni, latin sambært stk. 1, í einum ítøkiligum føri hevur avleiðingar, sum ikki eru sambærligar við treytirnar í § 8, stk. 1, kann Kappingareftirlitið afturkalla frítøku sambært stk. 1 fyri fyritøkur og annað, sum eru partar í avtaluni og øðrum.

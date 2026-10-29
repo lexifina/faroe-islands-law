@@ -1,0 +1,10 @@
+## Kapittul 4
+## Kappingaravlagandi stuðul
+§ 12. Kappingareftirlitið kann geva boð um, at almennur stuðul til fyrimuns fyri ávíst vinnuvirksemi skal steðga ella afturrindast.
+Stk. 2. Boð sambært stk. 1 kunnu gevast, tá ið almenni stuðulin:
+1) beinleiðis ella óbeinleiðis hevur til endamáls ella sum avleiðing at avlaga kappingina, og
+2) ikki er lógligur sambært almennari regulering.
+Stk. 3. Avgerð, um veittur almennur stuðul er lógligur sambært almennari regulering, verður tikin av avvarðandi landsstýrismanninum ella avvarðandi kommunala eftirlitsmyndugleika, um annað ikki ásett í lóg. Avgerð, um veittur almennur stuðul er lógligur sambært almennari regulering, skal takast í seinasta lagi 4 vikur frá tí, at áheitan frá Kappingareftirlitinum er móttikin. Kappingareftirlitið kann leingja freistina.
+Stk. 4. Boð sambært stk. 1 um at afturrinda almennan stuðul kann gevast privatum vinnufyritøkum, sjálvsognarstovnum og fyritøkum, sum heilt ella lutvíst eru almennar og vera riknar sum partafelag. Landsstýrismaðurin kann áseta nærri reglur um, at boð sambært stk. 1 um afturrindan av stuðli eisini kann gevast ávísum vinnuvirksemi, sum heilt ella lutvíst er almenn ogn, ið verður rikið í vinnufelagslíknandi líki.
+Stk. 5. Heimildin hjá Kappingareftirlitinum sambært stk. 1 at geva boð um at afturrinda almennan stuðul fyrnast 5 ár eftir, at almenni stuðulin er latin. Kappingareftirlitið ásetir rentur í sambandi við afturrindan sambært stk. 1. Renting fer fram sambært lov om renter ved forsinket betaling, m.v. Kappingareftirlitið kann áseta, at renta verður skrivað frá tí degi, at kappingaravlagandi almenni stuðulin fyrstu ferð varð tøkur hjá móttakaranum og til dagin, tá ið kappingaravlagandi almenni stuðulin er rindaður aftur.
+Stk. 6. Kappingareftirlitið kann eftir fráboðan vátta, at almennur stuðul sambært teimum viðurskiftum, sum eru Kappingareftirlitinum kunnug, ikki er fevndur av stk. 2, nr. 1, og at tað tí ikki er grundarlag fyri at geva boð sambært stk. 1. Kappingareftirlitið kann áseta nærri reglur um fráboðan, undir hesum reglur um nýtslu av serligum fráboðanarskjølum.

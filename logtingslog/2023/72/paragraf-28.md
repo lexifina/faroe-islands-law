@@ -1,0 +1,4 @@
+§ 28. Kappingareftirlitið kann krevja allar upplýsingar útflýggjaðar, sum Kappingareftirlitið metir hevur týdning fyri virksemi hjá kappingarmyndugleikanum ella fyri at gera av, um ávís viðurskifti eru partur av øki løgtingslógarinnar. Upplýsingarnar kunnu til dømis vera um roknskapir og roknskapartilfar, úrrit úr bókum, handilsskjøl o.s.fr.
+Stk. 2. Tað er skyldan hjá fyritøku, samtøku av fyritøkum og øllum løgfrøðiligum og likamligum persónum at veita upplýsingar sambært stk. 1.
+Stk. 3. Kappingareftirlitið kann í arbeiði sínum krevja at fáa upplýsingar og skjøl frá øðrum myndugleikum, m.a. skattamyndugleikunum og tollmyndugleikunum, óheft av tagnarskyldu teirra.
+Stk. 4. Upplýsingar sambært stk. 1 kunnu eisini krevjast til tess at veita kappingarmyndugleikum í Norðanlondum hjálp at fremja og handhevja kappingarlógina í hesum londum.

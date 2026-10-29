@@ -1,0 +1,1 @@
+§ 3. Løgtingslógin er ikki galdandi fyri lønarviðurskifti og arbeiðsviðurskifti. Kappingareftirlitið kann tó krevja upplýsingar frá feløgum og fyritøkum um lønarviðurskifti og arbeiðsviðurskifti, sum hava týdning fyri virksemið hjá eftirlitinum.

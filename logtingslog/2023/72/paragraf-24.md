@@ -1,0 +1,3 @@
+§ 24. Kappingareftirlitið tekur avgerðir eftir hesi løgtingslóg og eftir reglum ásettum við heimild í hesi løgtingslóg.
+Stk. 2. Kappingareftirlitið kann taka upp mál av egnum ávum, eftir fráboðan, eftir klagu, ella eftir áheitan frá øðrum kappingarmyndugleika sambært § 28, stk. 4, § 30, stk. 15 og § 31, í hesi løgtingslóg.
+Stk. 3. Kappingareftirlitið ger av, um tað er grundarlag fyri at kanna ella taka avgerð í einum máli, og um málsviðgerð fyribils ella endaliga skal steðga. Harumframt kann Kappingareftirlitið taka avgerð um at lata vera við at viðgera eitt mál, har fyritøkur áður hava givið tilsøgn sambært § 27.

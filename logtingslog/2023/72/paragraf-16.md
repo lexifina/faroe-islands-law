@@ -1,0 +1,3 @@
+§ 16. Kappingareftirlitið skal hava fráboðan um samanlegging sambært hesi løgtingslóg í seinasta lagi eina viku eftir, at sáttmáli um samanlegging er gjørdur, ella almenn fráboðan er gjørd um samanleggingina, ella at onkur ávísur hevur fingið ræðið á fyritøkuni. Freistin er ein vika frá tí, at eitt av omanfyri nevndu er farið fram, og áðrenn samanleggingin verður framd.
+Stk. 2. Kappingareftirlitið kann almannakunngera, at samanlegging er fráboðað. Almannakunngeringin fevnir um nøvnini á luttakandi fyritøkunum í samanleggingini, slag av samanlegging og tær vinnugreinir, sum samanleggingin fevnir um.
+Stk. 3. Kappingareftirlitið ger reglur um fráboðan av samanleggingum, undir hesum reglur um nýtslu av serstøkum fráboðanarskjølum og reglur um vanliga og einfalda fráboðan.
