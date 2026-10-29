@@ -1,0 +1,2 @@
+## Stuttar, tíðaravmarkaðar og almennar príslækkingar
+§ 10. Fyri matvørur við stuttum haldføri, undir hesum feskur fiskur og kjøt, frukt og grønmeti, breyð og mjólkarúrdráttir, sum verða seldar við avsláttri, tí vøran er um at nærkast seinasta søludegi, verður ikki kravt, at eindarprísurin skal dagførast. Vøran skal kortini merkjast við upprunaligum søluprísi og møguligum eindarprísi, umframt avsláttri í krónum ella prosentum.
