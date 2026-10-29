@@ -1,0 +1,1 @@
+§ 1. Henda lóg fatar um teir lærarar o.o. á Føroya Handilsskúla, sum sett eru í tænastumannalíknandi størv eftir 31. desember í 1987, og sum sambært setanarskrivinum eru sett sambært kunngerð frá danska kenslumálaráðnum.

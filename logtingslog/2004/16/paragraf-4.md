@@ -1,0 +1,1 @@
+§ 4. Hægsta egineftirløn fæst, tá ið eftirlønaraldurin er 37 ár, og hon er 57% av eftirlønargevandi lønini hjá tænastumanni, tá hann fer frá, smb. § 5 í eftirlønarlógini hjá tænastumonnum landsins. Hvørt eftirlønarár er íroknað í útrokningarprosentinum soleiðis, at 1-16 ár telja 1,75%, 17-32 ár 1,50% og 33 til 37 ár 1%.

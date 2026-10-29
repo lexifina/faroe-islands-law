@@ -1,0 +1,2 @@
+§ 5. Eftirløntir lærarar, sum løntir eru ájavnt lønarstigi 26 og lægri hjá tænastumonnum landsins, fáa eina árliga viðbót, sum við 37 ára eftirlønaraldur er kr. 3.600,-, við 36, 35 og 34 ára eftirlønaraldur ávíkavist kr. 2.600,-, kr. 1.600,- og kr. 600,-. Eftirløntir lærarar, løntir ájavnt lønarstigunum 27, 28, 29, 30 og 31, fáa við sama eftirlønaraldur árliga viðbót, sum ávíkavist er 80, 60, 40, 20 og 10% av nevndu upphæddum.
+Stk. 2. Frá 1. januar í 2004 og 1. januar hvørt ár eftir tá verða árligu viðbøturnar í stk. 1 lækkaðar 200 kr. árliga.

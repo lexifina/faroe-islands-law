@@ -1,0 +1,1 @@
+§ 2. Lærari, hjúnafelagi og børn eftir lærara hava rætt til eftirløn eftir løgtingslóg nr. 32 frá 5. juli 1971 um tænastumannaeftirlønir, sum seinast broytt við Ll. nr. 24 frá 14.03.1997, við teimum avmarkingum, sum ásettar eru í §§ 3-7.
