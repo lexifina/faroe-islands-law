@@ -1,0 +1,1 @@
+§ 1. Ásetingarnar í hjálagda tvískattasáttmála millum Føroyar og Schweiz frá 23. november 1973, við tilknýttum protokollum, og sum seinast er broyttur við protokol frá 21. august 2009, fáa við hesum løgtingslógargildi.
