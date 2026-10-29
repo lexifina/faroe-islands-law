@@ -1,0 +1,4 @@
+§ 4. Landsapotekarin kann fremja eftirlit við, at tey, sum innflyta og selja medisinska útgerð, halda ásetingar og krøv í hesi løgtingslógini og í kunngerðum við heimild í hesi løgtingslógini.
+Stk. 2. Landsapotekarin kann harumframt fremja eftirlit við, at medisinsk útgerð, ið verður innflutt og seld í Føroyum, lýkur tey krøv, ið eru ásett í hesi løgtingslóg og kunngerðum, ið hava heimild í hesi løgtingslóg.
+Stk. 3. Umboð fyri Landsapotekaran hevur, við hóskandi samleikaprógvi og uttan rættarúrskurð, atgongd til øll viðkomandi søluhøli og goymsluhøli, ið verða nýtt av teimum, ið innflyta og selja medisinska útgerð, við atliti at fremja tað í stk. 1 og 2 nevnda eftirlit.
+Stk. 4. Landsapotekarin kann áleggja fyritøkum at útflýggja eintøk av útgerð umframt øll skjøl, ið eru neyðug til tess at fremja eftirlit á fullgóðan hátt.

@@ -1,0 +1,2 @@
+§ 8. Landsapotekarin kann áleggja einum framleiðara ella umboði fyri framleiðara, ið hevur ábyrgd av at marknaðarføra medisinska útgerð, at almannakunngera ella útflýggja upplýsingar um møgulig brek við útgerðini til heilsustarvsfólk og sjúkrahús.
+Stk. 2. Landsstýrismaðurin kann áseta krøv til form og innihald av teimum upplýsingum, ið nevndar eru í stk. 1. Landsapotekarin kann harumframt áseta freistir fyri, nær hesar upplýsingar skulu almannakunngerast ella útflýggjast.

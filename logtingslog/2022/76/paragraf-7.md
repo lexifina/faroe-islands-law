@@ -1,0 +1,1 @@
+§ 7. Landsstýrismaðurin kann áseta reglur, ið seta krøv til, at lýsingar av medisinskari útgerð skulu verða sakligar og dekkandi, og at lýsingin ikki má innihalda skeivar ella villleiðandi upplýsingar.

@@ -1,0 +1,3 @@
+§ 9. Við sekt verður tann revsaður, sum brýtur § 1, stk. 2, nr. 6 ella § 6, stk. 1. Harumframt verður tann, ið noktar umboðum fyri Landsapotekaran atgongd sbrt. § 4, stk. 3 revsaður við sekt. Eisini verður tann, ið sýtir at gera eftir boðum frá Landsapotekaranum sbrt. § 4, stk. 4 og § 8, revsaður við sekt, um ikki harðari revsing kann áleggjast eftir aðrari lóg.
+Stk. 2. Uttan so, at harðari revsing er ásett eftir aðrari lóg, verða brot á ásetingar í kunngerðum við heimild í hesi løgtingslógini revsað við sekt.
+Stk. 3. Feløg og aðrir løgfrøðiligir persónar koma undir revsiábyrgd eftir reglunum í kapitli 5 í revsilógini.
