@@ -1,0 +1,2 @@
+§ 1. Skráseting Føroya almannakunnger á heimasíðu stovnsins listan hjá Fíggjareftirlitinum við nøvnunum á politiskt ábærum persónum (PEP-listan). Skráseting Føroya ansar eftir, at tað er seinasti dagførdi listin hjá Fíggjareftirlitinum, ið er á heimasíðu stovnsins.
+Stk. 2. Skráseting Føroya samstarvar við Fíggjareftirlitið um dagføringar av PEP-listanum, sum Fíggjareftirlitið ger sambært bekendtgørelse for Færøerne om indberetning og offentliggørelse af oplysninger om politisk eksponerede personer.
