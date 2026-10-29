@@ -1,0 +1,1 @@
+§ 33. Innlendismálaráðið kann við hagtalsgerð ella vísindaligum endamáli fyri eyga geva atkomurætt til at leita og spyrja elektroniskt eftir upplýsingum í Landsfólkayvirlitinum. Treytin er, at móttakarin kann viðgera hesar upplýsingar sambært lógini um viðgerð av persónsupplýsingum. Innlendismálaráðið setir treytirnar, undir hesum treytir um trygdartiltøk og kostnað.

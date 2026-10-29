@@ -1,0 +1,2 @@
+§ 43. Øll hava rætt til, tá ið tey venda sær til eitt kommunustýri, at fáa váttan á føroyskum um núgaldandi og eldri upplýsingar, skrásettar í Landsfólkayvirlitinum ella í øðrum fólkayvirlitstilfari í hesi kommunu um sjálvan seg, undir hesum persónstølini hjá børnum sínum, hjúnafelaganum og foreldrum sínum.
+Stk. 2. Áheitanir um upplýsingar úr gomlum fólkayvirlitstilfari, ið kommunurnar ikki hava til skjals, skulu stílast til Innlendismálaráðið.

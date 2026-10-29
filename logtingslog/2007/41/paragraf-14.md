@@ -1,0 +1,8 @@
+## Kapittul 5
+## Flytingar til Føroya
+§ 14. Flytingar til Føroya kunnu bara verða skrásettar í Landsfólkayvirlitinum, um persónurin skal vera í landinum í meira enn 3 mánaðir.
+Stk. 2. Persónar, ið flyta úr einum Norðurlandi, hava bara skyldu at boða frá flyting, um teir skulu vera í Føroyum í meira enn 6 mánaðir.
+Onnur, ið flyta til Føroya, hava skyldu at boða frá flyting, um tey skulu vera í Føroyum í meira enn 3 mánaðir. Tann, ið flytur, skal í seinasta lagi 5 dagar eftir, at treytirnar í stk. 5 og § 15 eru loknar, boða kommununi, hann flytur til, frá flytingini. Flytifráboðanin kann eisini fevna um tey av húsfólkunum, ið flyta við, og sum eisini lúka treytirnar fyri skráseting, so at hesi sleppa undan at boða frá sjálvi.
+Stk. 3. Stuttar vitjanir uttanlands hava ikki við sær íslit í freistunum í stk. 1 og 2 fyri uppihaldi í Føroyum, tá ið viðkomandi í tíðarskeiðnum gistir oftast her á landi. At persónar, ið § 21, stk. 7-8 fevnir um, hava tilhald uttanlands, hevur ikki við sær íslit í freistunum í stk. 1 og 2.
+Stk. 4. Hevur kommunustýrið serliga orsøk til at halda, at eitt uppihald her á landi ikki fer at vara meira enn 3 mánaðir, kann kommunustýrið bíða við at skráseta flytingina, um ikki viðkomandi við skjalprógvi kann vísa kommunustýrinum á sannlíkindini fyri, at uppihaldið fer at vara neyðturviligu tíðina. Persónar, ið fyrstu ferð flyta higar til lands við uppihaldsloyvi, sum er givið við atliti at varandi loyvi, verða altíð taldir upp í tey, sum lúka tíðarkrøvini fyri skráseting.
+Stk. 5. Kommunustýrið kann einans skráseta eina flyting til Føroya, um viðkomandi hevur fastan bústað ella fast tilhald í landinum, sbr. § 6, stk. 1 og 2, og harumframt lýkur krøvini í § 15.

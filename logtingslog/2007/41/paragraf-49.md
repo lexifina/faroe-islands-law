@@ -1,0 +1,1 @@
+§ 49. Nýtir almennur myndugleiki persónstal, tá ið spurningar verða settir persónum í sambandi við viðurskifti teirra, skal persónstalið hjá tí, málið snýr seg um, verða nýtt. Somuleiðis kunnu persónar einans verða kravdir at upplýsa sítt egna persónstal, tá ið teir venda sær til almennan myndugleika í førum, sum § 48 fevnir um.

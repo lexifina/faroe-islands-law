@@ -1,0 +1,3 @@
+§ 31. Ein myndugleiki kann bara lata upplýsingar, undir hesum vard nøvn og bústaðir, fingnar eftir §§ 28-30, víðari til aðrar almennar myndugleikar ella privat, tá ið hetta er heimilað í lóg, ella tá ið Innlendismálaráðið hevur givið loyvi til tess.
+Stk. 2. Ein myndugleiki, ið eftir §§ 28-30 fær upplýsingar um vard nøvn og bústaðir, skal viðgera tær soleiðis, at privat ikki fáa atgongd til hesar. Herumframt skal myndugleikin í øllum førum, tá ið ræður um nøvn og bústaðir, skráseta, at upplýsingarnar eru vardar. Verða vardar navna- og bústaðarupplýsingar latnar víðari, sbr. stk. 1, eigur altíð samstundis at verða boðað frá, at upplýsingarnar eru vardar.
+Stk. 3. Reglurnar í stk. 2 eru kortini ikki galdandi, tá ið annað er heimilað í lóg.

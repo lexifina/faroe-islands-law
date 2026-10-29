@@ -1,0 +1,3 @@
+§ 2. Innlendismálaráðið situr fyri Landsfólkayvirlitinum saman við kommunustýrunum samsvarandi hesi lóg. Landsstýrismaðurin ásetir nærri reglur um leiklutin hjá kommunustýrunum at halda Landsfólkayvirlitið við líka.
+Stk. 2. Kommunustýrini røkja skyldurnar eftir hesi lóg við Landsfólkayvirlitinum sum undirstøði, ella, um so er, at landsstýrismaðurin hevur gjørt nærri ásetingar um tað, eftir øðrum skráum, ið einans hava Landsfólkayvirlitið sum undirstøði, og goyma upplýsingar í dagførdum formi.
+Stk. 3. Aðrir myndugleikar halda Landsfólkayvirlitið við líka sambært reglum, ið avvarðandi landsstýrismaður hevur ásett eftir samráðing við landsstýrismannin í innlendismálum.

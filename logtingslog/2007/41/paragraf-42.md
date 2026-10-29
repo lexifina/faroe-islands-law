@@ -1,0 +1,1 @@
+§ 42. Øll hava rætt til frá einum kommunustýri at fáa upplýst nøvn á persónum, ið sambært Landsfólkayvirlitinum eru skrásett á bústaði, sum viðkomandi kann skjalprógva, at hann sjálvur eigur, eigur part í ella leigar. Hetta er galdandi, hóast nøvn og bústaðir hjá skrásettu persónunum eru vard.

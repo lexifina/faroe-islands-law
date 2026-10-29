@@ -1,0 +1,2 @@
+§ 47. Kommunustýri og Innlendismálaráðið kunnu hvør sær gera av, at fyrispurningar eftir §§ 39, 40, 42, 43 og 44-46 skulu vera skrivligir.
+Stk. 2. Kommunustýri og Innlendismálaráðið kunnu krevja, at rindast skulu upp til 50 kr. fyri útreiðslurnar, ið standast av hvørjum fyrispurningi. Eisini kann krevjast, at móttakarin rindar allan kostnaðin, ið stendst av at lata upplýsingar víðari eftir §§ 44-46. Kommunustýri og Innlendismálaráðið kunnu krevja, at rindað verður, áðrenn fyrispurningurin verður svaraður, ella áðrenn upplýsingarnar verða latnar víðari.

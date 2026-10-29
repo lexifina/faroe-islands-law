@@ -1,0 +1,3 @@
+§ 10. Metir kommunustýrið, eftir at kanning er gjørd, at persónur er skeivt skrásettur, skal kommunustýrið skrivliga heita á viðkomandi um at boða frá flyting innan 14 dagar, og skal samstundis upplýsa, hvat fráboðanin er grundað á.
+Stk. 2. Hevur kommunustýrið innan 14 dagar eftir, at brævið má haldast vera komið fram, einki frætt, sum broytir áskoðan kommunustýrisins um rætta bústaðin, ella hevur ikki verið gjørligt at fáa samband við viðkomandi, skal kommunustýrið skráseta rætta bústaðin, undir hesum møguliga flyting úr Føroyum.
+Stk. 3. Kommunustýrið skal skrivliga boða viðkomandi frá avgerðini um bústaðarbroyting, og hvat avgerðin er grundað á.

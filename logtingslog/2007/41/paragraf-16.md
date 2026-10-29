@@ -1,0 +1,2 @@
+§ 16. Útlendskir ríkisborgarar í Føroyum, ið eru skrásettir í protokollini hjá uttanríkisráðnum, verða ikki skrásettir í Landsfólkayvirlitinum sum fluttir til landið. Sama er galdandi fyri útlendskar ríkisborgarar, sum eru í Føroyum í hernaðarligari tænastu, í tann mun hesir eru undantiknir sambært altjóða avtalum, ið danska ríkið hevur bundið seg til, og sum lýstar eru at galda í Føroyum.
+Stk. 2. Útlendsk familja hjá teimum, ið stk. 1 fevnir um, og sum hoyrir til húskið, verður heldur ikki skrásett í Landsfólkayvirlitinum, tá ið hon flytur til Føroya.

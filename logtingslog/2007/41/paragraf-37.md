@@ -1,0 +1,3 @@
+§ 37. Innlendismálaráðið setir treytirnar, undir hesum treytir um trygdartiltøk og kostnað, fyri at lata upplýsingar úr Landsfólkayvirlitinum eftir § 35, stk. 1-4 og § 36.
+Stk. 2. Upplýsingar, ið eru fingnar eftir §§ 35 og 36, mugu ikki latast øðrum privatum, uttan so, hetta er heimilað í lóg, ella tá ið Innlendismálaráðið hevur givið loyvi til tess. Tá ið navna- og bústaðarupplýsingar verða latnar øðrum, eiga samstundis møgulig frámerki um vernd av nøvnum og bústøðum at verða upplýst.
+Stk. 3. Ikki er loyvt skuldaraupplýsingarvirkjum at lata víðari upplýsingar um vard nøvn og bústaðir, ið tey hava útvegað sær eftir § 35, stk. 4.

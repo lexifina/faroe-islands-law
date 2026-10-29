@@ -1,0 +1,3 @@
+§ 50. Almennir myndugleikar hava skyldu til at ansa eftir, at eingin óviðkomandi fær upplýsingar um persónstøl. Persónstøl mugu ikki setast á brævbjálvar, síggjast ígjøgnum brævbjálvar við rúti ella síggjast á øðrum sendingum. Er í onkrum tílíkum føri neyðugt at tilskila samleikan hjá móttakaranum, skal persónstalið kámast, so ikki ber til at kenna tað aftur.
+Stk. 2. Persónstal kann setast á girokort, um tað verður sent viðkomandi í afturlatnum brævbjálva.
+Stk. 3. Tað er ikki loyvt at almannakunngera persónstøl, uttan so at tað snýr seg um proklama í sambandi við deyðsbúgv, ella at hetta er heimilað í lóg.

@@ -1,0 +1,1 @@
+§ 34. Innlendismálaráðið kann við hagtalsgerð ella vísindaligum endamáli fyri eyga gera av at lata upplýsingar úr gomlum fólkayvirlitstilfari hjá Landsfólkayvirlitinum. Treytin er, at móttakarin kann viðgera hesar upplýsingar sambært lógini um viðgerð av persónsupplýsingum. Innlendismálaráðið kann krevja gjald fyri útreiðslurnar, ið standast av at lata upplýsingarnar.

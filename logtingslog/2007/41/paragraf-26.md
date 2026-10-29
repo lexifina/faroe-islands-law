@@ -1,0 +1,2 @@
+§ 26. Øll kunnu venda sær til bústaðarkommununa til at fáa frámerki sett í Landsfólkayvirlitið, sum tryggjar, at viðkomandi ikki fær áheitanir í sambandi við hagtalsligar og vísindaligar kanningar, sum Innlendismálaráðið sbrt. §§ 32 og 33 letur upplýsingar til ella ger adressulistar til og sendir út tilfar eftir.
+Stk. 2. Øll kunnu venda sær til bústaðarkommununa til at fáa frámerki sett í Landsfólkayvirlitið, sum vísir, at viðkomandi vil sleppa undan áheitanum í sambandi við marknaðarføring.

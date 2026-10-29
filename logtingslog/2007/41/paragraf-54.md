@@ -1,0 +1,4 @@
+§ 54. Kommunustýrið kann boða viðkomandi frá, at brot á reglurnar í § 53, stk. 1, nr. 1-3 og nr. 5 kunnu avgreiðast uttan rættarsókn, um so er, at tann, ið hevur framt brotið, játtar seg sekan í lógarbrotinum og váttar seg at vera til reiðar innan nærri ásetta freist, sum í undantaksføri kann verða longd eftir áheitan, at rinda kommunukassanum ávísa sekt, sum tilskilað er í fráboðanini.
+Stk. 2. [^3] Reglurnar í rættargangslógini um innihaldið í ákæruritum, skulu nýtast samsvarandi, tá ið fráboðanir verða kunngjørdar eftir stk. 1.
+Stk. 3. Verður sektin rindað rættstundis ella eftir, at hon er samtykt, antin gjøgnum innheinting ella við at viðkomandi á annan hátt hevur liðið revsing fyri hana, fellur málið burtur.
+Stk. 4. Bøtur sambært hesi grein kunnu heintast inn við panting. Peningurin fyri hesar bøturnar fer í kommunukassan. Útreiðslur í sambandi við innheintan verða at rinda av tí, ið hevur framt brotið.
