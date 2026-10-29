@@ -1,0 +1,4 @@
+§ 3. Útleigarin kann rokna avgjald av keypi, ið viðvíkur nýbygging, umbygging, nútímansgerð, umvæling, viðlíkahaldi, rakstri og fyrisiting av útleigaðu føstu ognini við í inngangandi avgjald sambært vanligu reglunum í løgtingslóg um meirvirðisgjald.
+Stk. 2. Tá ið farið verður undir at byggja til útleigu, er treytin fyri frádráttarrætti, meðan bygging fer fram, at TAKS góðkennir eina váttan frá útleigaranum, um í hvønn mun leigusáttmálin fyri ognina kann væntast at vera fevndur av skrásetingini.
+Stk. 3. Í seinasta lagi 6 mánaðir aftaná, at bygningurin er liðugur at taka í nýtslu, skal gerast endalig útrokning og javning av tí avgjaldsupphædd, sum útleigarin kann rokna við í inngangandi avgjaldi. Útrokningin skal vera grundað á skjalprógv fyri nýtslu av bygninginum.
+Stk. 4. Einans høli, ið eru útleigað, áðrenn 6 mánaða freistin er farin, verða mett at vera fevnd av skrásetingini. TAKS kann leingja freistina sbrt. stk. 3.

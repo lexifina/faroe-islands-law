@@ -1,0 +1,2 @@
+§ 5. Verður vavið á sjálvbodnu skrásetingini viðvíkjandi útleigu av fastari ogn broytt, av tí at leigumálið ikki longur er fevnt av skrásetingini, skal javning av inngangandi avgjaldi fara fram sbrt. reglunum í kunngerð um lutfalsligan frádráttarrætt fyri mvg og um javnan av inngangandi avgjaldi av íløgugøgnum.
+Stk. 2. Eitt virki, ið er sjálvboðið skrásett fyri útleigu, hevur skyldu at fráboða TAKS broytingar sum føra við sær javning av avgjaldi.

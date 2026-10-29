@@ -1,0 +1,1 @@
+§ 6. Tann, ið við vilja ella av grovum ósketni brýtur §§ 2, stk. 1-2, § 3, stk. 2-4, § 4, stk. 2-3 og § 5 verður revsaður við sekt, uttan so at hann er skyldugur til harðari revsing sbrt. § 33, stk. 1 og 3 í løgtingslóg um meirvirðisgjald. Reglurnar í § 33, stk. 4 og § 34 í løgtingslóg um meirvirðisgjald eru samsvarandi galdandi sambært hesi kunngerð.
