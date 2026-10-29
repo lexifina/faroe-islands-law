@@ -1,0 +1,1 @@
+§ 1. Endamálið við kunngerðini er at minka um útbreiðsluna av laksalús soleiðis, at skaðaárinið á fisk í aliútbúnaði og á villan fisk verður sum minst, umframt at minka um og at niðurberja mótstøðuførið hjá laksalús.

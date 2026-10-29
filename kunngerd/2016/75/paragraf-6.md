@@ -1,0 +1,3 @@
+§ 6. Úrslitið av hvørjari viðgerð skal eftirmetast. Tann, sum hevur útskrivað heilivágin, ger eftirmetingina. Er viðgerðin gjørd uttan heilivág, ger tann, ið hevur ábyrgd av viðgerðini, eftirmetingina. Nýggj lúsateljing skal gerast beint eftir, at viðgerðin er liðug, sbrt. vegleiðing frá framleiðara. Um viðgerðin er ófullfíggjað í mun til tað, sum væntast kann fyri viðgerðarevnið, ið nýtt verður, skal orsøkin greinast.
+Stk. 2. Ófullfíggjað viðgerð, illgruni um mótstøðuføri og ávísing av mótstøðuføri skulu verða fráboðað Heilsufrøðiligu starvsstovuni beinanvegin.
+Stk. 3. Um illgruni er um mótstøðuføri ella um mótstøðuføri er ávíst, skal viðgerast av nýggjum við einum øðrum evni.
