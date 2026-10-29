@@ -1,0 +1,9 @@
+## Fríborðsviðurskifti fyri skip undir 24 m til longdar
+§ 6. Skip sum eru undir 24 m til longdar skulu hava eitt trygdarstøði, sum lýkur treytirnar í Lastalinju-sáttmálanum.
+Stk. 2. Fríborð verður lutað út frá treytum í Lastalinju-sáttmálanum við fyriliti fyri skrokkstyrkini á skipinum, stabiliteti, flótievni og siglingarøki.
+Stk. 3. Fríborð verður ásett út frá einum tabelfríborði á 200 mm og verður rættað við teimum viðkomandi parametrunum í Lastalinju-sáttmálanum. Har parameturvirði ikki beinleiðis kunnu úrleiðast úr Lastalinju-sáttmálanum, verða virði fyri skip á 24 m ella longri brúkt.
+Stk. 4. Fríborð eigur fyri farmaskip vanliga ikki at vera minni enn 150 mm. Tó kann, undir serligum umstøðum og við atliti til árstíð og longd á ferðini, loyvast eitt minni fríborð, men má hetta ongantíð vera minni enn 50 mm.
+Stk. 5. Dekslinja og fríborðmerki verða merkt sum ávíst í Lastalinju-sáttmálanum fyri eitt lastalinjumerki, men uttan bókstavir sum vísa til tann, ið hevur útgivið fríborðsloyvisbrævið. Á minni skipum kann fríborðsmerkið hava ein minni diametur, tó ikki minni enn 200 mm í diametri uttaná.
+Stk. 6. Á framstavni og hekku verða sett djúpgangsmerki í desimetrum á báðum síðum. Merkini verða sett so nær perpendikulærunum sum møguligt.
+Stk. 7. Sjóvinnustýrið ella eitt góðkent klassafelag tilskila góðkenda fríborðið á National Cargo Ship Safety Certificate fyri farmaskip, tá tað við einum nøktandi sýni er tryggjað, at hendan fyriskipanin er hildin. Fríborðsviðurskifti verða annars sýnað í sambandi við endurnýggjan av National Cargo Ship Safety Certificate fyri farmaskip.
+Stk. 8. Á ferðamannaskipum tilskilar Sjóvinnustýrið ella eitt góðkent klassafelag góðkenda fríborðið í fríðborðsloyvisbrævið, tá tað við einum nøktandi sýni er tryggjað, at hendan fyriskipan er hildin. Fríborðsviðurskifti verða annars sýnað í sambandi við endurnýggjan av Passenger Ship Safety Certificate fyri ferðamannaskip.
