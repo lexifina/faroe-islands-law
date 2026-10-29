@@ -1,0 +1,2 @@
+§ 2. Rithøvundur, tónaskald, týðari, upplesari, myndlistafólk ella fotografur skal vera skrásettur ella skrásett sum móttakari av bókasavnsgjaldi á Landsbókasavninum.
+Stk. 2. Tey, ið ikki áður hava fingið bókasavnsgjald, skulu lata inn umsókn um at verða skrásett sum móttakari av bókasavnsgjaldi á serstøkum oyðublaði, ið skal vera Landsbókasavninum í hendi í seinasta lagi 1. oktober. Eru broytingar í viðurskiftunum hjá móttakara, skulu hesar eisini fráboðast Landsbókasavninum á serstøkum oyðublaði frá Landsbókasavninum.
