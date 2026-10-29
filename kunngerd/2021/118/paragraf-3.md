@@ -1,0 +1,5 @@
+## Fráboðanarskylda og skylda at flyta øki
+§ 3. [^1] Er íblandingin av ungfiski, sambært § 2, stk. 1, størri enn tað hámark, ið ásett er sambært § 2, stk. 2, skal skiparin beinanvegin boða Vørn frá umvegis fráboðanarskipanina á heimasíðuni www.vorn.fo ella umvegis elektronisku veiðidagbókina, sum er góðkend av Vørn.
+Stk. 2. [^1] Er íblandingin av ungfiski av ávikavist upsa, toski ella hýsu størri enn tað hámark, ið ásett er sambært § 2, stk. 2, skal fiskifarið alt fyri eitt gevast at fiska í økinum. Fiskifar, sum roynir við troli, línu ella snellu, skal flyta í minsta lagi 5 fjórðingar frá eini og hvørjari knattstøðu á ávikavist tóvinum, setuni ella fiskiøkinum næstu 72 tímarnar.
+Stk. 3. [^1] Er íblandingin av ungfiski av ávikavist svartkjafti, sild ella makreli størri enn tað hámark, ið ásett er sambært § 2, stk. 2, skal fiskifarið alt fyri eitt gevast at fiska í økinum, og skal fiskifarið flyta í minsta lagi 10 fjórðingar frá eini og hvørjari knattstøðu á tóvinum næstu 72 tímarnar.
+Stk. 4. [^1] Skiparin hevur skyldu at upplýsa íblandingina av ungfiski.
