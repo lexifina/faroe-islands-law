@@ -1,0 +1,1 @@
+§ 6. Avvarðandi landsmyndugleiki ásetir í samráð við løgmann nærri reglur fyri flutningi av evnavørum, ið koma undir eftirlit samsvarandi evnavørulistum sáttmálans, til og úr londum, ið ikki eru bundin av sáttmálanum.

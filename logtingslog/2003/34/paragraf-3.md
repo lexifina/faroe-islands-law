@@ -1,0 +1,1 @@
+§ 3. Um umsjónarfólk ella eygleiðari í starvi teirra her á landi elva til skaða, heftir avvarðandi landsmyndugleiki landskassans vegna eftir teim reglum, ið høvdu verið galdandi, um skaðin varð gjørdur av starvsfólki hjá landsmyndugleikunum.

@@ -1,0 +1,3 @@
+§ 9. [^1] Ásetir onnur lóg ikki harðari revsing, verður tann, sum við vilja ella av grovum ósketni letur frá sær skeivar ella villandi upplýsingar ella dylur upplýsingar sambært § 5, stk. 1, revsaður við bót ella undir herðandi umstøðum við fongsli upp til 2 ár.
+Stk. 2. Í reglum, ið verða gjørdar við heimild í hesi lóg, kann verða ásett, at brot á reglurnar verða revsað við bót.
+Stk. 3. Fyri brot, sum verða framd av løgfrøðiligum persóni sum t.d. partafelagi ella lutafelagi, kann tann løgfrøðiligi persónurin verða revsaður sum slíkur. Er brotið framt av landinum, kommunu ella kommunalum felagsskapi, kann landinum, kommununi ella kommunala felagsskapinum verða áløgd bót.
