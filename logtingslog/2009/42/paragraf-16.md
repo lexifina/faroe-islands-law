@@ -1,0 +1,3 @@
+§ 16. Hóast ásetingina í § 6 verður rakstrarjáttan sett upp sum nettoútreiðslujáttan. Er inntøkan hægri enn ætlað, kunnu verða hildnar fleiri útreiðslur, bert ikki verður farið út um nettoútreiðslujáttanina. Er inntøkan minni enn ætlað, hevur hetta við sær, at útreiðslurnar skulu skerjast samsvarandi.
+Stk. 2. Hóast ein játtan verður latin sum nettojáttan, verða inntøkur og útreiðslur settar upp fyri seg í viðmerkingunum (meginreglan um at skráseta brutto), um ikki landsstýrismaðurin í fíggjarmálum gevur loyvi til at víkja frá meginregluni.
+Stk. 3. Í viðmerkingunum til rakstrarjáttan skulu vera yvirlit yvir starvsfólkanýtslu, sum vísir lønarsamtøl og tal av ársverkum.

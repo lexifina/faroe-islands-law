@@ -1,0 +1,1 @@
+§ 9. Samstundis sum fíggjarlógaruppskotið verður lagt fram, leggur landsstýrismaðurin við fíggjarmálum fram frágreiðing (Búskaparfrágreiðing II), sum gjølligari lýsir og metir um innihaldið í fíggjarlógaruppskotinum og greiðir frá játtanareftirlitinum í fíggjarárinum.

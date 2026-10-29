@@ -1,0 +1,1 @@
+§ 20. Landsstýrismaðurin í fíggjarmálum kann loyva, at tað undir rakstrarjáttan kann fara fram virksemi av ikki handilsligum slag, sum er fíggjað við stuðli, og sum er sprottið úr vanliga virksemi stovnsins.

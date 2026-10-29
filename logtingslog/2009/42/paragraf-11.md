@@ -1,0 +1,2 @@
+§ 11. Viðmerkingarnar til fíggjarlógaruppskotið skulu hava tilvísingar til lógarásetingar, sum gera av, hvussu játtanin verður nýtt, lýsing av teimum úrslitum, miðað verður eftir við játtanini, og upplýsingar um nádd úrslit o.t.
+Stk. 2. Inntøkur og útreiðslur verða vístar í fleirárs yvirlitum, sum fevna um síðstu roknskapirnar, fíggjarlógina, fíggjarlógaruppskotið og veruligar fíggjarætlanir fyri fylgjandi fíggjarár.
