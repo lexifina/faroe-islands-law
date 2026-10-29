@@ -1,0 +1,2 @@
+§ 1. Persónur, sum hevur fastan bústað í Føroyum ella áður hevur búð í Føroyum í samanlagt 5 ár, kann keypa fastogn uttan loyvi frá landsstýrismanninum. Tað sama er galdandi fyri persón við donskum ríkisborgaraskapi, sum hevur búð í øðrum parti av ríkinum í samanlagt 5 ár.
+Stk. 2. Felag ella annar løgfrøðiligur persónur, sum hevur sítt høvuðssæti í Føroyum, kann keypa fastogn í Føroyum uttan loyvi frá landsstýrismanninum.
