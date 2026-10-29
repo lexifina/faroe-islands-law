@@ -1,0 +1,1 @@
+§ 3. Sjóvinnustýrið kann eftir umsókn frá avvarðandi havnamyndugleika í einstøkum førum og undir nærri ásettum treytum loyva, at ferðafólk verða flutt av einum ferðamannaskipi til eina havn, sum ikki er ISPS-góðkend.
