@@ -1,0 +1,1 @@
+§ 2. Í sambandi við tær skyldubundnu, tíðarvissu sýningarnar av motorakførum, ið nýtt verða til vinnuligan fólkaflutning, ansar bileftirlitsmaðurin eftir, at hesi motorakfør framhaldandi eisini lúka krøvini í hesari kunngerð.

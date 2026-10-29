@@ -1,0 +1,3 @@
+§ 4. Henda kunngerð kemur í gildi 1. apríl 1967.
+Stk. 2. Viðvíkjandi motorakførum, sum skrásett eru til vinnuligan fólkaflutning, áðrenn henda kunngerð kemur í gildi, verða reglurnar um áseting av góðkendum tali av fólkum o.a.m., tó ikki nýttar, fyrr enn 6 mánaðir eru lidnir, frá tí at kunngerðin er sett í gildi; hesir vognar kunnu so til tá framvegis verða nýttir sum teir eru viðvíkjandi tí, sum viðgjørt er frammanundan.
+Stk. 3. Bileftirlitsmaðurin kann saman við landfútanum víkja frá ásetingunum í hesi kunngerð, tá ið tað í einstaka førinum verður hildið at vera rímiligt og ráðiligt, og tá ið av hesum, frávik ikki verða gjørd í fyrisetingunum í ferðslulógini.
