@@ -1,0 +1,2 @@
+§ 4 a. [^1] § 4 er ikki galdandi fyri skip, sum einans sigla innanoyggja í Føroyum. Hesi skip kunnu burturbeina óviðgjørt kloakkspillivatn. Burturbeiningin skal gerast so langt úr landi, sum siglingarleiðin loyvir tí, og í minsta lagi hálvan fjórðing úr landi og hálvan fjórðing frá aliøkjum.
+Stk. 2. [^1] Eftir 1. juni 2020 er bannað at burturbeina kloakkspillivatn sambært stk. 1, sum ikki er malið og sóttreinsað.
