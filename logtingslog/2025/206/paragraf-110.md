@@ -1,0 +1,1 @@
+§ 110. Fyritøkan skal upplýsa navn og heimstað hjá teimum móðurfyritøkum, sum gera samtaksroknskap fyri ávikavist størsta og minsta samtakið, sum fyritøkan er dótturfyritøka í. Harumframt skal upplýsast, hvar samtaksroknskapirnir fyri viðkomandi útlendsku móðurfyritøkur kunnu heintast.

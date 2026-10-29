@@ -1,0 +1,3 @@
+§ 29. Við hvønn post í fíggjarjavnanum og rakstrarroknskapinum skulu samsvarandi upphæddir verða tilskilaðar fyri undanfarna roknskaparár. Eru postarnir ikki beinleiðis sambæriligir við postarnar undanfarna ár, skulu síðstnevndu tillagast. Fyritøkan kann tó lata vera við at tillaga samanberingartøl, um orsøkin til, at parpostarnir ikki kunnu samanberast eru broytingar í ognum fyritøkunnar.
+Stk. 2. Postar í fíggjarjavnanum og rakstrarroknskapinum, sum ikki vísa eina upphædd, skulu einans takast við, um posturin varð tikin við í undanfarna ársroknskapi.
+Stk. 3. Stk. 1 og 2 eru galdandi í sambandi við upplýsingar í notunum, í tann mun samanberingartøl eru kravd í hesi løgtingslóg.

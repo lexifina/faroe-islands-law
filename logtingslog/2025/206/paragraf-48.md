@@ -1,0 +1,3 @@
+§ 48. Kostprísur, dagsvirði ella endurvinningarvirði fyri materiella ella immateriella støðisogn við avmarkaðari nýtslutíð skulu lækkast við avskrivingum, sum miða ímóti, at ognir verða avskrivaðar miðvíst í nýtslutíðini. Hetta er tó ikki galdandi fyri ognir, sum javnan verða virðisjavnaðar til dagsvirði sambært § 43.
+Stk. 2. Avskrivingar skulu roknast við fyriliti fyri tí restvirði, sum ognin væntast at hava eftir lokna nýtslutíð.
+Stk. 3. Í serligum førum, har ein fyritøka ikki er før fyri at gera eina neyva meting viðvíkjandi nýtslutíðini viðvíkjandi goodwill ella menningarútreiðslum, verður metta nýtslutíðin sett til 10 ár.

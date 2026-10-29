@@ -1,0 +1,2 @@
+§ 179. Í heilt serligum førum kann Skráseting Føroya heilt ella lutvíst frítaka ein leiðslulim ella ein deildarleiðara frá at rinda avgjaldið sambært § 178, um viðkomandi kann veita prógv fyri at hava roynt at latið ársfrásøgnina, o.a. inn , og at seinkingin tískil ikki kann ábyrgjast viðkomandi persóni.
+Stk. 2. Tað frítekur ikki í sjálvum sær ein leiðslulim frá ábyrgd, at tey viðurskiftir, sum elva til ábyrgdina, standast av gerðum ella óvirkni hjá fyritøkunnar starvsfólkum, ráðgevum ella øðrum.

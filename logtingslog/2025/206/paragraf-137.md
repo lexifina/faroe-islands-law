@@ -1,0 +1,3 @@
+§ 137. Samtaksroknskapurin skal hava sama fíggjarjavnadag sum móðurfyritøkunnar ársroknskapur.
+Stk. 2. Liggur fíggjarjavnadagurin hjá einari dótturfyritøku, sum er konsoliderað, í mesta lagi tríggjar mánaðir undan móðurfyritøkunnar fíggjarjavnadag, kann dótturfyritøkan takast við í konsolideringini við støði í sínum ársroknskapi.
+Stk. 3. Liggur fíggjarjavnadagurin hjá einari dótturfyritøku, sum er konsoliderað, meira enn tríggjar mánaðir undan móðurfyritøkunnar fíggjarjavnadag, ella eftir móðurfyritøkunnar fíggjarjavnadag, skal dótturfyritøkan takast við í samtaksroknskapin við støði í einum serligum roknskapi, gjørdur samsvarandi hesi løgtingslóg móðurfyritøkunnar fíggjarjavnadag.

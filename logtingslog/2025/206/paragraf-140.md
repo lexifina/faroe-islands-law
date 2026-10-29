@@ -1,0 +1,4 @@
+## Innrokning og máting
+§ 140. Tær ognir og skyldur, inntøkur og útreiðslur, sum eru fevndar av konsolideringini, skulu innroknast og mátast eftir einsháttaðum leisti samsvarandi ásetingunum fyri ársroknskapir í roknskaparflokki C sambært §§ 37-57, 80 og 84-87. Kapitalpartar í leyst atknýttum fyritøkum skulu tó innroknast og mátast eftir innaravirðisháttinum sambært § 49, stk. 2-6.
+Stk. 2. Í samtaksroknskapinum verða, so vítt møguligt, nýttir somu hættir fyri innrokning og grundarlag fyri máting, sum í móðurfyritøkunnar ársroknskapi. Nýta konsolideraðar dótturfyritøkur aðrar hættir og grundarløg í teirra egna ársroknskapi, skal ein nýggjur roknskapur gerast við tí fyri eyga at gera samtaksroknskap, har innroknað og mátað verður samsvarandi teimum hættum og grundarløgum, sum eru nýtt í móðurfyritøkunnar egna ársroknskapi.
+Stk. 3. Vikið kann vera frá stk. 2, 2. pkt. í serligum førum.

@@ -1,0 +1,2 @@
+§ 34. Undir postinum Framleiðslukostnaðir í virkisbýtta rakstrarroknskapinum verða innroknaðir teir kostnaðir, sum eru nýttir í framleiðsluni til tess at røkka søluni.
+Stk. 2. Í postunum Framleiðslukostnaðir, Útbreiðslukostnaðir og Fyrisitingarkostnaðir í tí virkisbýtta rakstrarroknskapinum roknast avskrivingar og niðurskivingar uppí, umframt starvsfólkakostnaðir, sum eru knýttir at nevnda virksemi.

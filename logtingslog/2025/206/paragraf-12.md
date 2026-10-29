@@ -1,0 +1,3 @@
+§ 12. Sjálvt um ein limur í leiðsluni heilt ella lutvíst er ósamdur í einari ársfrásøgn ella mælir ímóti, at ársfrásøgnin verður góðkend við tí innihaldi, sum er avgjørt, kann leiðslulimurin ikki sýta fyri at undirskriva ársfrásøgnina.
+Stk. 2. Leiðslulimur hevur rætt til at mótmæla í sambandi við, at ársfrásøgnin verður undirskrivað ella í sambandi við leiðsluátekningina. Mótmæli sambært 1. pkt. skal tó vera ítøkiligt og nøktandi grundgivið, og viðurskiftini týðandi, sbr. § 16, stk. 1, nr. 3.
+Stk. 3. Vil leiðslan í fyritøkuni mótmæla einari niðurstøðu, sum eftirlitsmyndugleikin sambært hesi løgtingslóg hevur gjørt, og sum hevur týdning fyri ársfrásøgnina, skal mótmæli setast fram í seinasta lagi í sambandi við leiðsluátekningina.

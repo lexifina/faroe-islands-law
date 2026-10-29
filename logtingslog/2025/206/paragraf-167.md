@@ -1,0 +1,4 @@
+## Um hvussu útlendskar fyritøkur við einari deild í Føroyum skulu lata ársfrásøgn inn
+§ 167. Deildarleiðarin í einari deild, sum er skrásett hjá Skráseting Føroya, og sum er ein deild í einari útlendskari fyritøku, skal lata grannskoðaðu ársfrásøgnina fyri útlendsku fyritøkuna inn, soleiðis at Skráseting Føroya hevur móttikið ársfrásøgnina í seinasta lagi 6 mánaðir eftir, at roknskaparárið er liðið. Víkjast kann ikki frá hesi freist, og roknskapurin fyri deildina kann ikki latast inn í staðin.
+Stk. 2. Innlatna ársfrásøgnin skal í minsta lagi framstanda soleiðis, sum hon er gjørd og almannakunngjørd samsvarandi reglunum í tí landi, sum fyritøkan er heimahoyrandi í.
+Stk. 3. Ársfrásagnir fyri útlendskar fyritøkur nýtast ikki at vera grannskoðaðar, um fyritøkan er fevnd av lóggávuni í einum ES/EBS-landi og grannskoðan av ársfrásøgnini ikki er kravd sambært tí lóggávu, sum er galdandi fyri fyritøkuna í viðkomandi ES/EBS-landi.

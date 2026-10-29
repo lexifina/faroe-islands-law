@@ -1,0 +1,1 @@
+§ 66. Fyritøkan skal upplýsa um positivar og negativar munir í upphæddum, sum verða staðfestir í sambandi við, at kapitalpartar verða innroknaðir fyrstu ferð sambært § 49. Munirnir í upphæddum verða roknaðir út sambært § 142, sbr. §§ 143 og 144.

@@ -1,0 +1,7 @@
+## Kapittul 8
+## Innrokning og máting
+## Almennar ásetingar
+§ 37. Ognir verða innroknaðar í fíggjarjavnan, tá ið tað er sannlíkt, at fíggjarligir fyrimunir fara at koma fyritøkuni til góðar í framtíðini, og virðið á ognini kann gerast upp álítandi. Uttan mun til lýsingina í skjali 1, C, nr. 1, kann fyritøkan tó lata vera við at innrokna ognir, sum fyritøkan ikki eigur. Fyritøkan kann harumframt lata vera við at innrokna innanhýsis menningarverkætlanir og innanhýsis ment rættindi, heruppií patent og líknandi rættindi. Fyritøkan kann ikki innrokna aðra innanhýsis menta ogn.
+Stk. 2. Uttan mun til stk. 1 kunnu eventualognir fyrst innroknast, tá ið ognin eftir øllum líkindum fer at elva til ein fíggjarligan fyrimun, sum fer at koma fyritøkuni til góðar í framtíðini.
+Stk. 3. Skyldur skulu innroknast í fíggjarjavnan tá ið tað er sannlíkt, at fíggjarligir fyrimunir fara at fara frá fyritøkuni í framtíðini, og virðið á skylduni kann mátast álítandi. Innroknar fyritøkan ikki ognir, sum eru nevndar í stk. 1, 2. pkt. kunnu skyldur sum hoyra til heldur ikki innroknast, tað veri seg uttan mun til, hvussu skyldur eru allýstar í skjali 1, C, nr. 7.
+Stk. 4. Tá ið ognir og skyldur verða innroknaðar og mátaðar, skal fyrilit havast fyri øllum viðurskiftum, heruppií váðar og hall havd í væntu, sum eru íkomin, áðrenn ársfrásøgnin er liðugt gjørd, og sum sanna ella avsanna viðurskifti, sum eru íkomin í seinasta lagi fíggjarjavnadagin.

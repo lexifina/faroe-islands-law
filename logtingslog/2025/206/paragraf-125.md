@@ -1,0 +1,3 @@
+## Leiðslufrágreiðingin
+§ 125. Upplýsast skal um tey leiðslustørv, sum limir í leiðsluni hava í øðrum vinnufyritøkum, tó ikki fyri tey dótturfeløg, sum eitt partafelag ella partnaðarfelag eigur 100%. Er viðkomandi bæði limur í leiðsluni hjá einum øðrum móðurfelagi og í einum ella fleiri av tess dótturfeløgum, sum móðurfelagið eigur 100%, er tað uttan mun til 1. pkt. nóg mikið at upplýsa navnið á móðurfelagnum og talið av tess dótturfeløgum, har viðkomandi er limur í leiðsluni.
+Stk. 2. Eru upplýsingar um væntaðu gongdina almannakunngjørdar í árinum, skulu upplýsingar sambært § 118 gevast í mun til seinastu almannakunngjørdu lýsingina.

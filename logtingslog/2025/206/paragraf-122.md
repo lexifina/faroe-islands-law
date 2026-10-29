@@ -1,0 +1,2 @@
+## Upplýsingar
+§ 122. Fyritøkan skal upplýsa navn og bústað ella heimstað, umframt neyvu eigararættindini og atkvøðurættindini fyri ein og hvønn, sum eigur partabrøv í fyritøkuni, tá ið atkvøðurættindini, ið eru knýtt at partabrøvunum í minsta lagi svara til 5% av atkvøðurættindunum hjá partabrævakapitalinum ella tá ið áljóðandi virðið er í minsta lagi 5% av partabrævakapitalinum, tó í minsta lagi 100.000 kr.

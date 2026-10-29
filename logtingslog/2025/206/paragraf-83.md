@@ -1,0 +1,1 @@
+§ 83. § 36 um undantak viðvíkjandi upplýsingum um nettosøluna, o.a. er ikki galdandi fyri stórar fyritøkur. Hesar fyritøkur skulu tískil í rakstrarroknskapinum vísa nettosøluna saman við teimum í skjali 2, skema 3, nevndu postum nr. 2-5, ella saman við teimum í skjali 2, skema 4, nevndu postum, nr. 2, 3 og 6.

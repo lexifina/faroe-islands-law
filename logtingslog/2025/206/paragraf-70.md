@@ -1,0 +1,3 @@
+§ 70. Fyritøkan skal upplýsa um samlaðu støddina av sínum eventualskyldum, sum ikki eru innroknaðar í fíggjarjavnanum, heruppií veðhaldsskyldur og borganarskyldur. Harumframt skal fyritøkan upplýsa um samlaðu støddina av øðrum skyldum, heruppií langtíðarleiguskyldur, sum ikki eru innroknaðar í fíggjarjavnanum.
+Stk. 2. Hevur fyritøkan latið veð í ella veitt aðra trygd í ognum, skal fyritøkan upplýsa um hetta og tilskila vavið av samlaðu veðsetingunum og trygdarsetingunum, heruppií tilskila roknskaparliga virðið á ávikavist veðsettum ognum og teimum ognum, sum trygd er veitt í.
+Stk. 3. Fyritøkan skal upplýsa serskilt um skyldur sínar sambært stk. 1 og um veðsetingar og aðrar trygdarsetingar sambært stk. 2, mótvegis ávikavist atknýttum og leyst atknýttum fyritøkum.

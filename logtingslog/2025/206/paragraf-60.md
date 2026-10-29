@@ -1,0 +1,1 @@
+§ 60. Verða roknskaparligar metingar broyttar sambært § 57, skal greiðast frá broyttu metingunum, eins og upplýsast skal um peningaligu ávirkanina á ognir, skyldur, fíggjarligu støðuna og úrslitið, í tann mun hetta letur seg gera. Sama er galdandi, um innrokning og máting av ogn og skuld verður broytt vegna munandi mistøk.

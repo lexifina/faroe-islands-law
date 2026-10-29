@@ -1,0 +1,2 @@
+§ 31. Áogn undir ogn í umferð, sum fellur til gjaldingar meira enn eitt ár eftir, at roknskaparárið rennur út, verður mett at vera langfreistað. Hon skal bólkast serskilt fyri hvønn arábaratalspost, uttan so at samsvarandi upplýsingar verða givnar í notunum.
+Stk. 2. Skyldur, sum falla til gjaldingar innan eitt ár eftir, at roknskaparárið er runnið, eru stuttfreistaðar. Aðrar skyldur eru langfreistaðar. Skyldurnar skulu bólkast í samsvari við hesi metingarstøði, fyri hvønn arábaratalspost, uttan so at samsvarandi upplýsingar verða givnar í notunum.

@@ -1,0 +1,14 @@
+## Undantak fyri ávís íognarfeløg og kommanditfeløg
+§ 5. Íognarfeløg og kommanditfeløg sambært § 3, stk. 1, nr. 2, kunnu lata vera við at gera ársfrásøgn, og kunnu í staðin lata Skráseting Føroya eina undantaksváttan sambært § 170, stk. 1, um:
+1) roknskapurin við fulla konsolidering, pro rata-konsolidering, ella við innrokning og máting til roknskaparliga innara virðið, er partur av einum samtaksroknskapi, sum ein íognari, ein komplementarur ella ein móðurfyritøka hevur gjørt í staðin,
+2) íognarin ella komplementarurin hevur heimstað í Føroyum, ella er fevndur av lóggávuni í einum ES-limalandi, einum EBS-limalandi, ella í einum landi, sum Føroyar hevur gjørt avtalu við,
+3) samtaksroknskapurin er gjørdur eftir reglunum í hesi løgtingslóg ella, um íognarin, komplementarurin ella viðkomandi móðurfyritøka er útlendskt, eftir reglunum í Evropatingsins og Ráðsins direktivi 2013/34/EU, við seinni broytingum, sbr. skjal 3, og samtaksroknskapurin er grannskoðaður og almannakunngjørdur eftir reglunum í hesum direktivi, og
+4) tað verður upplýst í samtaksroknskapinum at íognarfelagið ávikavist kommanditfelagið hevur latið vera við at gera ársfrásøgn vísandi til hesa áseting.
+Stk. 2. Íognarfeløg og kommanditfeløg, sum eru fevnd av § 3, stk. 1, nr. 2, kunnu lata vera við at gera ársfrásøgn sjálv, og kunnu í staðin lata Skráseting Føroya eina undantaksváttan sambært § 170, stk. 2, um:
+1) ein av felagsins íognarum ávikavist komplementarum hevur heimstað í Føroyum, og
+2) íognarin ella komplementarurin gera ársfrásøgn fyri íognarfelagið ella kommanditfelagið, og lata hana grannskoða og almannakunngera eftir reglunum í hesi løgtingslóg, saman við síni egnu ársfrásøgn í eini felags ársfrásøgn, ella sum tvær serskildar ársfrásagnir.
+Stk. 3. Íognarfeløg og kommanditfeløg, sum eru fevnd av § 3, stk. 1, nr. 2, og har eingin íognari ella komplementarur hevur heimstað í Føroyum, kunnu lata vera við at gera ársfrásøgn, og kunnu í staðin lata Skráseting Føroya eina undantaksváttan sambært § 170, stk. 3, um:
+1) íognarin ávikavist komplementarurin er fevndur av lóggávuni í Føroyum, í einum ES-limalandi ella í einum EBS-limalandi, og
+2) íognarin ella komplementarurin ger ársfrásøgn fyri íognarfelagið ella kommanditfelagið og letur hana grannskoða og almannakunngera í samsvari við lóggávuna sambært nr. 1, saman við síni egnu ársfrásøgn í eini felags ársfrásøgn, ella sum tvær serskildar ársfrásagnir.
+Stk. 4. Íognarfeløg og kommanditfeløg, sum nýta undantøkini í stk. 2 og 3, skulu eftir áheitan upplýsa einum og hvørjum um navn, v-tal ella skrásetingarnummar og heimstað hjá tí fyritøku, sum hevur gjørt ársfrásøgnina.
+Stk. 5. Stk. 1-3 eru ikki galdandi fyri íognarfeløg og kommanditfeløg, sum hava kapitalpartar, skuldaramboð ella onnur virðisbrøv upptikin til handils á einum reguleraðum marknaði í Føroyum ella í einum ES/EBS-landi.

@@ -1,0 +1,11 @@
+## Partur X
+## Almannakunngering og kanning av ársfrásøgnum
+## Kapittul 21
+## Um at lata ársfrásøgn o.a. inn til Skráseting Føroya
+## Um at lata ársfrásøgnina inn
+§ 162. Fyritøkur í roknskaparflokki B, C og D skulu, uttan óneyðugt drál eftir at ársfrásøgning er góðkend, lata ársfrásøgnina inn til Skráseting Føroya sambært § 3, stk. 1 og § 7. Skráseting Føroya skal hava móttikið ársfrásøgnina í seinasta lagi 6 mánaðir eftir at roknskaparárið er liðið, tó er freistin 4 mánaðir fyri fyritøkur í roknskaparflokki D. Víkjast kann ikki frá hesum freistum, sbr. tó §§ 164 og 165.
+Stk. 2. Góðkenda ársfrásøgnin skal í minsta lagi innihalda teir lutir, som eru kravdir fyri hvønn roknskaparflokk, umframt møguliga grannskoðaraátekning ella aðra váttan frá góðkendum grannskoðara sambært § 156, stk. 1 og 6, og § 158, stk. 1. Ynskir fyritøkan at almannakunngera ískoytisfrágreiðingar sum nevnt í § 2, stk. 2, skal hetta latast inn saman við teimum kravdu lutunum í ársfrásøgnini, soleiðis at kravdu lutirnir og ískoytisfrágreiðingarnar saman framstanda sum eitt skjal nevnt Ársfrásøgn.
+Stk. 3. Ársfrásagnir og onnur skjøl, sum skulu latast inn til Skráseting Føroya sambært hesi løgtingslóg, skulu verða orðað á føroyskum ella á donskum, sbr. tó § 188.
+Stk. 4. Letur ein fyritøka Skráseting Føroya eina sjálvbodna ársfrásøgn sambært § 4, stk. 7, 1. pkt., og er hendan grannskoðað, skal fyritøkan tryggja sær, at grannskoðaraátekningin er partur av skjalinum.
+Stk. 5. Hevur Skráseting Føroya almannakunngjørt eina ársfrásøgn sambært § 184, kann ársfrásøgnin ikki verða umgjørd ella broytt við nýggjari ársfrásøgn uttan við loyvi frá Skráseting Føroya.
+Stk. 6. Landsstýrisfólkið kann áseta nærri reglur um, at fyritøkur, sum ikki hava upplýst um nettosøluna í rakstrarroknskapinum sambært § 36, stk. 1, kortini skulu lata Skráseting Føroya upplýsingar um nettosøluna í seinasta lagi samstundis við, at ársfrásøgnin verður latin Skráseting Føroya. Landsstýrisfólkið kann harumframt áseta nærri reglur um, á hvønn hátt upplýsingarnar skulu latast Skráseting Føroya, um tagnarskyldu, o.a. Ásetir landsstýrisfólkið slíkar reglur, verða upplýsingarnar um nettosøluna ikki almannakunngjørdar, og tær eru undantiknar rættinum til innlit sambært løgtingslóg um innlit í fyrisitingina.

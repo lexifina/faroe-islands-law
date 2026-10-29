@@ -1,0 +1,1 @@
+§ 123. Móðurfyritøkan skal upplýsa, um so er, at ársfrásagnir hjá øllum dótturfyritøkunum hjá móðurfyritøkuni ikki verða grannskoðaðar av í minsta lagi einum góðkendum grannskoðara hjá móðurfyritøkuni, einum útlendskum samstarvsfelaga ella av einari viðurkendari altjóða grannskoðanarfyritøku.

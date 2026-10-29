@@ -1,0 +1,7 @@
+## Partur IX
+## Roknskaparlóggávan í Føroyum
+## Kapittul 20
+## Um at gera roknskaparstandardar, o.a.
+§ 159. Landsstýrisfólkið kann gera standardar, sum útfylla og skulu leggjast afturat hesi løgtingslóg. Standardarnir kunnu, innan fyri teir karmar, sum eru ásettir í Evropatinsings og Ráðsins direktiv 2013/34/EU, sbr. skjal 3, fevna um frávik frá teimum ásetingum, sum eru fevndar av undantaksskylduni eftir § 14, stk. 3, og har frávikið má metast at vera neyðugt til tess at kunna nýta ásetingina á praktiskan og skynsaman hátt. Standardarnir skulu áseta, hvørjir bólkar av fyritøkum skulu fylgja standardunum.
+Stk. 2. Landsstýrisfólkið kann gera avtalu við ein ella fleiri óheftar felagsskapir um, at hesir heilt ella fyri ein part skulu hava tær uppgávur um hendur, sum eru nevndar í stk. 1. Landsstýrisfólkið kann áseta nærri reglur um, hvussu arbeiðið verður gjørt og skipað, heruppií um, at almennir myndugleikar skulu hava møguleika fyri at úttala seg um, ella gókenna standardar, sum verða gjørdir. Landsstýrisfólkið kann áleggja einum felagsskapi, sum avtala er gjørd við sambært 1. pkt., at gera serligar standardar fyri økir, har tað vísir seg at vera serligur tørvur á nærri reglum.
+Stk. 3. Skráseting Føroya kann útnevna eitt Roknskaparráð, sum Skráseting Føroya kann ráðføra seg við um almenn roknskaparviðurskifti, og sum kunnu styðja stovninum í sambandi við tær í stk. 1 nevndu uppgávur. Skrivstovuhaldið verður lagt til Skráseting Føroya.

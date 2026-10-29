@@ -1,0 +1,2 @@
+§ 85. Stórar fyritøkur skulu innrokna menningarverkætlanir, ið hava til endamáls at menna eina ávísa vøru ella eina ávísa mannagongd, sum fyritøkan hevur í hyggju at framleiða ella at nýta í framleiðsluni heruppií patent og aðrar immateriellar ognir, sum ein menningarverkætlan hevur elvt.
+Stk. 2. Verða menningarverkætlanir sambært stk. 1 innroknaðar, skal ein upphædd sum svarar til innroknaðu menningarútreiðslurnar innroknast beinleiðis í postin, Tiltaksgrunnur fyri menningarútreiðslur, í eginpeninginum. § 46, stk. 3, 2. og 3. pkt. eru galdandi fyri hendan tiltaksgrunn.

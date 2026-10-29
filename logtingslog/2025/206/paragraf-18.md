@@ -1,0 +1,9 @@
+§ 18. Roknskaparárið skal fevna um 12 mánaðir, sum altíð skulu byrja og enda ein ávísan dag í árinum. Næsta roknskaparár byrjar dagin eftir fíggjarjavnadagin undanfarna roknskaparár.
+Stk. 2. Fyrsta roknskaparskeið fevnir um eitt tíðarskeið, sum er styttri ella longri enn 12 mánaðir, tó í mesta lagi 18 mánaðir.
+Stk. 3. Verður roknskaparárið broytt, kann skiftistíðarskeiðið ikki vera longri enn 12 mánaðir. Skiftistíðarskeiðið kann tó vera upp til 18 mánaðir, um neyðugt er at broyta roknskaparár fyri at fáa sama roknskaparár fyri fleiri fyritøkur, tá ið hetta er liður í:
+1) at stovna samtaksviðurskifti,
+2) at stovna luttøku í felags leiðslu í einari aðrari fyritøku, ella
+3) samanlegging.
+Stk. 4. Tað er ein treyt í sambandi við nýtslu av skiftistíðarskeiðinum á 18 mánaðir, at tilgongdin at fáa tey í stk. 3, 2. pkt., nr. 1-3 nevndu viðurskifti í lag, er byrjað í skiftistíðini. Hetta er tó ikki galdandi, um fyritøkan ikki hevur havt møguleika fyri at broyta roknskaparár innan fyri hetta tíðarskeið orsakað av viðurskiftum, sum fyritøkan ikki hevur ræði á.
+Stk. 5. Avgerð um at leggja roknskaparárið um skal verða fráboðað Skráseting Føroya í seinasta lagi 6 mánaðir eftir, at roknskaparárið, sum ynski er um at broyta, er lokið, tó í seinasta lagi 6 mánaðir eftir, at skiftistíðarskeiðið er lokið. Fyri landspartafeløg, sbr. tó § 303 í vinnufelagalógini, og fyritøkur, sum hava virðisbrøv, sum eru upptikin til handils á einum reguleraðum marknaði í Føroyum ella í einum ES/EBS-landi, er freistin tó 4 mánaðir. Verður fráboðanin móttikin, eftir at freistin í 1. ella 2. pkt. er liðin, fellur avgerðin burtur, og kann ikki skrásetast.
+Stk. 6. Móðurfyritøkur og dótturfyritøkur og líknandi fyritøkur skulu tryggja, at dótturfyritøkan hevur sama roknskaparár sum móðurfyritøkan. Hetta er tó ikki galdandi, um tað ikki hevur verið møguligt at hava sama roknskaparár orsakað av viðurskiftum, sum móðurfyritøkan ella dótturfyritøkan ikki hava havt ræði á.

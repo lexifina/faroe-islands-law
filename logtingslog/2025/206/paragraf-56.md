@@ -1,0 +1,4 @@
+## Um at broyta roknskaparhátt
+§ 56. Broytir fyritøkan roknskaparhátt, skulu teir postar í ársroknskapinum, sum verða ávirkaðir, broytast samsvarandi nýggja roknskaparháttinum við at innrokna ávirkanina, ið broytingin ber við sær, beinleiðis á eginognina primo í roknskaparárinum. Samanberingartøl skulu broytast samsvarandi nýggju mannagongdini.
+Stk. 2. Broytir fyritøkan roknskaparhátt til tess at kunna uppskriva ognir eftir § 46, stk. 1, skal innrokning fara fram beinleiðis á eginognini. Uppskrivingar skulu viðgerast eftir § 46, stk. 3. Samanberingartøl skulu ikki tillagast.
+Stk. 3. Landsstýrisfólkið kann áseta reglur fyri fyritøkur, sum áður hava gjørt ársfrásøgn eftir einum øðrum regluverki enn hesi løgtingslóg, sum kunnu víkja frá reglunum í stk. 1 og 2 í tann mun tað er neyðugt fyri at lætta um í sambandi við skiftið til at nýta hesa løgtingslóg

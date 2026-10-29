@@ -1,0 +1,5 @@
+§ 178. Verður ársfrásøgnin ella undantaksváttanin móttikin eftir, at freistin upp á í minsta lagi 8 gerandisdagar frá dagfestingini av boðunum við áheitanini sambært § 177, stk. 2, er liðin, kann Skráseting Føroya áleggja ávikavist hvørjum limi í fyritøkunnar evstu leiðslu og hvørjum deildarleiðara tvingsilsavgjald.
+Stk. 2. Avgjaldið verður roknað frá tí, at freistin í § 162, stk. 1, 2. pkt. er liðin.
+Stk. 3. Avgjaldið er 500 kr. fyri ávikavist hvønn leiðslulim og deildarleiðara fyri 1. byrjaða mánað, tilsamans 2.000 kr. fyri 2. byrjaða mánað, og tilsamans 3.000 kr. fyri 3. byrjaða mánað. Avgjaldið kann í mesta lagi vera 3.000 kr. pr. leiðslulim ávikavist deildarleiðara.
+Stk. 4. Samlaða avgjaldið verður lækkað í tann mun ávikavist viðkomandi leiðslulimur og deildarleiðari í sama tíðarskeiði hevur rindað tvingsilsbøtur sambært § 199, stk. 1, nr. 1, fyri ikki at hava latið ársfrásøgn ella undantaksváttan inn til Skráseting Føroya.
+Stk. 5. Avgjaldið sambært stk. 1, sum kann innheintast við panting, fer í landskassan.

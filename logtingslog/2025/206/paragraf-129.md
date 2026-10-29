@@ -1,0 +1,2 @@
+## Serligar reglur fyri partafeløg, sum fylgja reglunum fyri landspartafeløg
+§ 129. Landsstýrisfólkið kann áseta reglur sum gera undantak frá teimum serligu reglum, ið eru galdandi fyri landspartafeløg, sbr. § 303 í vinnufelagalógini, um hetta er neyðugt til tess at tryggja samstøðu millum hesar reglur og tær tilsvarandi reglur, sum verða ásettar fyri kapitalfeløg, sum hava virðisbrøv, sum eru upptikin til handils á einum reguleraðum marknaði í Føroyum ella í einum ES/EBS-landi.

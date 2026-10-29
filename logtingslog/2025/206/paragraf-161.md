@@ -1,0 +1,1 @@
+§ 161. Landsstýrisfólkið kann áseta nærri reglur um, at víkjast kann frá ávísum ásetingum í hesi løgtingslóg, tá ið hetta er neyðugt fyri at nýta altjóða roknskaparstandardar, sum serliga eru tillagaðir tørvinum hjá smáum og miðalstórum fyritøkum.

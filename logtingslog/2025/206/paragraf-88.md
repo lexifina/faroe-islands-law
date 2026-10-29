@@ -1,0 +1,5 @@
+## Peningastreymsuppgerðin
+§ 88. Í peningastreymsuppgerðini skulu inngjaldingar og útgjaldingar innroknast í tí løtu goldið er, uttan mun til, nær innrokning fer fram í rakstrarroknskapinum ella í fíggjarjavnanum.
+Stk. 2. Pengastreymsyvirlitið skal í minsta lagi vísa pengastreymarnar í tíðarskeiðinum býttar á rakstrarvirksemi, íløguvirksemi og fíggingarvirksemi. Harumframt skal pengastreymsuppgerðin serskilt vísa broytingar í tøkum peningi, umframt tøkupeningin tá ið tíðarskeiðið er byrjað og endað.
+Stk. 3. Samsvarandi upphæddirnar í postunum í undanfarna roknskaparári skulu tilskilast. Eru postarnir ikki beinleiðis sambæriligir við postarnar frá undanfarna ári, skulu hesir tillagast. Fyritøkan kann tó lata vera við at tillaga samanberingartøl í tann mun, tað ikki ber til at samanbera vegna broytingar í virksemi fyritøkunnar. Postar í peningastreymsuppgerðini, sum ikki innihalda nakra upphædd fyri roknskaparárið, skulu tó takast við, um ein slíkur postur var í ársfrásøgnini fyri undanfarna ár.
+Stk. 4. Ein fyritøka kann lata vera við sjálv at gera eina peningastreymsuppgerð, tá ið hendan er fevnd av peningastreymsuppgerðini fyri samtakið.

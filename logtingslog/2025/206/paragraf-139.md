@@ -1,0 +1,5 @@
+## Flokking
+§ 139. Samtaksroknskapsins fíggjarjavni, rakstrarroknskapur og peningastreymsuppgerð skulu setast upp samsvarandi ásetingunum fyri ársroknskapir í roknskaparflokki C sambært § 80, uttan so, at annað er áett í 2. pkt. ella í stk. 2-4. Um móðurfyritøkan skal fylgja ásetingunum fyri ársroknskapir í roknskaparflokki D sambært § 120, skal samtaksroknskapurin eisini fylgja hesum ásetingum, uttan so, at annað er ásett í stk. 2-4.
+Stk. 2. Kapitalpartar í, áogn hjá ella skuld til dótturfyritøkur, sum ikki eru konsolideraðar, ávikavist kapitaláhugamál, setast sum serskildir postar í samtaksroknskapsins fíggjarjavna.
+Stk. 3. Konsolideraða eginognin kan verða sett upp soleiðis, at einans teir postar verða vístir, sum eru neyðugir til tess at fáa eina rættvísandi mynd, sum nevnt í § 14, stk. 1.
+Stk. 4. Minnilutaáhugamálsins lutfalsligi partur av dótturfyritøkunnar eginogn skal setast upp sum ein serskildur høvuðspostur millum, Eginogn og Skyldur. Minnilutaáhugamálsins lutfalsligi partur av fyritøkunnar úrsliti verður settur upp sum ein serskildur postur í rakstrarroknskapinum.

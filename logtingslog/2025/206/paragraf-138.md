@@ -1,0 +1,4 @@
+## Samandráttur
+§ 138. Í sambandi við konsolideringina kunnu roknskapirnir skrivast í samandrátti, soleiðis at einsháttaðar inntøkur og útreiðslur og ognir og skyldur verða lagdar saman. Tær tillagingar skulu gerast, sum eru neyðugar vegna serlig viðurskifti, sum galda fyri samtaksroknskapir, sæð í mun til ársroknskapir.
+Stk. 2. Samtaksfyritøkur, har samtaksviðurskiftini eru sett á stovn í roknskaparárinum, mugu einans takast við í samandrátti við inntøkum og útreiðslum frá teimum transaktiónum og viðurskiftum, sum eru íkomin eftir ta løtu, samtaksviðurskiftini vórðu sett á stovn.
+Stk. 3. Samtaksfyritøkur, har samtaksviðurskiftini eru hildin uppat í roknskaparárinum, mugu einans takast við í samandrátti við inntøkum og útreiðslum frá teimum transaktiónum og viðurskiftum, sum eru íkomin fram til ta løtu, samtaksviðurskiftini eru hildin uppat.

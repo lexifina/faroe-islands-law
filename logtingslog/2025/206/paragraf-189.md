@@ -1,0 +1,2 @@
+## Víðkað almannakunngering fyri landspartafeløg
+§ 189. Landspartafeløg skulu, í seinasta lagi 14 dagar innan aðalfundurin verður hildin útflýggja avrit av felagsins ársfrásøgn til tey umboð fyri fjølmiðlarnar, sum biðja um hetta. Harumframt skulu landspartafeløg innan freistina í 1. pkt. útflýggja avrit av ársfrásøgnini til ein og hvønn, sum biður um hetta, á felagsins høvuðsskrivstovu, sbr. tó § 303 í vinnufelagalógin.

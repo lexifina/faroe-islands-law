@@ -1,0 +1,6 @@
+§ 113. Fyritøkan skal upplýsa um samlaðu samsýningina o.a. fyri roknskaparárið, sum er goldin verandi og fyrrverandi limum í leiðsluni fyri at røkja starv sítt í fyritøkuni, býtt á hvønn leiðslustovn, eisini um ongin samsýning verður veitt. Er ongin leiðslustovnur útnevndur, skulu somu upplýsingar latast fyri eigararnar. Harumframt skal fyritøkan greiða frá samlaðu pensjónsskyldunum til nevndu persónar.
+Stk. 2. Eru serligar skipanir avtalaðar ella ásettar, sum hava til endamáls at eggja limunum í leiðsluni at røkka ávísum málum ella líknandi, heruppií við at geva rætt til optiónir, tíðaravmarkað tekningarrættindi ella annað, skal tað upplýsast, hvat slag av leiðslulimum eru fevndir av skipanini, hvørjar veitingar skipanin fevnir um, og hvat er neyðugt til tess at meta um virðið á hesum.
+Stk. 3. Upplýsingar og upphæddir, sum eru nevndar í stk. 1 og 2 skulu harumframt útgreinast samsvarandi fyri undanfarna roknskaparárið.
+Stk. 4. Um upplýsingar sambært stk. 1 ella 2 vildu elvt til, at upphæddir fyri ein einstakan lim í leiðslubólkinum gerast sjónlig, kunnu upphæddirnar í staðin:
+1) upplýsast samlað fyri tveir bólkar, ella
+2) undantakast um bert ein bólkur móttekur samsýning, o.a., pensión ella serligar skipanir, sum nevnt í stk. 2.

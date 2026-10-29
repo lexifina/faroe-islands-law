@@ -1,0 +1,7 @@
+## Kapittul 24
+## Eftirlit við ársfrásagnum o.a.
+## Almennar ásetingar um roknskapareftirlit Skráseting Føroya
+§ 190. Skráseting Føroya hevur eftirlit við ársfrásagnum og møguligum váttanum frá góðkendum grannskoðara, sum hoyra til ársfrásøgnina, undantaksváttanir o.a., sum verða latnar Skráseting Føroya í staðin fyri ársfrásagnir, upplýsingar um nettosøluna sambært reglum, givnum við heimild í § 162, stk. 6, hálvársfrásagnir frá landspartafeløgum umframt partársfrásagnir frá fyritøkum, sum hava virðisbrøv upptikin til handils á einum reguleraðum marknaði í Føroyum ella í einum ES/EBS-landi, sum verða móttiknar við atliti til almannakunngering. Finanstilsynet hevur eftirlit við, at fyritøkur, sum hava virðisbrøv upptikin til handils á einum reguleraðum marknaði í Føroyum ella í Danmark, lúka standardar og reglur um upplýsingar í ársfrásagnum og partársfrásagnum sambært § 192.
+Stk. 2. Eftirlitið kann verða framt í sambandi við, at viðkomandi skjøl eru latin Skráseting Føroya ella Finanstilsynet sambært § 192, og sum eftirfylgjandi váðagrundað eftirlit sambært § 193.
+Stk. 3. Eftirlitið sambært § 193 kann harumframt verða framt sum tilvildarligt stakroyndaeftirlit.
+Stk. 4. Eftirlit Skráseting Føroya sambært hesi løgtingslóg kann verða framt í sambandi við at eftirlit ella kanningar verða framd sambært aðrari lóggávu, sum er løgd til Skráseting Føroya at umsita. Eftirlitið kann harumframt leggjast til rættis í samstarvi við aðrar myndugleikar, sum fremja eftirlit sambært lóggávuni fyri viðkomandi øki.

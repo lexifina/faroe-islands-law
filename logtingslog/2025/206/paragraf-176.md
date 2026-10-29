@@ -1,0 +1,1 @@
+§ 176. Um lóggávan loyvir, at upplýsingar, sum skulu latast í ársfrásøgnini alternativt kunnu vera í øðrum skjølum o.a. enn ársfrásøgnini, skulu hesi skjøl o.a. vera tøk fyri roknskaparbrúkararnar samstundis sum ársfrásøgnin.

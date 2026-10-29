@@ -1,0 +1,2 @@
+§ 103. Fyritøkan skal upplýsa um tiltøk, ið ikki eru innroknað í fíggjarjavnan, heruppií nýtslu av virkjum ella virksemi til eitt serligt fíggjarligt, løgfrøðiligt, skattligt ella roknskaparligt endamál, um so er, at upplýsing hesum viðvíkjani er neyðug fyri metingina av fíggjarligu støðuni hjá fyritøkuni.
+Stk. 2. Upplýsingarnar sambært stk. 1 skulu lýsa slagið og handilsliga endamálið við tiltøkunum. Stórar fyritøkur skulu harumframt upplýsa um teir váðar og fyrimunir, ið eru knýttir at tiltøkum, og fíggjarligu ávirkanina av hesum.

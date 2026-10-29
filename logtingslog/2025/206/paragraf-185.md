@@ -1,0 +1,2 @@
+## Nærri reglur um at lata inn og almannakunngera o.a.
+§ 185. Landsstýrisfólkið kann áseta nærri reglur um at lata inn ársfrásagnir, undantaksváttanir o.a., sum verður latið Skráseting Føroya í staðin, endaligar likvidatiónsroknskapir sambært § 163, stk. 2, umframt partársfrásagnir fyri landspartafeløg sambært § 173, og fyri fyritøkur, sum hava virðisbrøv upptikin til handils á einum reguleraðum marknaði í Føroyum ella í einum ES/EBS-landi sambært § 174.

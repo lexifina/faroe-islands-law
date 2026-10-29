@@ -1,0 +1,3 @@
+§ 17. Ískoytisfrágreiðingar um eitt nú fyritøkunnar sosialu ábyrgd, vitan og starvsfólkaviðurskifti, umhvørvisviðurskifti, umframt etisk stevnumið og framhaldandi viðgerð av hesum, skulu geva eina rættvísandi frágreiðing innan fyri teir karmar, sum eru ásettir í vanliga viðurkendum leiðreglum fyri slíkar frágreiðingar.
+Stk. 2. Ískoytisfrágreiðingar skulu lúka dygdarkrøvini í § 15, stk. 3. Harumframt skulu ískoytisfrágreiðingar lúka grundleggjandi fortreytirnar í § 16, stk. 1 og 2 við teimum linkingum, ið standast av náttúru málsins.
+Stk. 3. Í ískoytisfrágreiðingini skal greiðast frá háttalagnum og mátistøðinum, sum hava verið nýtt, tá ískoytisfrágreiðingin er gjørd.

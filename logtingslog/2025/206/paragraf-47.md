@@ -1,0 +1,3 @@
+§ 47. Støðisogn, sum ikki javnan verður virðisjavnað til dagsvirði sambært §§ 41-43, skal niðurskrivast til eitt lægri endurvinningarvirði.
+Stk. 2. Ber ikki til at áseta eitt endurvinningarvirði fyri ta einstøku ognina, skal ognin heildarmetast í minsta ognarbólkinum, har tað, samsvarandi einari heildarmeting, ber til at áseta álítandi endurvinningarvirði. Niðurskrivingar viðvíkjandi einum slíkum bólki av ognum verða býttar miðvíst á einstøku ognirnar.
+Stk. 3. Tað í stk. 1 umrødda lægra endurvinningarvirðið kann ikki verða varðveitt tá ið grundgevingin fyri niðurskrivingini ikki longur er til staðar. Niðurskrivingar á goodwill kunnu tó ikki flytast aftur.

@@ -1,0 +1,1 @@
+§ 19. Innrokning, máting og upplýsingar í peningseindum skulu tilskilast í donskum krónum ella evrum. Fyritøkan kann tó í staðin velja at tilskila upphæddirnar í øðrum fremmandum gjaldoyra, sum er viðkomandi fyri ávikavist fyritøkuna og samtakið.

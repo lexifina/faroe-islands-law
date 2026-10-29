@@ -1,0 +1,2 @@
+§ 164. Skráseting Føroya kann, hóast freistina í § 162, stk. 1, 2. pkt., loyva, at ársfrásøgnin hjá einari fyritøku undir endurskipanarviðgerð verður latin inn soleiðis, at Skráseting Føroya móttekur ársfrásøgnina í seinasta lagi 1 mánað eftir, at endurskipanarviðgerðin er endað. Verður farið út um hesa freist, eru §§ 177-179 samsvarandi galdandi, tó so, at avgjaldið verður roknað 1 mánað eftir at endurskipanarviðgerðin er endað.
+Stk. 2. Fer fyritøkan í trotabúsviðgerð, er ásetingin í § 165 galdandi.

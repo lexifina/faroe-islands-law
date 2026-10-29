@@ -1,0 +1,2 @@
+§ 195. Skráseting Føroya kann krevja, at ein fyritøka innan fyri eina nærri ásetta freist, skal fáa til vegar eina váttan frá einum góðkendum grannskoðara, einum advokati, ella frá øðrum sakkønum um, at upplýsingar ella frágreiðingar, sum fyritøkan hevur givið, ella sum eru latnar Skráseting Føroya eftir hesi løgtingslóg ella reglum, sum eru ásettar við heimild í hesi løgtingslóg, eru rættar.
+Stk. 2. Tann, sum gevur váttan sambært stk. 1, skal í skjalinum vátta, at viðkomandi er óheftur fyritøkuni.

@@ -1,0 +1,2 @@
+§ 94. Hevur fyritøkan fíggjarliga støðisogn, sum verður mátað til kostprís, og eru viðkomandi ognir innroknaðar við einum virði, sum er hægri enn dagsvirðið, skal fyritøkan upplýsa um dagsvirðið, innroknaða virðið, og orsøkina til, at niðurskrivingar ikki eru gjørdar. Harumframt skal fyritøkan upplýsa um, hvørji skjalprógv liggja til grund fyri metingini um, at bókaða virðið fer at verða endurvunnið.
+Stk. 2. Upplýsingarnar kunnu gevast samlað fyri einsháttaðar bólkar av støðisogn.

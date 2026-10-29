@@ -1,0 +1,1 @@
+§ 51. Kostprísurin fyri vørugoymslur kann roknast við støði í vektaðum miðalprísum, eftir fyrst inn-fyrst út, t.e. FIFO-háttinum, ella við støði í einum øðrum líknandi hátti, sum endurspeglar virðið á fysisku vørugoymsluni fíggjarjavnadagin.

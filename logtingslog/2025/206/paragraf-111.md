@@ -1,0 +1,1 @@
+§ 111. Fyritøkan skal lata upplýsingar sambært § 79 fyri kapitalpartar í fyritøkuni, sum eru í varðveitslu hjá einari dótturfyritøku sum ogn ella trygd, ella sum ein dótturfyritøka hevur fingið til vegar ella hevur avhendað í roknskaparárinum.

@@ -1,0 +1,2 @@
+§ 35. Leiðslunnar uppskot til avgerð um nýtslu av vinningi ella at rinda hall skal setast í tilknýti til rakstrarroknskapin. Leiðslunnar uppskot til vinningsbýti skal standa sum ein serligur postur í eginognini undir Fluttur vinningur ella hall sambært skjali 2, skema 1 ella 2.
+Stk. 2. Hevur fyritøkan í roknskaparárinum lutað út serligt vinningsbýti, sbr. §§ 181 og182 í vinnufelagalógini, skal hetta standa serskilt í úrslitsbýtinum. Er serligt vinningsbýti útgoldið eftir at roknskaparárið er liðið, skal hetta standa í tilknýti til úrslitsbýtið.
