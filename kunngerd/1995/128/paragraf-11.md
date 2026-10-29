@@ -1,0 +1,1 @@
+§ 11. Bátsmannsstólar og arbeiðspallar til lyftiútgerðina, spæl og lási- og bremsuskipanir, skulu, tá hesi verða utflýggjaði til nýtslu ella framsýning her í landinum verða góðkend av stjóranum á Arbeiðseftirlitinum. Góðkenningin kann verða grundað á skjalprógvaðar royndir, ið gjørdar eru á góðkendum stovnum ella virkjum, smb. § 25, stk. 3.

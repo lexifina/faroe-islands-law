@@ -1,0 +1,2 @@
+§ 5. Lyftiútgerð og spøl, ið eru innrættaði við førarasessi á útgerðini, og sum blíva nýtt undir slíkum umstøðum, at førarin er ábærur fyri heilsuskaðiligari ávirkan av nógvum hita, kulda, óljóði og dusti v.m., skulu verða útgjørd við førarahúsi. Hetta er tó ikki galdandi, um arbeiðsviðurskiftini forða fyri nýtslu av førarahúsi, ella um útgerðin bert verður nýtt hendingaferð í einum arbeiðsdegi.
+Stk. 2. Tornkranar skulu altíð verða innrættaðir við førarahúsi, har arbeiðsviðurskiftini eru soleiðis, at førarin ikki hevur nóg gott útsýni.

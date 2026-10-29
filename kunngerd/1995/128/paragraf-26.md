@@ -1,0 +1,1 @@
+§ 26. Arbeiðseftirlitið kann loyva frávik frá hesi kunngerð, har tað vegna serliga konstruktión av lyftiútgerðini ella spæli, uppseting, nýtslu ella serligum umstøðum annars, verður mett rímiligt og forsvarligt.

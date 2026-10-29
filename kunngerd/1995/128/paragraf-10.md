@@ -1,0 +1,2 @@
+§ 10. Tá lyftiútgerð og spæl verða útflýggjað, skal brúkaraleiðbeining fylgja við, sum er neyðug fyri at hesi kunna nýtast, flytast og setast upp uttan ampa fyri trygd og heilsu, og kunna haldast í forsvarligum standi.
+Stk. 2. Brúkaraleiðbeiningin skal upplýsa, um lyftiútgerðin ella spælið kemur undir krøvini um lastroynd eftir §§ 13-14, um fráboðan eftir § 15, eftirlitsbók eftir § 16 ella um førarin skal hava prógv eftir kunngerð um kranføraraprógv nr. 89 frá 12. nov. 1979. Um lyftiútgerðin skal góðkennast eftir § 11, skal góðkenningin skjalprógvast.

@@ -1,0 +1,1 @@
+§ 7. Tornkranar, ið eru uppsettir í meira enn 2 mánaðir, skulu verða innrættaðir við persónlyftu, um hetta er tekniskt og praktiskt møguligt, tá atkomuvegurin til førarahúsið er meira enn 25 m. Atkomuvegurin verður mátaður loddrætt frá niðasta stað, har ein fer í kranan til ovasta punkt á atkomuvegnum. Umframt lyftu, skal eisini vanligur atkomuvegur verða.
