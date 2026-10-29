@@ -1,0 +1,3 @@
+§ 9 a. [^1] Fiskiveiðieftirlitið kann, í málum um brot á hesa lóg og reglur, settar í gildi við heimild í lógini, í einum sektaruppskoti boða frá, at málið kann verða avgjørt uttan rættarviðgerð, um tann, ið hevur framt brotið, játtar seg sekan í brotinum og váttar at vera til reiðar at gjalda bótina sambært sektaruppskotinum innan nærri ásetta freist. Eftir áheitan kann Fiskiveiðieftirlitið leingja freistina.
+Stk. 2. Reglurnar í rættargangslógini um krøv til innihaldið í ákæruritum og reglurnar um, at ein ákærdur ikki hevur skyldu at geva frágreiðing, verða samsvarandi nýttar viðvíkjandi sektaruppskotum.
+Stk. 3. Góðtekur tann, ið hevur framt brotið, bótina, fellur rættarsóknin burtur.

@@ -1,0 +1,1 @@
+[^1]: Broytt við løgtingslóg nr. 32 frá 19. mai 2008, har § 3 er soljóðandi: “Mál, sum eru til viðgerðar, tá ið lógin kemur í gildi, verða viðgjørd sambært teimum reglum, sum higartil hava verið í gildi.

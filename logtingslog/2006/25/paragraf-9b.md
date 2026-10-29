@@ -1,0 +1,1 @@
+§ 9 b. [^1] Verður brot framt av løgfrøðiligum persóni, undir hesum partafelagi, smápartafelagi, lutafelagi, íognarfelagi, felagsskapi, grunni, búgvi, kommunu, øðrum føroyskum myndugleikum ella ríkismyndugleikum, kann løgfrøðiligi persónurin verða revsaður við bót.

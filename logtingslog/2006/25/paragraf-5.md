@@ -1,0 +1,1 @@
+§ 5. Kappróðrarbátar koma ikki undir reglurnar í §§ 2, 3 og 4 í hesi lóg. Landsstýrismanninum verður heimilað at áseta nærri reglur um útgerð á kappróðrar-bátum, umframt reglur um nýtslu av útgerðini.
