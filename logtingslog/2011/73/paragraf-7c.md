@@ -1,0 +1,2 @@
+§ 7 c. Verður tað í hesi lóg ella í reglum givnum sbrt. lógini kravt, at skjal, sum onnur enn Skráseting Føroya hava skrivað út, skal verða undirskrivað, kann hetta krav verða lokið við at nýta tøkni, sum tryggjar, at tann, sum hevur skrivað út skjalið, verður eintýðugt eyðmerktur, sbr. tó stk. 2. Tílík skjøl verða javnsett við skjøl við persónligari undirskrift.
+Stk. 2. [^3] Landsstýrismaðurin kann áseta nærri reglur um at víkja frá kravinum um undirskrift. Tað kann heruppií ásetast, at víkjast kann ikki frá kravinum um undirskrift fyri ávís sløg av skjølum.

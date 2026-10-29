@@ -1,0 +1,4 @@
+## Um at útluta serligt vinningsbýti
+§ 182. [^1] Aðalfundurin kann taka avgerð um at útluta serligt vinningsbýti, tá felagið hevur latið ta fyrstu eina vanliga ársfrásøgn. Aðalfundurin kann ikki taka avgerð um at luta út hægri serligt vinningsbýti enn tað, sum høvuðsleiðsla felagsins hevur skotið upp ella tikið undir við.
+Stk. 2. Aðalfundurin kann, eftir at fyrsti ársroknskapurin er latin, heimila høvuðsleiðslu felagsins at taka avgerð um útlutan av serligum vinningsbýti. Í heimildini kunnu vera fíggjarligar avmarkingar og avmarkingar í tíð.
+Stk. 3. [^1] Til serligt vinningsbýti eftir stk. 1 og 2 kann bert verða nýttur peningur, sum er fevndur av § 180, stk. 2 og yvirskot og fríur tiltakspeningur, sum er íkomin, ella sum er vorðin fríur eftir tað tíðarskeið, sum tað síðst er latin ársfrásøgn fyri uttan so, at upphæddin er lutað út, nýtt ella bundin.

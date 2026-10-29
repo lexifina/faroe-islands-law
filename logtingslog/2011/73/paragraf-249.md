@@ -1,0 +1,4 @@
+## Um møguleika fyri at krevja samsýning
+§ 249. Kapitaleigararnir í uppathaldandi kapitafeløgum kunnu krevja samsýning frá kapitalfelagnum, um viðurgjaldið fyri kapitalpartarnar í uppathaldandi kapitalfeløgunum ikki er rímiliga og sakliga grundað, og um kapitaleigararnir hava tikið fyrivarni fyri hesum á aðalfundinum, har avgerð um fremjanina av samanleggingini varð tikin.
+Stk. 2. Sakarmál við heimild í stk. 1 skal leggjast í seinasta lagi 2 vikur eftir, at samanleggingin er samtykt í øllum teimum samanleggjandi kapitalfeløgunum.
+Stk. 3. [^1] Er fyrivarni tikið við heimild í stk. 1, kann samtykta samanleggingin í fyrsta lagi verða skrásett eftir, at freistin í stk. 2 er farin uttan so, at metingarfólkini í ummæli sínum av ætlaðu samanleggingini, heruppií viðurgjaldið, sbr. § 241, koma til ta niðurstøðu, at viðurgjaldið fyri kapitalpartarnar í uppathaldandi kapitalfeløgunum er rímiliga og sakliga grundað.

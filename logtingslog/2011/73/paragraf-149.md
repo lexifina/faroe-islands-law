@@ -1,0 +1,1 @@
+§ 149. Frá limunum í leiðslu felagsins kann grannskoðari krevja tær upplýsingar, sum metast mugu neyðugar fyri metingina av felagnum og, um felagið er eitt móðurfelag, samtaki tess, sbr. § 7. Sama er galdandi fyri limirnir í leiðsluni í einum føroyskum felag, ið er dótturfelag í einum samtaki sambært ársroknskaparlógini.

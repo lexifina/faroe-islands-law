@@ -1,0 +1,2 @@
+§ 94. Innkalling til aðalfund skal fara fram í fyrsta lagi 4 vikur og, uttan so at longri freist er ásett í viðtøkunum, í seinasta lagi 2 vikur undan aðalfundinum. Verður aðalfundurin útsettur til ein dag, sum er meira enn 4 vikur seinni, skal verða innkallað til framhaldandi aðalfundin.
+Stk. 2. Fyri partafeløg, sum hava partabrøv upptikin til handils á einum reguleraðum marknaði, skal innkalling til aðalfund fara fram í fyrsta lagi 5 vikur og, uttan so at longri freist er ásett í viðtøkunum, í seinasta lagi 3 vikur undan aðalfundinum, sbr. tó § 291, stk. 4, og § 295.

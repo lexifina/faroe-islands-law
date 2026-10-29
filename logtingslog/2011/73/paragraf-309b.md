@@ -1,0 +1,2 @@
+§ 309 b. Eitt íverksetarafelag skal á hvørjum ári seta í minsta lagi 25 prosent av yvirskoti felagsins til bundnan tiltakspening fyri at byggja upp kapitalgrundarlag felagsins, til hesin tiltakspeningur saman við felagskapitalinum í minsta lagi er 50.000 kr.
+Stk. 2. Eitt íverksetarafelag kann ikki gera av at luta út vinningsbýti, undir hesum serligt vinningsbýti, fyrr enn tiltakspeningurin saman við felagskapitalinum í minsta lagi er 50.000 kr.

@@ -1,0 +1,3 @@
+## Um kloyvingarfrágreiðing
+§ 256. [^1] Høvuðsleiðslan í teim verandi kapitalfeløgum, sum luttaka í kloyvingini, skal gera eina skrivliga frágreiðing, har greitt verður frá og grundgivið fyri ætlaðu kloyvingini, heruppií ein møgulig kloyvingarætlan, sbr. tó stk. 2. Frágreiðingin skal innihalda upplýsing um ásetanina av viðurgjaldinum fyri kapitalpartarnar í tí innskjótandi kapitalfelagnum, heruppií serligir trupulleikar í sambandi við ásetanina og upplýsing um gerð av metingarfrágreiðing, um hendan sbrt. § 258 skal gerast.
+Stk. 2. [^1] Kapitaleigararnir kunnu í semju avgera, at kloyvingarfrágreiðing ikki skal gerast.

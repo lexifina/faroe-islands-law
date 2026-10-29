@@ -1,0 +1,1 @@
+§ 272. Umskapan av smápartafelagi til partafelag verður mett sum framd, tá viðtøkur felagsins eru broyttar soleiðis, at tær lúka krøvini fyri partafeløg og tá umskipanin er skrásett í kt-skipan Skráseting Føroya.

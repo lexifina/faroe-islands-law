@@ -1,0 +1,2 @@
+§ 189. Aðalfundurin kann einans taka avgerð um at nýta lækkanarupphæddina til útgjald til kapitaleigararnar ella til avseting til serligan tiltakspening, sbr. § 188, stk. 1, nr. 2 og 3, um høvuðsleiðsla felagsins setur fram ella góðkennir uppskot um hetta.
+Stk. 2. Verður kapitalurin lækkaður eftir stk. 1 til ein lægri kurs enn til áljóðandi virði á kapitalpørtunum, skal upphæddin, sum restar í upp til áljóðandi virði á kapitalpørtunum, flytast til tøka tiltøkupening felagsins.

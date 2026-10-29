@@ -1,0 +1,13 @@
+## Um at skráseta fremjan av umskapan
+§ 289. [^1] [^3] Samtykta umskapanin skal fyri lutafelagið verða skrásett ella fráboðað til skrásetingar, sbr. § 9, hjá Skráseting Føroya í seinasta lagi 2 vikur eftir, at umskapanin er samtykt. Við skrásetingini ella fráboðanini skulu vera skjølini, nevnd í § 286, stk. 6, nr. 3-7, um tey eru gjørd.
+Stk. 2. [^1] Samtykta umskapanin skal verða skrásett ella fráboðað til skrásetingar, sbr. § 9, í seinasta lagi 1 ár eftir, at Skráseting Føroya eftir § 285, stk. 5 hevur almannakunngjørt móttøkuna av upplýsingum um ætlaðu umskapanina. Verður farið út um freistina, er avgerðin um at fremja umskipanina ikki longur galdandi, og ein møgulig umskapanarætlan eftir § 278 verður mett at vera fallin burtur.
+Stk. 3. [^1] [^3] Ein umskapan frá lutafelagi til partafelag kann skrásetast, tá ið:
+1) Lutaeigararnir hava avgjørt at umskapa, sbr. § 287, stk. 1.
+2) Krøvini hjá kravánarunum, ið eru fráboðað eftir § 284, eru avgjørd.
+3) Treytirnar í § 287, stk. 6 um val av leiðslu og grannskoðara eru loknar.
+4) Krøvini í § 287, stk. 6 um samsýning eftir § 288 eru avgjørd uttan so, at nøktandi trygd er veitt fyri kravinum. Hava metingarfólk ummælt ætlaðu umskapanina, heruppií eisini viðurgjaldið, og verður tað í ummælinum mett, at viðurgjaldið er rímiliga og sakliga grundað, skulu metingarfólkini harumframt hava váttað, at tað í avgerandi mun ikki fer at verða funnist at ummæli teirra um viðurgjaldið. Metingarfólkini gera av, um trygdin er nøktandi.
+5) Ein stjórn er sett.
+Stk. 4. [^1] [^3] Umskapan av einum lutafelag til partafelag verður mett at vera framd, tá ið viðtøkur felagsins eru broyttar soleiðis, at tær lúka krøvini fyri partafeløg, og tá ið umskapanin er skrásett í kt-skipan Skráseting Føroya.
+Stk. 5. [^1] Upptøkan í eigarabókina og møgulig latan av partabrøvum má ikki fara fram, fyrr enn umskapanin er skrásett.
+Stk. 6. [^1] Eru 3 ár liðin eftir umskapanina, uttan at øll, sum hava rætt til tess, hava biðið um at vera upptikin í eigarabók felagsins, kann høvuðsleiðslan við eini almannakunngering í kt-skipan Skráseting Føroya heita á hesi um at venda sær til felagið innan fyri 6 mánaðir. Um eingin hevur vent sær til felagið, tá ið freistin er farin, kann nevndin fyri rokning partaeigaranna avhenda partabrøvini. Felagið kann draga kostnaðin av almannakunngeringini og avhendanini frá søluvinninginum. Er søluvinningurin ikki heintaður í seinasta lagi 3 ár eftir avhendanina, fellur upphæddin til felagið.
+Stk. 7. [^1] §§ 42-44 verða at nýta samsvarandi, um umskapaða partafelagið ognar sær ognarvirði frá einum partaeigara, sum er felagnum kunnugur, í upp til 24 mánaðir eftir, at umskapanin er skrásett.

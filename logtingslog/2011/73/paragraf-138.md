@@ -1,0 +1,3 @@
+## Løn til limir í leiðsluni
+§ 138. Limir í leiðsluni í einum kapitalfelagi kunnu verða løntir við føstum ella skiftandi viðurgjaldi. Viðurgjaldið má ikki vera hægri enn tað, sum mett verður vanligt í mun til slag og vavi av arbeiðinum, umframt tað, ið mett verður ráðiligt í mun til fíggjarligu støðu kapitalfelagsins og, tá talan er um móðurfeløg, fíggjarligu støðu samtaksins.
+Stk. 2. Verður eitt kapitalfelag tikið undir trotabúarviðgerð skulu limirnir í leiðsluni, hóast teir hava verið í góðari trúgv, afturrinda tað, sum teir hava fingið í skiftandi viðurgjaldi seinastu 5 árini fyri freistina, um so er, at kapitalfelagið var insolvent, tá skiftandi viðurgjaldið varð ásett.

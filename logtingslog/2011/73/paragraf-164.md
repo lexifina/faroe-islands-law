@@ -1,0 +1,1 @@
+§ 164. Avgerðin um viðtøkubroytingar, ið eru treytaðar av, at kapitalurin verður hækkaður, fellur burtur, um ásetta minstaupphæddin fyri kapitalhækkanini ikki er teknað innan fyri ta freist, sum er ásett í avgerðini. Um so er, skal tað, sum er inngoldið til kapitalin, afturrindast skjótast til ber.

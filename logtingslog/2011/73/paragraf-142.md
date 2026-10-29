@@ -1,0 +1,2 @@
+## Val av starvafólkaumboðum
+§ 142. [^1] Avgerð um val av limum til evsta leiðslustovnin sambært §§ 140 og 141 krevur, at í minsta lagi helvtin av starvsfólkunum í kapitalfelagnum ávikavist dótturfeløgunum atkvøða fyri hesum uttan so, at semja er millum leiðslu og starvsfólk um ikki at fremja atkvøðugreiðslu um hetta. Avgerðin skal verða fráboðað evstu leiðsluni á ein hátt, sum kann verða skjalprógvaður seinni.

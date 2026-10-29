@@ -1,0 +1,2 @@
+## Nevndar- og eftirlitsráðsfundir
+§ 123. Nevndar- ella eftirlitsráðsformaðurin í einum partafelagi skal tryggja, at evsta leiðslan heldur fund, tá tað er neyðugt, og skal síggja til, at allir limir verða innkallaðir. Ein limur í leiðsluni ella aðalfundarvaldi grannskoðari felagsins, sbr. § 144, kann krevja, at evsta leiðslan verður innkallað. Ein stjóri hevur, hóast viðkomandi ikki er nevndar- ella eftirlitsráðslimur, rætt at vera til staðar og at taka orðið á nevndar- ella eftirlitsráðsfundum uttan so, at nevndin ella eftirlitsráðið í einstøku førunum tekur aðra avgerð.

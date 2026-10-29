@@ -1,0 +1,7 @@
+## Kapittul 5
+## Umsetiligheitsavmarkingar og útloysan
+## Forkeypsrættur
+§ 67. [^1] Er ásett í viðtøkunum, at kapitaleigarar ella onnur hava forkeypsrætt, um kapitalpartar skifta eigarar, skulu viðtøkurnar hava reglur um hetta, heruppií eina freist at fremja forkeypsrættin. Um hesar reglur hava við sær eyðsýnt órímiligan prís ella aðrar eyðsýnt órímiligar treytir, kunnu reglurnar heilt ella partvíst verða settar til viks við dómi.
+Stk. 2. [^1] Í sambandi við høvuðsdómsviðgerðina, sbr. stk. 1, 2. pkt. kunnu partarnir brúka ásetingina í stk. 3 um tilnevnan av metingarfólki, tá metast skal um, um prísurin er eyðsýnt órímiligur, og fyri at áseta prísin.
+Stk. 3. Er í viðtøkunum einki ásett um útrokningargrundarlagið fyri prísinum, tá forkeypsrættur verður brúktur, skal prísurin, um ikki semja fæst um hann, verða av metingarfólki, sum rætturin hevur tilnevnt, fastsettur til virðið av kapitalpartinum. Avgerð metingarfólksins kann verða løgd fyri rættin. Slíkt mál skal vera lagt fyri rættin í seinasta lagi 3 mánaðir eftir, at váttan metingarfólksins er móttikin. Tann kapitaleigari, sum ynskir metingina gjørda, ber útreiðslurnar til metingarfólkið, men útreiðslan kann verða áløgd felagnum, um meting metingarfólksins í stóran mun víkir frá prísinum, og henda meting heilt ella partvíst verður løgd til grundar.
+Stk. 4. Fevnir avhendanin av kapitalpørtum um fleiri kapitalpartar, kann forkeypsrætturin ikki fremjast fyri ein part av hesum, um ikki viðtøkurnar geva heimild fyri hesum.

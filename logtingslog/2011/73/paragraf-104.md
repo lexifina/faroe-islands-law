@@ -1,0 +1,4 @@
+## Atkvøðugreiðslur
+§ 104. Er ikki annað ásett í viðtøkunum, sbr. stk. 3, skal ein kapitaleigari atkvøða samlað upp á kapitalpartar sínar.
+Stk. 2. [^1] Kapitaleigarar hava møguleika at atkvøða við brævi, t.e. at atkvøða skrivliga, áðrenn aðalfundurin verður hildin. Í kapitalfeløgum, sum ikki hava partabrøv upptikin til handils á einum reguleraðum marknaði í einum ES/EBS- landi, kann í viðtøkum kaptalfelagsins verða vikið frá hesum møguleikanum. Fyri skrivliga atkvøðugreiðslu mugu bert galda tey krøv og tær avmarkingar, sum neyðug eru fyri at tryggja eyðmerking av kapitaleigarunum, og bert í tann mun, tey standa í rímiligt mát við hetta mál.
+Stk. 3. Í partafeløgum hevur ein partaeigari, sum í vinnuligum høpi virkar vegna aðrar fysiskar ella løgfrøðiligar persónar (viðskiftafólk), rætt at útinna atkvøðurættindi síni fyri nøkur av partabrøvunum á ein hátt, sum ikki er tann sami sum útinnanin av atkvøðurættindunum fyri onnur partabrøv.

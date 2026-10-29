@@ -1,0 +1,2 @@
+## Um tvingsilsavtøka við rættin
+§ 230. Hava kapitaleigarar við vilja samvirkað til eina aðalfundaravgerð í stríð við § 108 ella á annan hátt misnýtt ávirkan sína í einum kapitalfelagi ella samvirkað til brot av hesi lóg ella á viðtøkur kapitalfelagsins, kann rætturin, um tað, orsakað av longdini av misnýtsluni ella av øðrum ávum er serlig grund til tess, eftir uppáhald kapitaleigaranna, ið umboða í minsta lagi 1/10 av felagskapitalinum, avgera, at kapitalfelagið skal tvingsilsavtakast.

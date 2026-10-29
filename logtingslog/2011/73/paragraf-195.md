@@ -1,0 +1,2 @@
+## Um almannagagnligar gávur
+§ 195. Aðalfundurin kann gera av, at tað av ognum kapitalfelagsins verða latnar gávur til almannagagnlig endamál ella endamál, ið kunnu sammetast við hesi, um tað verður mett rímiligt í mun til ætlanina við gávuni, fíggjarligu støðu felagsins og umstøðurnar annars. Til endamálini, nevnd í 1. pkt., kann høvuðsleiðslan nýta upphæddir, sum, í mun til fíggjarligu støðu felagsins, eru av lítlum týdningi.

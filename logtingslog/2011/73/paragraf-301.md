@@ -1,0 +1,3 @@
+§ 301. Stovnanin av eini deild skal skrásetast í kt-skipan Skráseting Føroya ella verða fráboðað til skráseting hjá Skráseting Føroya. 2. kapittul verður at nýta samsvarandi.
+Stk. 2. Deildin kann ikki byrja virksemi sítt, fyri enn skráseting ella fráboðan er farin fram. Um noktað verður fyri skráseting, ella um ein verandi deild verður strikað, sbr. § 302, skal virksemi deildarinnar her í landinum ikki halda fram.
+Stk. 3. Í seinasta lagi 2 vikur eftir, at útlendska felagið er tikið undir trotabúarviðgerð, neyðskuldarsemju ella samsvarandi skipan, skal skráseting í kt-skipan Skráseting Føroya ella fráboðan um hetta til Skráseting Føroya verða farin fram. Upplýsing um støðuna hjá útlendska felagnum skal verða framd sum eitt ískoyti til navn felagsins, sbr. § 299, stk. 1.

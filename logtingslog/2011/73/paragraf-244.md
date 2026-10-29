@@ -1,0 +1,7 @@
+## Innlating av upplýsingum um ætlaðu samanleggingina, heruppií møgulig samanleggingarætlan og møgulig váttan frá metingarfólki um støðu kravánaranna [^1]
+§ 244. [^1] Skráseting Føroya skal í seinasta lagi 4 vikur eftir, at møgulig samanleggingarætlan er undirskrivað, hava móttikið eitt avrit av samanleggingarætlanini, sbr. tó stk. 2. Verður farið út um freistina, kann móttøkan av samanleggingarætlanini ikki almannakunngerast, og samanleggingin kann tí ikki samtykkjast.
+Stk. 2. [^1] Hava luttakandi feløgini nýtt møguleikan at frávelja gerð av samanleggingarætlan, sbr. § 237, stk. 2, skal hetta fráboðast Skráseting Føroya við tilskilan av navni og skrásetingarnummari á teimum luttakandi feløgunum.
+Stk. 3. [^1] Váttanin frá metingarfólki um støðu kravánaranna, sbr. § 242, 1. pkt. skal sendast inn til Skráseting Føroya, sbr. tó stk. 4.
+Stk. 4. [^1] Er møguleikin nýttur at frávelja gerð av váttan frá metingarfólki um støðu kravánaranna, skal hetta fráboðast Skráseting Føroya við tilskilan av navni og skrásetingarnummari á teimum feløgum, sum luttaka í samanleggingini.
+Stk. 5. [^1] Upplýsingar og møgulig skjøl, sum Skráseting Føroya fær, sbr. stk. 1-4, verða almannakunngjørd í kt-skipan Skráseting Føroya. Um kravánararnir hava rætt at fráboða síni krøv, sbr. § 243, inniheldur almannakunngering Skráseting Føroya upplýsing um hetta.
+Stk. 6. [^1] Landsstýrismaðurin kann áseta nærri reglur um almannakunngering hjá kapitalfeløgum av møguligari samanleggingarætlan og møguligum tilhoyrandi skjølum.

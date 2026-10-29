@@ -1,0 +1,4 @@
+## Um møguleikan fyri at krevja samsýning
+§ 267. Kapitaleigararnir í innskjótandi kapitafelagnum kunnu krevja samsýning frá kapitalfelagnum, um viðurgjaldið fyri kapitalpartarnar í innskjótandi kapitalfeløgunum ikki er rímiliga og sakliga grundað, og um kapitaleigararnir hava tikið fyrivarni fyri hesum á aðalfundinum, har avgerð um at fremja kloyvingina varð tikin.
+Stk. 2. Sakarmál eftir stk. 1 skal reisast í seinasta lagi 2 vikur eftir, at kloyvingin er samtykt í øllum teimum framhaldandi kapitalfeløgunum, sum luttaka í kloyvingini.
+Stk. 3. [^1] Er fyrivarni tikið eftir stk. 1, kann samtykta kloyvingin í fyrsta lagi verða skrásett eftir, at freistin í stk. 2 er farin uttan so, at metingarfólkini í ummæli sínum um ætlaðu kloyvingina, heruppií viðurgjaldið, sbr. § 259 koma til ta niðurstøðu, at viðurgjaldið fyri kapitalpartanar í innskjótandi kapitalfelagnum er rímiliga og sakliga grundað.

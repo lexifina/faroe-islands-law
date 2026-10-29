@@ -1,0 +1,1 @@
+§ 11. Verða viðtøkurnar ella annað broytt í einum kapitalfelag, sum áður er skrásett hjá Skráseting Føroya, skal broytingin verða skrásetast í kt-skipan Skráseting Føroya ella fráboðað skrásetingini, sbr. § 9.

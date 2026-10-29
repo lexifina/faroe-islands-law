@@ -1,0 +1,1 @@
+§ 151. Rannsóknarfólkið kann frá leiðsluni krevja tær upplýsingar, sum mugu metast at hava týdning fyri metingina av felagnum og, um felagið er eitt móðurfelag, samtaki tess sambært ársroknskaparlógini. Sama er galdandi fyri leiðsluna í einum føroyskum felag, sum er dótturfelag í einum samtaki sambært ársroknskaparlógini.

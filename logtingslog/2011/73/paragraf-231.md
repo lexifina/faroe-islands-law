@@ -1,0 +1,4 @@
+## Um uppafturtøku
+§ 231. [^1] Um útlutan eftir § 223 ikki er byrjað, kunnu kapitaleigarar, við atliti til § 106, avgera at taka felagið uppaftur. Tað er ein treyt fyri uppafturtøku, at vald verður leiðsla og møguligur grannskoðari, og at gjørd verður ein váttan frá einum metingarfólki, sbr. § 37, um at kapitalurin er til staðar. Felagskapitalurin skal verða niðurskrivaður til ta upphædd, sum er til staðar. Er felagskapitalurin eftir tað lægri enn kapitalkravið, sbr. § 4, stk. 2, skal hann verða hækkaður til í minsta lagi hesa upphædd.
+Stk. 2. Avgerð um uppafturtøku skal verða fráboðað í seinasta lagi 2 vikur eftir, at avgerðin er tikin. Við fráboðanini skal leggjast ein váttan frá einum góðkendum grannskoðara um, at lán ikki er veitt luttakarunum í felagnum í stríð við 13. kapittul í hesi lóg.
+Stk. 3. [^1] (Strikað).

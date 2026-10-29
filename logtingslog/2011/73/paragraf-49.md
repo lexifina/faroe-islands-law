@@ -1,0 +1,4 @@
+§ 49. Tann, ið ognar sær ein kapitalpart við nominellum virði, kann ikki útinna tey rættindi, sum eru hjá kapitaleigara, uttan so at ognarin er uppskrivaður í eigarabókini, ella ognarin hevur fráboðað og skjalprógvað ognan sína. Hetta er tó ikki galdandi fyri rættin til vinningsbýti og onnur útgjøld og rættin til nýggjar kapitalpartar í sambandi við kapitalhækking.
+Stk. 2. [^6] Ognari av einum ella fleiri handhavapartabrøvum kann ikki útinnna tey rættindi, sum ein kapitaleigari hevur, uttan so at ognarin hevur givið fráboðan til felagið um sítt ognarhald.
+Stk. 3. [^6] Ognari av einum ella fleiri handhavapartabrøvum kann ikki útinna tey rættindi, sum ein kapitaleigari hevur, uttan so at ognarin er skrásettur í kt-skipan Skráseting Føroya, sbr. § 57 a ella § 58.
+Stk. 4. [^6] Høvuðsleiðslan hevur ábyrgdina av at hava eftirlit við, um ein ognari lýkur treytirnar í stk. 1-4.

@@ -1,0 +1,7 @@
+## Skifti til endurskipan ella trotabúsviðgerð [^4]
+§ 233. [^4] Áheitan um endurskipanarviðgerð ella trotabúsviðgerð vegna felagið kann bert verða givin av høvuðsleiðsluni ella, um felagið er undir likvidatión, av likvidator.
+Stk. 2. [^4] Koma likvidatorarnir til ta niðurstøðu, at likvidatiónin ikki fer at geva nóg mikið av fulnaði til kreditorarnar, skulu likvidatorarnir lata inn áheitan um endurskipanarviðgerð ella trotabúsviðgerð.
+Stk. 3. [^4] Er eitt felag undir tvingsilsavtøku eftir § 226, verður áheitanin um endurskipanarviðgerð ella trotabúsviðgerð latin inn av likvidator. Er likviditator ikki tilnevndur, skal skiftirætturin av egnum ávum taka avgerð um endurskipanarviðgerð ella trotabúsviðgerð.
+Stk. 4. [^4] Tá áheitan um endurskipanarviðgerð ella trotabúsviðgerð er latin inn, kunnu ikki fremjast skrásetingar viðvíkjandi kapitalfelagnum, tó burtursæð frá broytingum viðvíkjandi møguligum vali av grannskoðara.
+Stk. 5. [^1] [^4] Eitt kapitalfelag, sum er undir endurskipanarviðgerð ella trotabúsviðgerð, kann luttaka í samanleggingum sum tað uppathaldandi felagið, og kann luttaka í kloyvingum sum innskjótandi felagið, um kurator góðtekur tað.
+Stk. 6. [^4] Í einum felagi, har endurskiparin hevur yvirtikið leiðsluna av felagnum, kunnu ikki fremjast skrásetingar viðvíkjandi felagnum, tó burtursæð frá broytingum viðvíkjandi møguligum grannskoðara, sum endurskipari hevur tilnevnt, ella broytingum, ið eru samtyktar av aðalfundinum, og sum endurskipari hevur givið samtykki til.

@@ -1,0 +1,1 @@
+§ 274. Um skipanin av einum partafelagi til smápartafelag verður mett sum framd, tá viðtøkur felagsins eru broyttar soleiðis, at tær lúka krøvini fyri smápartafeløg, og tá umskapanin er skrásett í kt-skipan Skráseting Føroya.

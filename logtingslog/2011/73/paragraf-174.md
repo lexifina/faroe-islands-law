@@ -1,0 +1,3 @@
+§ 174. [^1] Skráseting av ella fráboðan til skrásetingar um fremjanina av eini kapitalhækking kann ikki verða skrásett, fyrr enn tann felagskapitalur og møguligur yvirkursur, ið skal verða inngoldin eftir hesi lóg, sbr. § 33, ella eftir viðtøkunum, er inngoldin.
+Stk. 2. Nýggju kapitalpartarnir geva rætt til vinningsbýti og onnur rættindi í kapitalfelagnum frá tí løtu, at kapitalhækkanin er skrásett uttan so, at annað er ásett í avgerðini um kapitalhækkan. Rættindini taka tó við í seinasta lagi 12 mánaðir eftir, at skrásett er.
+Stk. 3. Tá skrásett er, verður felagskapitalurin mettur at vera hækkaður við samlaða virðinum av kapitalhækkanini.

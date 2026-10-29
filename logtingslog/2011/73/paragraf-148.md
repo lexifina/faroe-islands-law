@@ -1,0 +1,1 @@
+§ 148. [^1] Broytingar viðvíkjandi grannskoðara, sum er valdur sbrt. § 144, skulu skrásetast í kt-skipan Skráseting Føroya ella fráboðast Skráseting Føroya, sbr. § 9. Um grannskoðaraskifti fer fram, innan starvstíðin er úti, er § 10, stk. 2 galdandi.

@@ -1,0 +1,6 @@
+§ 66. [^5] Verður eitt eigaraprógv avhendað til ognar ella veð, eru ásetingarnar í § 14, stk. 1 og 2 í lov om gældsbreve galdandi samsvarandi. Hetta er tó ikki galdandi, um tað, sbrt. ásetingunum í viðtøkum kapitalfelagsins, er tikið greitt fyrivarni í eigarapróvnum, t.d. um at talan ikki er um eitt umfarsskjal. Eitt partabrævaskjal, sum er givið út til handhava, verður verandi handhavaskjal, hóast tað, av partafelagnum, á partabrævaskjalið verður áteknað, at navn eigarans er uppskrivað, um so er, at navn ikki er skrivað á partabrævaskjalið.
+Stk. 2. Fyri vinningbýtisskupongir galda ásetingarnar í §§ 24 og 25 í lov om gældsbreve.
+Stk. 3. Ógildan av eigaraprógvum uttan dóm kann bert fara fram, um tað er ásett í viðtøkum kapitalfelagsins og á eigarapróvnum sjálvum. Innkalling um ógildan skal setast í kt-skipan Skráseting Føroya við hesum freistum:
+1) Í minsta lagi 4 vikur, tá talan er um ógildan av eigaraprógvum, sum ikki eru umfarsskjøl, og
+2) í minsta lagi 6 mánaðir, tá talan er um ógildan av øðrum eigaraprógvum.
+Stk. 4. Ásetingarnar í stk. 3 galda samsvarandi fyri vinningsbýtiskupongir og talongir. Kupongark kunnu ógildast uttan dóm saman við teimum eigaraprógvum, sum hoyra til, uttan so at viðtøkurnar áseta annað.

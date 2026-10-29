@@ -1,0 +1,1 @@
+§ 305. Landsstýrismaðurin kann seta ásetingar, sum undantaka frá serligu reglunum fyri landspartafeløg, um hetta er neyðugt fyri at tryggja javnstøðu millum hesar reglur og samsvarandi reglur fyri kapitalfeløg, sum hava virðisbrøv upptikin til handils á einum reguleraðum marknaði í einum ES- ella EBS-landi.

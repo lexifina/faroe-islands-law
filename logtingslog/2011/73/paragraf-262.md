@@ -1,0 +1,7 @@
+## Innlatan av upplýsingum um ætlaðu kloyvingina , heruppií møgulig kloyvingarætlan og møgulig váttan frá metingarfólki um støðu kravánaranna [^1]
+§ 262. [^1] Skráseting Føroya skal í seinasta lagi 4 vikur eftir, at møgulig kloyvingarætlan er undirskrivað, hava móttikið eitt avrit av kloyvingarætlanini, sbr. tó stk. 2. Verður farið út um freistina, kann móttøkan av kloyvingarætlanini ikki almannakunngerast, og kloyvingin kann tí ikki samtykkjast.
+Stk. 2. [^1] Hava luttakandi kapitalfeløgini avgjørt ikki at gera eina kloyvingarætlan, sbr. § 255, stk. 2, skal boðast Skráseting Føroya frá hesum saman við upplýsingum um nøvn og v-tøl hjá luttakandi kapitalfeløgunum.
+Stk. 3. [^1] Váttan frá metingarfólkunum um støðu kravánaranna, sbr. § 260, 1. pkt., skal sendast Skráseting Føroya, sbr. tó stk. 4.
+Stk. 4. [^1] Er møguleikin at velja váttan frá metingarfólkunum um støðu kravánaranna frá, brúktur, sbr. § 260, 2. pkt., skal boðast Skráseting Føroya frá hesum saman við upplýsingum um nøvn og v-tøl hjá kapitalfeløgunum, sum luttaka í kloyvingini.
+Stk. 5. [^1] Móttøkan av teimum skjølunum, sum eru nevnd í stk. 1-4, verður almannakunngjørd í kt-skipan Skráseting Føroya. Hava kravánararnir rætt at fráboða krøv síni, sbr. § 261, skal hetta upplýsast í almannakunngeringini frá Skráseting Føroya.
+Stk. 6. [^1] Landsstýrismaðurin kann áseta nærri reglur, tá ið kapitalfeløg almannakunngera møguliga kloyvingarætlan og møgulig skjøl, ið fylgja við.

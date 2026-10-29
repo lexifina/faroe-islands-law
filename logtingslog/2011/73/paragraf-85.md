@@ -1,0 +1,1 @@
+§ 85. [^1] Fyri egnu kapitalpartar kapitalfelagsins og fyri kapitalpartar dótturfelagsins í móðurfelagnum kann atkvøðurættur ikki útinnast. Egnir kapitalpartar og kapitalpartar í dótturfelagnum verða ikki roknaðir uppí, tá atkvøðu- og eigarapartar verða gjørdir upp. Pkt. 2 er tó ikki galdandi, tá kapital- og eigarapartar verða gjørdir upp eftir § 55.

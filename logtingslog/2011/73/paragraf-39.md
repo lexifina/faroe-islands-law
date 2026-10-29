@@ -1,0 +1,2 @@
+## Val av leiðslu og møguligum grannskoðara v.m.
+§ 39. Eru leiðsla og møguligur grannskoðari fyri kapitalfelagið ikki vald í sambandi við stovnanina av kapitalfelagnum, skulu stovnararnir í seinasta lagi 2 vikur eftir, at stovningarskjalið er undirskrivað, hava aðalfund í kapitalfelagnum, har leiðsla og møguligur grannskoðari verða vald. Stovnanin, umframt valda leiðslan og møguligur grannskoðari, skulu skrásetast ella fráboðast, sbr. § 9.

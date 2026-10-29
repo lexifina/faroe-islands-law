@@ -1,0 +1,4 @@
+## Eigaraskrá
+§ 58. [^3] Tá eitt kapitalfelag verður stovnað, skulu felagsins kapitaleigarar, sum hava ræði á týðandi kapitalpørtum, sbrt. § 55, stk. 1, skrásetast í seinasta lagi samstundis við skrásetingina av felagnum, sbrt. § 9. Eru ongir kapitaleigarar, sum hava ræði á týðandi kapitalpørtum, skal hetta somuleiðis skrásetast í seinasta lagi samstundis við skrásetingina av felagnum.
+Stk. 2. Felagið skal eisini skjótast til ber boða frá eini og hvørjari broyting av upplýsingunum, sum eru fráboðaðar eftir stk. 1, um so er, at broytingarnar hava við sær, at eitt av mørkunum í § 55, stk. 1, er rokkið ella ikki longur er rokkið.
+Stk. 3. Upplýsingar, fingnar til vega sambært stk. 1 og 2, verða almannakunngjørdar í kt-skipan Skráseting Føroya. Reglurnar í 2. kapitli um skráseting verða brúktar á sama hátt.

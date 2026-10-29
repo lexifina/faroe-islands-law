@@ -1,0 +1,1 @@
+§ 91. Mál, sum ikki eru sett á dagsskránna, kunnu bert avgerast av aðalfundinum, um allir kapitaleigararnir samtykkja hetta. Vanligi aðalfundurin kann tó altíð taka avgerð um mál, sbr. § 88, stk. 1, og avgera mál, sum eftir viðtøkunum skulu viðgerast á einum slíkum aðalfundi, eins og avgerast kann at kalla inn til eykaaðalfund til at viðgera eitt ávíst evni.

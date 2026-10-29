@@ -1,0 +1,2 @@
+## Um serligar skyldur at almannakunngera v.m.
+§ 306. Landspartafeløg skulu skjótast til ber boða Skráseting Føroya frá týðandi viðurskiftum, sum viðvíkja felagnum, og sum kunnu metast at fáa týdning fyri framtíð felagsins, starvsfólk, partaeigarar ella kravánarar. Í móðurfeløgum, sbr. §§ 6 og 7, skal verða boðað frá um týðandi viðurskifti, sum viðvíkja samtakinum, og sum kunnu metast at fáa týdning fyri framtíð samtaksins, starvsfólk, partaeigarar ella kravánarar.

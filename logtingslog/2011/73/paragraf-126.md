@@ -1,0 +1,5 @@
+## Málið á fundum í nevnd og eftirlitsráði
+§ 126. Nevndar- og eftirlitsráðsfundir verða hildnir á føroyskum, sbr. tó stk. 2 og 3.
+Stk. 2. [^3] Nevndar- og eftirlitsráðsfundir kunnu, um meirlutin avger tað, haldast á einum øðrum máli enn føroyskum, samstundis sum møguleiki skal vera fyri beinleiðistulking til og úr føroyskum til allar luttakarar. Fyri at halda fundir á øðrum máli enn føroyskum uttan beinleiðis tulking krevst, at allir nevndarlimir ella eftirlitsráðslimir eru samdir um hetta.
+Stk. 3. Hóast stk. 2 kunnu nevndar- ella eftirlitsráðsfundir tó verða hildnir á donskum, svenskum, norskum ella enskum uttan beinleiðistulking, um hetta mál er ásett sum samtaksmál í viðtøkum felagsins.
+Stk. 4. Um skjølini, ið eru framleidd at nýta í arbeiði nevndarinnar ella eftirlitráðsins, ikki eru skrivað á føroyskum, kann ein og hvørnevndar- ella eftirlitsráðslimur krevja, at skjølini verða umsett til føroyskt. Hetta er tó ikki galdandi, um skjølini eru á donskum, svenskum, norskum ella enskum, um hetta mál er ásett sum samtaksmál í viðtøkum felagsins.

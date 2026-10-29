@@ -1,0 +1,9 @@
+§ 248. Høvuðsleiðslan í framhaldandi kapitalfeløgum, ið luttaka í samanleggingini, skal á møguligum aðalfundi, har avgerð um fremjan av samanlegging verður tikin, upplýsa um hendingar av serligum týdningi, heruppií týðandi broytingar í ognum og skyldum, sum eru íkomnar í tíðini millum undirskrivingina av samanleggingarætlanini og aðalfundin.
+Stk. 2. [^1] Í eini samanlegging, har gerð av samanleggingarætlan er vald frá, sbr. § 237, stk. 2, skulu høvuðsleiðslurnar upplýsa um hendingar av týðandi týdningi, heruppií týðandi broytingar í aktivum og skyldum, sum eru farnar fram í tíðini millum fíggjarjavnadagin í ársfrásøgnini, sum felagið seinast hevur latið, og aðalfundin.
+Stk. 3. [^1] Í eini samanlegging, har tað bert luttaka smápartafeløg, skal tað í sambandi við, at tað verður samtykt, at samanleggingin skal fremjast, eisini takast støða til fylgjandi viðurskifti, uttan so at viðkomandi upplýsingar síggjast í eini møguligari samanleggingarætlan, sbr. § 237:
+1) Navn á smápartafeløgunum og møgulig hjánøvn, heruppií um navnið ella hjánavnið á einum uppathaldandi felagi sum navn ella hjánavn skal vera hjá tí framhaldandi felagnum.
+2) Viðurlagið fyri smápartarnar í einum uppathaldandi felagi.
+3) Tíðina tá smápartarnir, sum møguliga verða veittir sum viðurlag, geva rætt til útbýti.
+4) Tíðina tá rættindi og skyldur hjá einum uppathaldandi felagi roknskaparliga skulu metast at vera farnar yvir.
+5) Viðtøkur, sbr. §§ 28 og 29, um tað við samanleggingini verður skapt eitt nýtt smápartafelag.
+Stk. 4. [^1] Er talan um eina samanlegging, har einans smápartafeløg luttaka, og har smápartaeigararnir eftir § 237, stk. 2 í semju hava avgjørt, at samanleggingarætlan ikki skal gerast, skulu samlíkar avgerðir vera tiknar í øllum teimum framhaldandi smápartafeløgum við atliti til krøvini í stk. 3. Um hetta ikki er støðan, verður avgerðin um fremjan av samanleggingini at meta sum fallin burtur.

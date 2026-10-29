@@ -1,0 +1,1 @@
+§ 114. Í kapitalfeløgum, sum hava partabrøv upptikin til handils á einum reguleraðum marknaði, og í landspartafeløgum kann nevndarformaðurin ella eftirlitsráðsformaðurin ikki gera uppgávur, sum ikki eru partur av formansstarvinum, fyri kapitalfelagið. Ein nevndarformaður kann tó, um serligur tørvur er á tí, gera uppgávur, sum nevndin hevur biðið viðkomandi gera fyri nevndina.

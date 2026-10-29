@@ -1,0 +1,1 @@
+§ 204. Eru kapitalpartar ikki avhendaðir rættstundis eftir §§ 202 og 203, skal høvuðsleiðsla kapitalfelagsins skipa fyri, at felagskapitalurin verður lækkaður við virðinum á hesum kapitalpørtum, sbr. kapittul 11.

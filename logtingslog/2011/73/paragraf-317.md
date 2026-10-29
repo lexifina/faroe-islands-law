@@ -1,0 +1,2 @@
+§ 317. Sakarmál eftir § 316, stk. 3, skal verða reist í seinasta lagi 6 mánaðir eftir, at avgerðin um ábyrgdarundanslepping ella um ikki at reisa sakarmál varð tikin av aðalfundinum. Um rannsókn er sett í verk eftir ásetingunum í § 150, skal sakarmálið verða reist 6 mánaðir eftir, at rannsóknin er endað.
+Stk. 2. Sakarmál eftir § 316, stk. 4 skal verða reist í seinasta lagi 3 mánaðir eftir, at kapitalfelagið er tikið undir trotabúarviðgerð.

@@ -1,0 +1,3 @@
+## Um afturrindan
+§ 194. Er ein útgjalding til kapitaleigarar farin fram í stríð við ásetingarnar í hesi lóg, skulu hesir rinda aftur upphæddina, umframt eina árliga rentu av upphæddini, sum samsvarar við ta rentu, sum er ásett eftir § 5, stk. 1 og 2 í lov om renter ved forsinket tilbagebetaling m.v., við einum ískoyti upp á 2%. Fyri afturrindan av vinningi er hetta tó bert galdandi, um kapitaleigarin visti ella átti at vitað, at útgjaldingin var ólóglig.
+Stk. 2. Kann upphæddin ikki verða heintað inn, ella hevur kapitaleigarin ikki skyldu at rinda aftur, hava tey, sum hava tikið lut í avgerðini um útgjald ella í fremjanina av hesi ella í uppsetingini ella góðkenningini av skeivu roknskaparuppgerðini, ábyrgdina eftir vanligu endurgjaldsreglunum.

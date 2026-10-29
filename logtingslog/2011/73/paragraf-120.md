@@ -1,0 +1,5 @@
+## Val av nevnd og eftirlitsráði
+§ 120. Í partafeløgum skal meirilutin av nevndar- ella eftirlitsráðslimum verða valdur av aðalfundinum.
+Stk. 2. Viðtøkurnar kunnu veita almennum myndugleikum ella øðrum rætt til at útnevna ein ella fleiri nevndar- ella eftirlitsráðslimir.
+Stk. 3. Í partafeløgum skulu, undan vali av nevndar- ella eftirlitsráðslimum á aðalfundinum, latast upplýsingar um leiðslustørv hjá uppstillaðu persónunum í øðrum vinnurekandi virkjum, tó undantikið í egnum dótturfeløgum, sum partafelagið eigur 100%. Er viðkomandi limur í leiðsluni bæði í einum øðrum móðurfelagi og í einum ella fleiri av dótturfeløgum tess, sum móðurfelagið eigur 100%, er tað, hóast ásetingina í 1. pkt., nóg mikið at upplýsa navn móðurfelagsins og tal av dótturfeløgum tess, har viðkomandi er limur í leiðsluni. Er semja um tað millum allar partaeigarar, kann verða vikið frá ásetingini.
+Stk. 4. Starvstíðin hjá aðalfundarvaldu nevndar- og eftirlitsráðslimunum er tann, sum ásett er í viðtøkunum. Valskeiðið skal enda við endanina av einum vanligum aðalfundi í seinasta lagi 4 ár eftir valið.

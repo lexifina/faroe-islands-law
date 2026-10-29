@@ -1,0 +1,2 @@
+§ 118. Stjórnin skal tryggja, at bókførsla kapitalfelagsins fer fram sambært lógarinnar reglum á hesum øki, og at umsitingin av ognum felagsins fer fram á tryggan hátt.
+Stk. 2. [^1] Stjórnin skal harumframt tryggja, at kapitaltilbúgving kapitalfelagsins til eina og hvørja tíð er fullgóð, heruppií at nóg mikið av gjaldføri er til at nøkta verandi og komandi skyldur, so hvørt sum tær fella til gjaldingar. Nevndin hevur sostatt til eina og hvørja tíð skyldu til at meta um fíggjarligu støðuna og tryggja, at verandi kapitaltilbúgving er fullgóð.

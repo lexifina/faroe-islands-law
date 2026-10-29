@@ -1,0 +1,3 @@
+## At fráboða avgerð um kapitalhækkan
+§ 173. [^1] Skráseting av ella fráboðan til skrásetingar um avgerð aðalfundsins ella høvuðsleiðslunnar um at hækka kapitalin eftir ásetingunum í hesum kapitli skal vera Skráseting Føroya í hendi í seinasta lagi 2 vikur eftir, at freistin fyri at inngjalda kapitalpartarnar er farin, ella at inngjaldið er framt.
+Stk. 2. [^1] Skráseting av ella fráboðan til skrásetingar um avgerð aðalfundsins ella høvuðsleiðslunnar um at skriva út umbýtilig skuldarbrøv ella warrant og tær viðtøkubroytingar, ið standast av hesum, sbr. §§ 168 og 170, skal vera Skráseting Føroya í hendi í seinasta lagi 2 vikur eftir, at avgerðin er tikin.

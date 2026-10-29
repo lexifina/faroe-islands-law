@@ -1,0 +1,11 @@
+## Kapittul 9
+## Grannskoðan og rannsókn
+## Grannskoðan
+§ 144. Er eitt kapitalfelag fevnt av grannskoðanarskyldu eftir ársroknskaparlógini ella aðrari lóggávu, ella um aðalfundurin annars ger av, at ársroknskapur felagsins skal grannskoðast, skal aðalfundurin velja ein ella fleiri góðkendar grannskoðarar og møguligar varamenn fyri hesar. Avgerð um hetta kann verða tikin við vanligum atkvøðumeiriluta eftir § 105. Viðtøkurnar kunnu harumframt geva øðrum rætt at tilnevna ein ella fleiri aðrar grannskoðarar.
+Stk. 2. [^7] Ásetingar í viðtøkum felagsins ella onnur avtala, sum avmarkar aðalfundarins val av einum ella fleiri góðkendum grannskoðarum, sum skulu grannskoða ársroknskap felagsins, umframt møguligum varafólkum fyri hesar, til ávísar av flokkar av ella lista yvir grannskoðarar, hava ikki gildi.
+Stk. 3. [^7] Ein kapitaleigari kann krevja, at Skráseting Føroya harumframt tilnevnir ein góðkendan grannskoðara, sum skal luttaka í grannskoðanini saman við hinum grannskoðaranum ella grannskoðarunum fram til næsta aðalfund, um
+1) kapitaleigarar, ið eiga í minsta lagi 1/10 av kapitalinum, á einum aðalfundi, har val av grannskoðara var á dagsskránni, hava atkvøtt fyri at fáa ein grannskoðara afturat, og
+2) kravið er sett fram í seinasta lagi 2 vikur eftir, at aðalfundurin er hildin.
+Stk. 4. [^7] Skráseting Føroya kann tilnevna ein grannskoðara, um eitt kapitalfelag, ið hevur grannskoðanarskyldu, ikki hevur kravda grannskoðaran, og ein limur í leiðsluni ella ein kapitaleigari biðja um hetta. Tilnevningin er galdandi, til nýggjur grannskoðari er valdur av aðalfundinum.
+Stk. 5. [^1] [^7] Í teimum førum, sum eru nevnd í stk. 3 og 4, verður tað, at grannskoðarin hevur tikið við, skrásett uttan fráboðan. Skráseting Føroya ásetur viðurgjaldið til tilnevnda grannskoðaran. Kostnaðurin av lógarásettu grannskoðanini av felagsins ársroknskapi o.a. verður í fyrstu atløgu rindaður av landskassanum, men verður endaliga goldin av kapitalfelagnum.
+Stk. 6. [^7] Um grannskoðari skal siga frá um viðurskiftini í einum kapitalfelagi, skal grannskoðarin halda seg til tey rættindi og tær skyldur, sum eru galdandi eftir hesi lóg uttan so, at munur ítøkiliga verður gjørdur á aðalfundarvaldum grannskoðarum, sum eru valdir at grannskoða ársroknskapin, sbr. stk. 1, og øðrum grannskoðarum.

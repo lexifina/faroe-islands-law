@@ -1,0 +1,2 @@
+## Um váttan frá metingarfólkunum um støðuna hjá kravánarunum
+§ 260. [^1] Metingarfólkini skulu, umframt ta í § 259 nevndu váttan, harumframt geva eina váttan um, hvørt metast má, um kravánararnir í einstaka kapitalfelagnum eru tryggjaðir nóg væl eftir samanleggingina í mun til felagsins verandi støðu. Kapitaleigararnir kunnu tó í semju avgera, at slík váttan ikki skal gerast um støðuna hjá kravánarunum.

@@ -1,0 +1,3 @@
+## Fíggjarlig hjálp til móðurfeløg, kapitaleigarar, limir í leiðsluni v.m.
+§ 210. Eitt kapitalfelag skal ikki beinleiðis ella óbeinleiðis lata pening vera til taks, veita lán ella veita trygd fyri kapitaleigarar ella leiðsluna í felagnum, sbr. tó §§ 211-214. Sama er galdandi í mun til kapitaleigarar ella leiðsluna í móðurfelagi felagsins og onnur virkir enn móðurfelagið, sum hava avgerandi ávirkan á felagið. 1. pkt er eisini galdandi fyri tey, ið eru knýtt at einum persóni, sum er fevndur av 1. ella 2. pkt. við hjúnabandi, við skyldskapi í stígandi ella fallandi linju, ella sum á annan hátt eru serliga nær.
+Stk. 2. Eitt kapitalfelag kann tó, hóast ásetingina í stk. 1, veita umrøddu fíggjaligu hjálpina, um talan er um sjálvsfígging, sbr. reglurnar í §§ 206-209.

@@ -1,0 +1,2 @@
+§ 223. [^1] Útlutan av likvidatiónsprovenu til kapitaleigararnar kann í fyrsta lagi fara fram, tá freistin, sum er ásett í teirri almannakunngerð, sum er nevnd í § 221, stk. 1, er farin, og skuldin til kendar kravánarar er goldin, sbr. tó § 224, stk. 2.
+Stk. 2. Um nøktandi trygd verður sett, kann útlutast a-conto, áðrenn likvidatiónin er endað, í teimum førum, har proklamafreistin, sbr. § 221, stk. 1, er farin, og møgulig krøv hjá kravánarum eru goldin. A-conto útlutan kann verða kravd afturrindað eftir § 194.

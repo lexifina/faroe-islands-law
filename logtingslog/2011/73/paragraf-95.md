@@ -1,0 +1,4 @@
+§ 95. Innkallingin skal fara fram sambært ásetingunum í viðtøkunum.
+Stk. 2. Aðalfundurin kann gera av, at innkallingin fer fram umvegis heimasíðu kapitalfelagsins, sbr. tó stk. 3. Avgerð um hetta skal takast við í viðtøkurnar. § 106 verður at nýta fyri avgerðina og broytingar í hesi.
+Stk. 3. Í partafeløgum skal innkallingin vera skrivlig til allar partaeigarar, sum eru skrivaðir í eigarabókina, og sum hava biðið um hetta. Um partabrøv partafelagsins kunnu vera handhavapartabrøv, skal innkallingin fara fram umvegis kt-skipan Skráseting Føroya.
+Stk. 4. Hóast innkallað verður á annan hátt, skal innkallingin í partafeløgum, sum hava partabrøv upptikin til handils á einum reguleraðum marknaði, almannakunngerast umvegis heimasíðu partafelagsins. Partafelagið rindar fyri útreiðslurnar í hesum sambandi.

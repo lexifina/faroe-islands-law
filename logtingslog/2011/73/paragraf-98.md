@@ -1,0 +1,1 @@
+§ 98. [^1] Í partafeløgum skulu dagsskráin og tey fullfíggjaðu uppskotini og, fyri vanliga aðalfundin, eisini ársfrásøgnin verða atkomulig hjá partaeigarunum til eftirskoðan í seinasta lagi 2 vikur undan aðalfundinum, sbr. tó § 99.

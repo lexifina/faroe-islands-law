@@ -1,0 +1,1 @@
+§ 29. Viðtøkur fyri eitt kapitalfelag skulu harumframt innihalda upplýsningar um avgerðir, ið sambært hesari lóg skulu takast upp í viðtøkurnar, og nær kapitalfelagið í seinasta lagi heldur uppat, um so er, at kapitalfelagið bert skal vera til í eitt avmarkað tíðarskeið.

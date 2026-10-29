@@ -1,0 +1,1 @@
+§ 83. Hevur eitt partafelag, sum hevur partabrøv upptikin til handils á einum reguleraðum marknaði, tilnevnt ein peningastovn, har partaeigararnir kunnu útinna fíggjarligu rættindi síni, skulu partaeigararnir kunnast um hetta.

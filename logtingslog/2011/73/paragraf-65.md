@@ -1,0 +1,3 @@
+## Avhending av kapitalpørtum
+§ 65. Avhending av einum kapitalparti, sum ikki er útgivin frá eini virðisbrævamiðstøð, ella har tað ikki er útgivið eigaraprógv til ognar ella veð, hevur einki gildi mótvegis kravánarum avhendarans uttan so, at kapitalfelagið ella tann, sum førir eigarabókina, sbr. § 50, stk. 3, hevur fingið fráboðan um avhendanina frá avhendaranum ella ognaranum.
+Stk. 2. Hevur ein kapitaleigari avhendað sama kapitalpart til fleiri ognarar, og er kapitalparturin fevndur av stk. 1, gongur ein seinni ognari framum, tá kapitalfelagið ella tann, ið førir eigarabókina, sbr. § 50, stk. 3, fyrst hevur fingið boð um avhendanina til seinna ognaran, og seinni ognarin var í góðari trúgv, tá kapitalfelagið, ella tann sum førir eigarabókina, fekk fráboðanina.

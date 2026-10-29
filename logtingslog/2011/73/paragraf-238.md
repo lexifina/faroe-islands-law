@@ -1,0 +1,3 @@
+## Um samanleggingarfrágreiðing
+§ 238. [^1] Høvuðsleiðslan í hvørjum einstøkum av teim verandi kapitalfeløgum, sum luttaka í samanleggingini, skal gera eina skrivliga frágreiðing, har greitt verður frá og grundgivið fyri, sbr. tó stk. 2, ætlaðu samanleggingini, heruppií eini møguligari samanleggingarætlan. Frágreiðingin skal innihalda upplýsing um ásetanina av viðurgjaldinum fyri kapitalpartarnar í teimum uppathaldandi kapitalfeløgunum, heruppií serligir trupulleikar í sambandi við ásetanina, og upplýsing um gerð av metingarfrágreiðing, um hendan skal gerast sbrt. § 240.
+Stk. 2. [^1] Kapitaleigararnir kunnu í semju gera av, at tað ikki skal gerast ein samleggingarfrágreiðing.

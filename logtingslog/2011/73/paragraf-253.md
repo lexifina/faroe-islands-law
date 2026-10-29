@@ -1,0 +1,2 @@
+## Um at avhenda ognir og skyldur frá einum kapitalfelag til landið ella til eina kommunu
+§ 253. [^1] Verður eitt kapitalfelag avtikið uttan likvidatión við avhendan av ognum og skyldum kapitalfelagsins í síni heild til landið ella til eina kommunu, verða § 237, stk. 1 og 3, § 238, § 241, § 244, stk. 1, 2 og 5, § 245, stk. 1 og 3-6, §§ 246, 248 og 249, § 250, stk. 1, nr. 1, og § 251, stk. 1 at nýta á sama hátt.

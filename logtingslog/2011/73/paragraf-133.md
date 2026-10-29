@@ -1,0 +1,4 @@
+## At lata grannskoðara upplýsingar v.m.
+§ 133. Leiðslan í einum kapitalfelagi skal lata einum og hvørjum grannskoðara ella rannsóknarfólki, ið er aðalfundarvaldur, og sum skal lata váttanir um viðurskifti kapitalfelagsins, tær upplýsingar, sum mugu metast at vera týdningarmiklar fyri metingina av kapitalfelagnum og, um kapitalfelagið er eitt móðurfelag, um samtak tess, í samsvari við ársroknskaparlógina.
+Stk. 2. Leiðslan í einum kapitalfelagi skal lata tí grannskoðara ella rannsóknarfólki, ið er aðalfundarvaldur, og sum skal siga frá um viðurskifti kapitalfelagsins, atgongd at gera tær kanningar, ið hesin metir neyðugar, og skal tryggja, at grannskoðari ella rannsóknarfólk fær tær upplýsingar og ta hjálp, sum viðkomandi metir neyðugar fyri at útinna arbeiði sítt.
+Stk. 3. Leiðslan í einum føroyskum kapitalfelagi, sum er dótturfelag í einum samtaki, hevur somu skyldur mótvegis grannskoðara móðurfelagsins.

@@ -1,0 +1,2 @@
+§ 226. Verður avtøka ikki samtykt av felagnum í teimum førum, har hetta er ásett í lóggávuni ella í viðtøkum kapitalfelagsins ella av Skráseting Føroya eftir reglum í hesi lóg, sbr. § 217, stk. 2, 2. pkt., ella verður likvidator ikki valdur, kann Skráseting Føroya heita á skiftirættin um at avtaka felagið.
+Stk. 2. Stk. 1 verður at nýta á sama hátt, um tvingilsavtøka av einum felagi er avgjørd av rættinum eftir § 230.

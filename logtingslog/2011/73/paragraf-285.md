@@ -1,0 +1,7 @@
+## Innlatan av upplýsingum um ætlaðu umskapanina, heruppií møgulig umskapanarætlan og møgulig váttan frá metingarfólki um støðu kravánaranna [^1]
+§ 285. [^1] Skráseting Føroya skal í seinasta lagi 4 vikur eftir, at møgulig umskapanarætlan er undirskrivað, hava móttikið eitt avrit av umskapanarætlanini, sbr. tó stk. 2. Verður farið út um freistina, kann móttøkan av umskapanarætlanini ikki almannakunngerast, og umskapanin kann tí ikki samtykkjast.
+Stk. 2. [^1] Hevur smápartafelagið avgjørt ikki at gera eina umskapanarætlan, sbr. § 278, stk. 2, skal boðast Skráseting Føroya frá hesum saman við upplýsingum um navn og skrásetingartal smápartafelagsins.
+Stk. 3. [^1] Váttan frá metingarfólkunum um støðu kravánaranna, sbr. § 283, 1. pkt., skal sendast Skráseting Føroya, sbr. tó stk. 4.
+Stk. 4. [^1] Er møguleikin brúktur at velja váttan frá metingarfólkunum um støðu kravánaranna frá, sbr. § 283, 2. pkt., skal boðast Skráseting Føroya frá hesum saman við upplýsingum um navn og v-tal smápartafelagsins.
+Stk. 5. [^1] Móttøkan av upplýsingum og møguligum skjølum, sbr. stk. 1-4, verður almannakunngjørd í kt-skipan Skráseting Føroya. Hava kravánararnir rætt at fráboða krøv síni, sbr. § 284, skal hetta upplýsast í almannakunngerðingini frá Skráseting Føroya.
+Stk. 6. [^1] Landsstýrismaðurin kann áseta nærri reglur, tá ið smápartafeløg almannakunngera møguliga umskapanarætlan og møgulig skjøl, ið fylgja við.

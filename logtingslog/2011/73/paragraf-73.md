@@ -1,0 +1,1 @@
+§ 73. Eigur ein kapitaleigari meira enn 9/10 av kapitalpørtunum í einum felagi, og hevur kapitaleigarin ein samsvarandi part av atkvøðunum, kann hvør einstakur av eigarum kapitalfelagsins krevja seg útloystan av kapitaleigaranum. § 67, stk. 3 og § 70, stk. 2, 2. pkt. og stk. 3, 2. og 3. pkt verða at nýta samsvarandi.

@@ -1,0 +1,2 @@
+§ 234. [^4] Eitt felag, ið er undir trotabúsviðgerð, skal varðveita navn sítt við ískoytinum: undir trotabúsviðgerð. Aðramáta verður § 228, stk. 1 at nýta. Tá trotabúsviðgerð endar, verður tað skrásett í kt-skipan Skráseting Føroya uttan so, at annað er ávíst í fráboðan skiftirættarins um hetta.
+Stk. 2. [^4] Eitt felag, ið er undir endurskipanarviðgerð, skal varðveita navn sítt við ískoytinum: undir endurskipanarviðgerð.

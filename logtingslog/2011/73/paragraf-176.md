@@ -1,0 +1,2 @@
+§ 176. Tá freistin er farin at umbýta umbýtilig skuldarbrøv ella at gera nýtslu av warrants, skal høvuðsleiðslan skjótast til ber skráseta ella fráboða Skráseting Føroya, hvussu stór upphæddin av umbýtiligum skuldarbrøvum er, ella hvussu nógvir warrants eru býttir um við kapitalpartar. Er tíðarskeiðið longri enn 12 mánaðir, har umbýtilig skuldarbrøv kunnu býtast um, ella tað kann gerast nýtsla av warrants, skal høvuðsleiðslan fremja skráseting ella fráboðan eftir reglunum í § 175.
+Stk. 2. Høvuðsleiðslan kann fremja tær viðtøkubroytingar, sum standast av kapitalhækkanini.

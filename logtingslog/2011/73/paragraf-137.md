@@ -1,0 +1,1 @@
+§ 137. Er val ella tilnevning av limi til leiðsluna í einum kapitalfelagi kunngjørt í kt-skipan Skráseting Føroya í samsvari við § 14, kann ein mangul við valinum ella tilnevningini ikki gerast galdandi mótvegis triðjamanni uttan so, at kapitalfelagið prógvar, at hesin kendi mangulin.

@@ -1,0 +1,3 @@
+## Sølusamtykki
+§ 68. Eru í viðtøkunum ásettar reglur um samtykki til umskifti av kapitalpørtum, skal avgerð um hetta verða tikin skjótast til ber eftir, at áheitanin er móttikin. Tann, ið hevur biðið um samtykki, skal skjótast til ber fáa fráboðan um avgerðina. Er fráboðan ikki latin í seinasta lagi 4 vikur eftir, at áheitanin er móttikin, verður mett, at samtykki er givið.
+Stk. 2. Er í viðtøkunum ásett, at umskifti av kapitalpørtum bert kann fara fram við samtykki frá kapitalfelagnum, tekur høvuðsleiðslan avgerð um hetta uttan so, at avgerðin er løgd fyri aðalfundin. Verður samtykki ikki givið, skal grundgevingin fyri hesum síggjast í fráboðanini, sbr. stk. 1.

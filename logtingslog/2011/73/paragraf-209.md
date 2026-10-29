@@ -1,0 +1,1 @@
+§ 209. Um triðimaður, við fíggjarligari hjálp frá einum kapitalfelag, sbr. § 206, stk. 2, ognar sær kapitalpartar í felagnum, skal fíggjarliga hjálpin verða latin eftir vanligum marknaðarreytum. Sama er galdandi, um triðimaður teknar kapitalpartar, sbr. § 162, sum part av eini hækkan av teknaða kapitalinum.

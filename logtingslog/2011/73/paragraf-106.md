@@ -1,0 +1,2 @@
+§ 106. Avgerð um viðtøkubroyting er bert galdandi, um í minsta lagi 2/3 av bæði greiddum atkvøðunum og av tí partinum av felagskapitalinum, sum er umboðaður á aðalfundinum, hava tikið undir við henni, sbr. tó stk. 2. Avgerð um viðtøkubroyting skal í aðrar mátar lúka tær fyriskipanir, sum kunnu vera í viðtøkunum, umframt serligu reglurnar í § 107.
+Stk. 2. Avgerð um viðtøkubroyting eftir § 74, stk. 3, § 102, stk. 3, § 175, stk. 2, § 176, stk. 2, § 247, stk. 1 og § 265, stk. 1 skal ikki verða tikin av aðalfundinum.

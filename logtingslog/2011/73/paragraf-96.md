@@ -1,0 +1,2 @@
+§ 96. Í innkallingini skal ásetast tíð og stað fyri aðalfundin umframt dagsskrá, har síggjast skal, hvørji mál skulu viðgerast á aðalfundinum. Um uppskot til viðtøkubroytingar skulu viðgerast á aðalfundinum, skal høvuðsinnihaldið í uppskotinum endurgevast í innkallingini.
+Stk. 2. [^1] Í innkalling til aðalfundin, har takast skulu avgerðir eftir § 77, stk. 2, § 92, stk. 1, ella § 107, stk. 1 ella 2, skal øll orðingin av uppskotinum til viðtøkubroytingar takast við í innkallingina.

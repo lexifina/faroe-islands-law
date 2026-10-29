@@ -1,0 +1,2 @@
+§ 309 c. Aðalfundurin kann, við tí atkvøðumeiriluta, sum krevst til viðtøkubroyting, gera av, at eitt íverksetarafelag skal umskrásetast til eitt smápartafelag, um felagið hevur ein felagskapital og tiltakspening at byggja upp kapitalgrundarlag felagsins, sum, tá ið avgerðin verður tikin, er í minsta lagi 50.000 kr., sbr. § 33, stk. 1, 1. pkt.
+Stk. 2. Tað er ein treyt fyri umskrásetingina, at eitt metingarfólk váttar, sbr. § 37, at felagskapitalurin er til staðar.

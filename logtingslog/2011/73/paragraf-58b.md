@@ -1,0 +1,1 @@
+§ 58 b. [^3] Tá eitt kapitalfelag verður stovnað, skulu upplýsingar um felagsins veruligu eigarar, heruppií rættindi hjá teimum veruligu eigarunum, innheintast og skrásetast í seinasta lagi samstundis við skrásetingina av felagnum, sbrt. § 9, stk. 1.

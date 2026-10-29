@@ -1,0 +1,5 @@
+## Um áheitan á kravánararnar
+§ 221. [^1] Við skráseting og almannakunngering í kt-skipan Skráseting Føroya eftir § 220, stk. 1 verður heitt á kravánarar felagsins um í seinasta lagi 3 mánaðir frá dagfestingini av almannakunngerðingini at fráboða krøv síni til likvidator. Likvidator skal samstundis, sum avgerð um likvidatión eftir § 220, stk. 1 verður fráboðað, boða øllum kendum kravánarum felagsins frá avgerðini.
+Stk. 2. Likvidator kann í fyrsta lagi taka búgvið upp til at enda, tá 3 mánaða freistin í stk. 1 er farin.
+Stk. 3. Kann eitt fíggjarkrav ikki verða viðurkent sum fráboðað, skal kravánari verða kunnaður um hetta við innskrivaðum brævi ella við øðrum fráboðanarformi, har móttøkan kann verða prógvað við somu trygd. Kravánari skal hava fráboðan um, at málið skal vera lagt fyri skiftirættin í seinasta lagi 4 vikur eftir, at brævið v.m. er sent, um kravánarin ynskir at ásøkja avgerðina.
+Stk. 4. Fíggjarkrøv, ið verða fráboðað, eftir at búgvið er tikið upp til at enda, verða goldin við ognum, sum ikki enn eru lutaðar út til kapitaleigararnar.

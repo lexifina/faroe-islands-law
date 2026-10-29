@@ -1,0 +1,2 @@
+§ 18. [^1] [^2] Upplýsingar um navn og bústað hjá persónum, skrásettir við heimild í hesi løgtingslóg, skulu, til eina og hvørja tíð síggjast í kt-skipan Skráseting Føroya. Hetta er galdandi fyri bæði virkin og avtikin feløg. Skráseting Føroya kann áseta reglur um, at ávísar upplýsingar ikki skulu síggjast.
+Stk. 2. Dagføringar av persónsupplýsingum eftir stk. 1 halda uppat 10 ár eftir, at viðkomandi persónur ikki longur er skrásettur í einum felag, sum er skrásett í kt-skipan Skráseting Føroya.
