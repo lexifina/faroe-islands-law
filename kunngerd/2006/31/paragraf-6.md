@@ -1,0 +1,5 @@
+§ 6. Henda kunngerð kemur í gildi dagin eftir, at hon er kunngjørd.
+Almanna- og heilsumálaráðið, 1. mai 2006
+Hans Pauli Strøm (sign.)
+landsstýrismaður
+/ Maria á Dul (sign.)

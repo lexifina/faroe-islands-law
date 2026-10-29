@@ -1,0 +1,3 @@
+§ 1. Landsstýrismaðurin setur eina óhefta nevnd at gera tilmæli í teimum førum, tá ið ivamál er, um barn er fevnt av dagstovnalógini ella av forsorgarlógini.
+Stk. 2. Í førum har ein kommuna ikki metir seg vera føra fyri at játta ansingarpláss til eitt barn, tí barnið hevur ein heilt serligan tørv, skal kommunan, áðrenn avgerð er tikin, sambært dagstovnalógini beina málið víðari til Almannastovuna. Um Almannastovan í tílíkum førum ikki metir, at barnið skal hava tilboð sambært forsorgarlógini, skal Almannastovan leggja málið fyri nevndina.
+Stk. 3. Øll mál, ið semja ikki er um millum kommununa og Almannastovuna, skulu leggjast fyri nevndina.
