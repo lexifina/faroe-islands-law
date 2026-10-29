@@ -1,0 +1,2 @@
+§ 3. Royndarfiskiskapur er at royna eftir fiskasløgum og øðrum livandi tilfeingi í sjónum, ið ikki verður gagnnýtt vinnuliga. Royndarfiskiskapur kann eisini vera at royna eftir fiskasløgum, ið verða gagnnýtt, har ætlanin er at fáa virðisøking av tilfeinginum.
+Stk. 2. Royndarfiskiskapur kann fevna um at royna nýggjan reiðskap, at royna nýggjar fiskileiðir, at royna onnur tíðarskeið ella aðrar veiðitíðir o.a., ella at útvega lívfrøðiliga, vistfrøðiliga og tekniska vitan, sum ikki finst frammanundan, og sum kann vera ein liður í at menna vinnuligan fiskiskap.

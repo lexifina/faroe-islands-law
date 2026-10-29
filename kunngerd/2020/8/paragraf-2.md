@@ -1,0 +1,1 @@
+§ 2. Serstakt fiskiloyvi til royndarfiskiskap kann latast fiskifari sum partur í verkætlan, sum hevur eitt menningarmál og nýskapanarmál ella til fiskiskap, sum er liður í eini undirvísingarætlan, sbrt. § 4.
