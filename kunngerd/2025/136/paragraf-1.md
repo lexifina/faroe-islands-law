@@ -1,0 +1,1 @@
+§ 1. Fyri millumlanda málibræv aftan á uppmáling eftir § 3, stk. 1, í løgtingslógini krevur Sjóvinnustýrið gjald, sum er 2 kr. fyri hvørt bruttotonsatalið, sum skipið er mált til, tó í minsta lagi 645 kr.

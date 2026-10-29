@@ -1,0 +1,1 @@
+§ 3. Fyri millumlanda málibræv til skip, sum er keypt uttanlands, og sum hevur gildugt millumlanda málibræv, tá tað verður yvirtikið, krevur Sjóvinnustýrið gjald, sum er 2 kr. fyri hvørt bruttotonsatalið, sum skipið er mált til, tó í minsta lagi 645 kr.
