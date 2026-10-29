@@ -1,0 +1,2 @@
+§ 8. Tá ið skuldari hjá einum av teimum í løgtingslóg um Húsalánsgrunn o.a. nevndu grunnum/skipanum søkja um endaliga uppgerð sambært § 6 í løgtingslóg nr. 62, frá 31. mai 2010, skal umsøkjarin við umsóknini lata dagførda ognaruppgerð og sjálvuppgávu/útskrift og tey skjøl/upplýsingar, sum Húsalánsgrunnurin krevur.
+Stk. 2. Endalig uppgerð við skuldaran kann gerast um skuldarin ikki hevur ogn at gera fulnað í, og tá inntøkur og væntaðar inntøkur skuldarans ikki vera mettar at megna at afturrinda skuldina.
