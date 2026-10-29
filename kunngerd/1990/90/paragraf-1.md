@@ -1,0 +1,1 @@
+§ 1. Henda kunngerð er galdandi fyri skip, har kjølurin var ella er lagdur ella sum var ella er á tilsvarandi tilgerastigi 18. juli 1982 ella seinri og longdin, sum henda er tilskilað eftir millumlanda sáttmálanum um uppmáting av skipum, 1969, er minni enn 24 m.

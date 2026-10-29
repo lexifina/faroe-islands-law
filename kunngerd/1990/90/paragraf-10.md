@@ -1,0 +1,1 @@
+§ 10. Málibræv, givin út eftir higartil galdandi reglum, eru framvegis galdandi, uttan so at skipið verður umbygt ella broytt og hetta førir við sær munandi broytingar í bruttotonsatalinum ella verður mált um eftir áheitan eigarans.

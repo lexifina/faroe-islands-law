@@ -1,0 +1,1 @@
+§ 2. Skip, ið eru undir hesi kunngerð, og sum skulu standa í skipaskránni ella í farskránni, skulu mátast upp sambært reglunum í §§ 5-8. Uppmátingin verður gjørd av myndugleikanum, jbr. § 1, pkt. 2 í lógini.

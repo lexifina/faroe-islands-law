@@ -1,0 +1,1 @@
+§ 8. Øll mál, ið nýtt verða at finna rúminnihaldið, skulu takast til næsta centimetur. Rúminnihaldið verður roknað í rúmmetrum við 2 desimalum. Tonsatalið í málibrævi verður at skriva við einum desimali.
