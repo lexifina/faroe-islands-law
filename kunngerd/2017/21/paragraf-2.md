@@ -1,0 +1,1 @@
+§ 2. Endurvenjing fevnir um miðvísa, tíðaravmarkaða og fyriskipaða venjing, sum hevur til endamáls, at sjúklingurin í størst møguligan mun kann endurvinna sínar mistu førleikar, bæði likamliga, kognitivt og sálarliga.
