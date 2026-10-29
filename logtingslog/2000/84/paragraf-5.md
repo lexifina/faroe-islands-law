@@ -1,0 +1,1 @@
+§ 5. Ognir, rættindi og skyldur, sum Mentunargrunnur Føroya Løgtings hevur sambært reglugerð nr. 61 frá 29. mai 1991 fyri Mentanargrunn Føroya Løgtings verða fluttar til Mentanargrunn Landsins sambært hesi lóg.
