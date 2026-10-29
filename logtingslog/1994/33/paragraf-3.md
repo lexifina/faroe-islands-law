@@ -1,0 +1,1 @@
+§ 3. Landsstýrið ásetur reglur um roknskaparhald landsins. Í hesum sambandi kann landsstýrið umframt at áseta krøv um trygd og skipað viðurskifti innan roknskaparøkið, áseta krøv um útvegan av upplýsingum til nýtslu í sambandi við búskaparliga ráðlegging, stýring og eftirlit.

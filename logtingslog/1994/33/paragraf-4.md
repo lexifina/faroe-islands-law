@@ -1,0 +1,1 @@
+§ 4. Landsumsitingin og teir landsstovnar v.m., sum koma undir § 2, stk. 1, fráboða landsstýrinum tær upplýsingar og útvega tað roknskaparliga tilfar, sum landsstýrið metir neyðugt fyri at leggja fram landsroknskapin.
