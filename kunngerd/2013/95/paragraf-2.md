@@ -1,0 +1,1 @@
+§ 2. Endamálið við kunngerðini er at fáa til vega upplýsingar, so til ber mánaðarliga at seta upp álítandi stýringardátur fyri samlaða almenna virksemið í sambandi við yvirskipaða búskaparliga ráðlegging, stýring og eftirlit.
