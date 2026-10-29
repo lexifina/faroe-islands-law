@@ -1,0 +1,1 @@
+§ 6. Um kommuna ella kommunalt samstarv, ið ein kommuna er partur av, áhaldandi ikki lýkur treytir, ásetingar ella leiðreglur í sambandi við roknskaparviðurskifti ella líknandi viðurskifti, kann landsstýrismaðurin taka avgerð um at útseta avrokning sbrt. § 5, til viðkomandi viðurskifti eru fingin í rættlag.
