@@ -1,0 +1,2 @@
+## Onnur tiltøk [^1]
+§ 5 a. [^1] Landsstýrisfólkið kann áseta nærri reglur um onnur tiltøk mótvegis Russlandi og Hvítarusslandi enn tey, ið eru nevnd í §§ 1, 3 og 4 við støði í avmarkandi tiltøkum samtykt av millumtjóða felagsskapum, ella sum hava breiða millumtjóða undirtøku, og sum hava til endamáls at tryggja frið og trygd ella virðing fyri fólkaræði, rættarsamfelagi, mannarættindum ella altjóðarætti annars.

@@ -1,0 +1,2 @@
+## Onnur tiltøk í sambandi við atgerðir móti Ukraina [^1]
+§ 5. [^1] Landsstýrisfólkið kann áseta nærri reglur um onnur tiltøk enn tey, ið eru nevnd í §§ 3 og 4 við støði í avmarkandi tiltøkum, samtykt av millumtjóða felagsskapum, ella sum hava breiða millumtjóða undirtøku, og sum hava til endamáls at tryggja virðing fyri fólkaræði, mannarættindum og altjóðarætti í sambandi við atgerðir, sum máa undan ella hótta sjálvræðisrættin, óheftnið og støðufestið hjá Ukraina.

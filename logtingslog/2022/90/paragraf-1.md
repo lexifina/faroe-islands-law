@@ -1,0 +1,2 @@
+§ 1. [^1] Landsstýrisfólkið fær við hesi løgtingslóg, sbr. §§ 3-5, heimild at áseta nærri reglur um at seta í gildi tiltøk, við støði í avmarkandi tiltøkum, samtykt í millumtjóða felagsskapum, ella sum hava breiða millumtjóða undirtøku, og sum hava til endamáls at tryggja virðing fyri fólkaræði, mannarættindum og altjóðarætti í sambandi við atgerðir, sum máa undan ella hótta sjálvræðisrættin, óheftnið og støðufestið hjá Ukraina.
+Stk. 2. [^2] (Strikað).
