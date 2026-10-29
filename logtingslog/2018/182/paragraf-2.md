@@ -1,0 +1,1 @@
+§ 2. Landsstýrismaðurin setir sum treyt í sambandi við søluna, at P/F Postverk Føroya framhaldandi umsitur einkarætt landsins og skyldu landsins til postflutning sambært løgtingslóg um postvirksemi í minsta lagi í eitt 10 ára tíðarskeið galdandi frá yvirtøkudegnum.
