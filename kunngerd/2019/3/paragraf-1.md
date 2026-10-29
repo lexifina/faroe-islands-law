@@ -1,0 +1,2 @@
+## Virkisøki
+§ 1. Henda kunngerð ásetir krøvini til at skriva út prógv fyri skeið og endurnýggingarskeið í at handfara skjóttgangandi bjargingarbát FRB, fast rescue boat, umframt krøvini til viðlíkahalda førleikar til at taka sær av uppgávum, skyldum og ábyrgd, sbr. A-kotuni, stykki A-VI/2, grein 7-12, talva A-VI/2-2, í altjóða sáttmálanum um útbúgving av sjófólki, um sjóvinnu og um vaktarhald, 1978, við seinni broytingum, STCW-sáttmálin, sum lýst er í skjali 1.
