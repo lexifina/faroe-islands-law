@@ -1,0 +1,17 @@
+§ 1. [^1] Niðanfyri nevndu eftirlits- og umsitingaruppgávur hjá landsstýrinum verða lagdar til Umhvørvisstovuna:
+1) Góðkenna heildarætlanir fyri spillvatn og geva boð sambært § 18, stk 2, taka upp samráðingar sambært § 18, stk 3 og gera reglur um innihaldið av ætlanunum sambært § 18, stk. 4,
+2) taka avgerðir sambært § 20, stk. 1 og 2,
+3) krevja mál um útstykking freistað sambært § 25,
+4) taka avgerðir í málum viðvíkjandi serliga dálkandi virkjum, v.m. sambært § 26, stk. 3, § 28, 29, § 32 og § 34, stk. 1, 2, 3 og 5,
+4 a) hava eftirlit við treytum í loyvum og góðkenningum sambært § 36, nr. 3,
+5) atgongd til almennar og privatar ognir sambært § 39,
+6) umbønir um upplýsingar eftir § 40 stk. 1 og boð um at fremja kanningar ella lata tilfar eftir § 40, stk. 2,
+7) hava eftirlit við dálkingarstøðuni í landinum sambært § 42,
+8) broyta treytirnar fyri góðkenningina ella loyvinum hjá einum virki eftir § 46,
+9) fremja kortlegging av óljóði sambært § 48, stk 1,
+10) fremja kortlegging av dálkingarstøðuni og trýstið frá teimum einstøku dálkingarkeldunum sambært § 49,
+11) fremja kortlegging av luftdálkingini sambært § 50,
+12) gera eina ætlan fyri góðskuni av vatnøkjunum í landinum sambært § 53,
+13) gera ætlan fyri støðu av virki v.m. sambært § 54,
+14) gera kortlegging av fyribeiningini av burturkasti sambært § 56, stk. 1 og gera reglur eftir § 56, stk. 2,
+15) gera ætlan um fyribeining av burturkasti sambært § 57, stk. 1, og taka avgerð ella gera reglur sambært § 57, stk. 2, gera reglur um burturkastskipanir sambært § 57, stk. 3, taka avgerð ella gera reglur um skyldur kommununnar at stovna ella fara upp í felagskommunalar fyritøkur sambært § 57, stk. 4, og áseta avgjøld eftir § 57, stk. 5.
