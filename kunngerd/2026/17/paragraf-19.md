@@ -1,0 +1,1 @@
+§ 19. Fiskifør, sum ikki frysta veiðuna umborð, hava ikki loyvi at hava ella brúka sjálvvirkandi støddarskiljarar umborð. Verður veiðan fryst ella virkað umborð, skal hetta gerast beint eftir støddarskiljing.
