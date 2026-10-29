@@ -1,0 +1,1 @@
+§ 18. Landsstýrismaðurin ásetir í kunngerð nærri reglur um, at Arbeiðseftirlitið kann taka gjald fyri at skriva tey í § 17, stk. 1 nevndu loyvi og fyri at góðkenna goymslur eftir § 11 stk. 1 og serkøn virki eftir § 15, stk. 2.
