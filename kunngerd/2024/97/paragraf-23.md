@@ -1,0 +1,2 @@
+§ 23. Ein og hvør hevur atgongd til upplýsingar um veruliga eigarans navn, føðingarmánað og føðingarár, ríkisborgaraskap, bústaðaradressu og bústaðarland, umframt slag og vav av rættindunum hjá veruliga eigaranum, sbr. tó stk. 2.
+Stk. 2. Upplýsingar sambært stk. 1, sum Skráseting Føroya ikki hevur kunngjørt í kt-skipan Skráseting Føroya, kunnu fáast til vegar við at venda sær til Skráseting Føroya, sbr. tó § 21.

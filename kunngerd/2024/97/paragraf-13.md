@@ -1,0 +1,4 @@
+§ 13. Grunnurin skal skráseta teir veruligu eigararnar og upplýsingarnar um, hvat veruligi ognarrætturin er samansettur av, í kt-skipan Skráseting Føroya. Dagfestingin fyri nær veruligi ognarrætturin er íkomin og møguliga hildin uppat, skal eisini skrásetast. Um dagfestingin fyri veruliga ognarrættin ikki kann staðfestast, kann dagfestingin fyri skrásetingina nýtast.
+Stk. 2. Rættindi hjá grunsins nevnd skulu ikki skrásetast, uttan so, at einstøku nevndarlimirnir á annan hátt mugu metast at vera veruligir eigarar.
+Stk. 3. Grunnurin skal skráseta nøvnini hjá teimum persónum, í hvørs høvuðsáhugamáli grunnurin er stovnaður ella virkar, um so er, at teir einstaklingar, sum hava gagn av grunninum ikki eru kendir enn.
+Stk. 4. Fyrstu ferð grunsins nevnd skal skrásetast sum veruligir eigarar, skal grunnurin skráseta upplýsingina í kt-skipan Skráseting Føroya.

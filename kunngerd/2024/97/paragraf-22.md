@@ -1,0 +1,4 @@
+## Kunngering í kt-skipan Skráseting Føroya
+§ 22. Upplýsingar um týðandi kapitalpostar og eigarapartar, sum eru skrásettar við heimild í §§ 3 og 9, verða almannakunngjørdar í kt-skipan Skráseting Føroya sambært § 58, stk. 3 í vinnufelagalógini og § 15 f í vinnufyritøkulógini.
+Stk. 2. Upplýsingar um handhavapartabrøv, sum eru skrásettar sambært § 4, stk. 1 og 4, verða ikki almannakunngjørdar, men kunnu einans verða latnar víðari til almennar myndugleikar sambært. § 57 a, stk. 5 í vinnufelagalógini.
+Stk. 3. Upplýsingar um veruligar eigarar skrásettar sambært §§ 6, 11, 13 og 15, verða almannakunngjørdar í kt-skipan Skráseting Føroya sambært § 58, stk. 3 í vinnufelagalógini, § 15 g, stk. 9 í vinnufyritøkulógini, § 56 b, stk. 8 í anordning om ikrafttræden for Færøerne af lov om erhvervsdrivende fonde og § 17, stk. 10 í løgtingslóg um tryggingarvirksemi.

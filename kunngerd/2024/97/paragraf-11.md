@@ -1,0 +1,7 @@
+§ 11. Fyritøkan skal skráseta teir veruligu eigararnar og upplýsingarnar um, hvat ognarrætturin er samansettur av, í kt-skipan Skráseting Føroya, sbr. § 10, stk. 2. Dagfestingin fyri nær veruligi ognarrætturin er íkomin og møguliga hildin uppat, skal eisini skrásetast.
+Stk. 2. Hevur ein persónur ræði á eigarapørtum, skal samlaða talið av eigarapørtum býtt á atkvøðurættindi og kapital skrásetast. Til ræði verður íroknað:
+1) Eigarapartar har atkvøðurætturin er í luti hjá einari fyritøku, sum viðkomandi hevur ræði á.
+2) Eigarapartar, sum viðkomandi hevur sett sum trygd, uttan so, at veðhavari hevur ræði á atkvøðurættinum og boðar frá, at ætlanin er at brúka rættin.
+Stk. 3. Eru eigarapartar ogn gjøgnum eina røð av fyritøkum, sum ræði er á, skulu hesi ognarviðurskifti skrásetast.
+Stk. 4. Hevur fyritøkan ikki, ella kann fyritøkan ikki eyðmerkja veruligar eigarar, skal dagliga leiðslan skrásetast sum veruligir eigarar. Íognarfeløg og kommanditfeløg, sum ikki hava eina leiðslu samansett av likamligum persónum skrásettir í kt-skipan Skráseting Føroya, skal skráseta tann ella teir likamligu persónar, sum standa fyri dagligu leiðsluni, sum veruligar eigarar.
+Stk. 5. Fyritøkan skal skráseta upplýsingarnar um veruligu eigararnar, heruppií upplýsingar um rættindini hjá veruligu eigarunum, í kt-skipan Skráseting Føroya, skjótast gjørligt eftir, at fyritøkan er vorðin kunnug við, at ein persónur er blivin veruligur eigari, og eftir hvørja broyting í frammanundan skrásettum upplýsingum.

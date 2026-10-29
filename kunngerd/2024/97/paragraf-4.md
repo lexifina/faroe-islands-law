@@ -1,0 +1,4 @@
+## Skráseting av smærri nøgd av handhavapartabrøvum
+§ 4. Ognari av einum ella fleiri handhavapartabrøvum í einum partafelagi, sum tilsamans hevur minni enn 5% av atkvøðurættinum hjá felagskapitalinum ella minni enn 5% av felagskapitalinum, skal í seinasta lagi 2 vikur eftir útveganina lata seg skráseta í kt-skipan Skráseting Føroya, sbr. tó § 57 a, stk. 4 í vinnufelagalógini.
+Stk. 2. Skrásetingin sambært stk. 1, skal fevna um tær upplýsingar, sum nevndar eru í § 57 a, stk. 2 í vinnufelagalógini.
+Stk. 3. Tá ið eitt ella fleiri handhavapartabrøv, sum eru skrásett sambært stk. 1, verða avhendað, skal tað í seinasta lagi 2 vikur eftir hetta skrásetast í kt-skipan Skráseting Føroya, at tann, ið hevur avhendað partabrøvini, ikki longur hevur tey, eins og avhendingardagurin skal skrásetast, sbr. tó § 57 a, stk. 4 í vinnufelagalógini.

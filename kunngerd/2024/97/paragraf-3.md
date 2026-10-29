@@ -1,0 +1,5 @@
+## Skráseting av týðandi kapitalpostum
+§ 3. Eitt kapitalfelag skal skjótast gjørligt, eftir at felagið hevur fingið fráboðan eftir § 1, stk. 1, skráseta upplýsingarnar í kt-skipan Skráseting Føroya.
+Stk. 2. Tá ið eitt kapitalfelag verður stovnað, skal felagið skráseta upplýsingar sambært § 1, stk. 1 í kt-skipan Skráseting Føroya, í seinasta lagi samstundis við skrásetingina av felagnum. Eru ongir kapitaleigarar, sum hava ræði á týðandi kapitalpørtum, ella ber ikki til at eyðmerkja nakrar slíkar eigarar, skal hetta somuleiðis skrásetast í seinasta lagi samstundis við skrásetingina av felagnum, sambært § 58, stk. 1 og § 9 í vinnufelagalógini.
+Stk. 3. Staðfestir eitt kapitalfelag, at tað ikki longur hevur kapitaleigarar, sum hava ræði á týðandi kapitalpostum í felagnum, skal hetta skrásetast skjótast gjørligt í kt-skipan Skráseting Føroya.
+Stk. 4. Kapitalfelagið skal skjótast gjørligt skráseta eina og hvørja broyting í teimum upplýsingum, sum eru fráboðaðar sambært stk. 1, um broytingin hevur við sær, at mørkini í § 55, stk. 1 í vinnufelagalógini verða rokkin ella ikki longur eru rokkin.
