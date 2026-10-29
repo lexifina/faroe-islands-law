@@ -1,0 +1,1 @@
+§ 6. Framleiðslugjaldið fyri at blanda veskur, uttan mun til um føst evni verða latin í (eisini fyri at síla), fyri at blanda emulsjónir og suspensjónir, sum einfalt verða rist saman, er kr. 6,00 fyri hvørji byrjað 100 g fyri hvørja pakking, í minsta lagi kr. 30,00. Afturat verður lagdur prísur fyri innihaldsevni, smb. § 9.

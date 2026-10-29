@@ -1,0 +1,3 @@
+§ 9. Tá ið framleiðslugjald skal ásetast eftir §§ 5, 6 og 7, verður løgd afturat ein upphædd fyri hvørt innihaldsevni, bæði fyri heilivágevni og hjálparevni - sum er kr. 5,00. Hetta er ikki galdandi fyri farmaseutiskar sertilbúningar, ið sum úrdráttur er uppií framleiðsluni, smb. stk. 2.
+Stk. 2. Er farmaseutiskur sertilbúningur uppií framleiðsluni, verður lagdur afturat fakturaprísur fyri ta pakking ella tær pakkingar, sum nýttar verða, so úrslitið verður minst møgulig upphædd.
+Stk. 3. Fer fakturaprísurin fyri tey evni, sum eru í heilivágnum, upp um 50% av søluprísinum, sum ásettur er eftir §§ 6 - 9, stk. 2 uttan vinning, verður lagdur afturat prísurin fyri evnini í staðin fyri tær í stk. 1 og 2 nevndu upphæddir.

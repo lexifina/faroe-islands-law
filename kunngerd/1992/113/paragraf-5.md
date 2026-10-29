@@ -1,0 +1,1 @@
+§ 5. Framleiðslugjaldið fyri blandingar av føstum evnum er kr. 10,00 fyri hvørji byrjað 100 g fyri hvørja pakking, í minsta lagi kr. 40,00. Aftrat hesum verður lagdur fakturaprísurin fyri tey evni, ið nýtt verða.

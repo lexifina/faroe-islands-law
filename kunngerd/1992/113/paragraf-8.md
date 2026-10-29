@@ -1,0 +1,1 @@
+§ 8. Framleiðslugjaldið fyri sundurlutað pulvur, íroknað møgulig blanding av innihaldsevnum, er kr. 10,00 fyri hvørji byrjað 100 g, í minsta lagi kr. 40,00. Afturat verður lagdur prísur fyri innihaldsevni, smb. § 9. Fyri at viga í pappír, posar, gløs e.t. verður lagt kr. 1,50 fyri hvørja viging.

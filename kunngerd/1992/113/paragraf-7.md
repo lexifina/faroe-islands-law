@@ -1,0 +1,1 @@
+§ 7. Framleiðslugjaldið fyri at blanda føst ella hálvføst evni, uttan mun til um veska verður latin útí, gjørd í mortara ella tílíkum, t.e. blandingar, sum ikki eru eftir §§ 5 og 6, er kr. 10,00 fyri hvørji byrjað 100 g fyri hvørja pakking, í minsta lagi kr. 40,00. Harafturat verður lagdur prísur fyri innihaldsevni, smb. § 9.
