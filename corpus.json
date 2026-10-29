@@ -1,0 +1,57 @@
+{
+  "corpus": "fo/national/acts",
+  "name": "Faroe Islands: Løgtingslógir, Kunngerðir and Løgtingslógarkunngerðir in force (Lógasavnið, logir.fo)",
+  "label": "Faroe Islands",
+  "language": "fo",
+  "languages": {
+    "fo": 1288,
+    "da": 13,
+    "fo+da": 28,
+    "list": "data/languages.csv"
+  },
+  "acts": {
+    "logtingslog": 444,
+    "kunngerd": 882,
+    "logtingslogarkunngerd": 3
+  },
+  "history": "current-only",
+  "history_from": "2026-10-29",
+  "record_to": "2026-10-29",
+  "checked_on": "2026-10-29",
+  "record_note": "logir.fo publishes only the current consolidated text of each act, so each act has one version here: the text as retrieved on 2026-10-29. There is no line-by-line history before that day. The site's amendment notes are kept in each act's notes.md and parsed into data/amendments.csv (9801 rows naming 1409 amending acts).",
+  "built": "2026-10-29",
+  "baseline_trailer": "Consolidated",
+  "in_force_trailer": "In-force",
+  "has_future_branch": false,
+  "future_branch": null,
+  "dates": {
+    "commit": "the retrieval day (logir.fo gives no consolidation date); Date-source: retrieved",
+    "baseline_trailer": "Consolidated",
+    "other_trailers": [
+      "Enacted",
+      "Published"
+    ],
+    "time": "12:00 Atlantic/Faroe (UTC+0; UTC+1 with summer time, EU rule, from 1981)",
+    "before_1970": "not needed: every commit is dated by the retrieval day"
+  },
+  "author": {
+    "consolidated": "Lógasavnið (Løgmansskrivstovan)",
+    "amendment": "none (current-only)",
+    "unexplained": "none yet"
+  },
+  "scope": {
+    "trailer": "Applies",
+    "when_absent": "not extracted for the Faroe Islands; each amending act's in-force clause, where the site quotes it, is in data/amendments.csv (in_force_clause)",
+    "default_reach": {
+      "rule": "presumption against retroactivity",
+      "meaning": "an act applies from its entry into force and does not reach completed facts unless it says so; criminal law is not applied retroactively to the accused's detriment",
+      "authority": "general principle of Danish-Faroese law; for criminal law Revsilógin (Løgtingslógarkunngerð nr. 8/2024, logtingslogarkunngerd/2024/8) § 1 (no punishment without law) and § 3 (a change after the act: the new law, but never harsher than the old)",
+      "decided_here": false
+    }
+  },
+  "citation": {
+    "file": "(.+)/paragraf-([0-9]+[a-z]?)(~[0-9]+)?\\.md",
+    "cites": "§ ?{n}([^0-9a-z]|$)"
+  },
+  "tool": "tools/in_force_on.py"
+}
