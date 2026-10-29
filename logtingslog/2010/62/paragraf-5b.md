@@ -1,0 +1,2 @@
+§ 5 b. [^1] [^2] [^3] Húsalánsgrunnurin og partafeløg sambært § 8 d, stk. 1, kunnu einsamøll ella saman við feløgum og stovnum útvega, reka og leiga út íbúðir, íbúðahús og lestrarbýlir. Húsalánsgrunnurin kann á sama hátt útvega lutaíbúðir til lutaíbúðafeløg og reka lutaíbúðir.
+Stk. 2. [^3] Áðrenn Húsalánsgrunnurin útvegar bústaðir eftir stk. 1, ásetir landsstýrisfólkið í kunngerð reglur og treytir fyri hesum virksemi grunsins.

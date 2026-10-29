@@ -1,0 +1,2 @@
+§ 8. [^3] Landsstýrisfólkið hevur eftirlit við stovninum. Tryggingareftirlitið útinnir uttanhýsis eftirlitið sambært nærri reglum, sum landsstýrisfólkið ásetir. Grunnurin hevur skyldu at lata eftirlitinum allar upplýsingar um grunsins viðurskifti, sum eftirlitið ynskir.
+Stk. 2. [^3] Landsstýrisfólkið kann gera avtalu við Tryggingareftirlitið um eftirlit sambært reglum, sum landsstýrisfólkið ásetir.

@@ -1,0 +1,1 @@
+§ 6. Grunnurin kann avskriva áogn, um ein ítøkilig meting av fíggjarligu støðu skuldarans talar fyri hesum. Sama er galdandi fyri áogn hjá Húsalánsgrunninum, Bjálvingarstuðulslánsgrunninum og Íbúðagrunninum sambært løgtingslóg nr. 118 frá 18. juni 1997 um Húsalánsgrunn o.a.
