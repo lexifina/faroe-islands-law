@@ -1,0 +1,1 @@
+§ 1. Elnevndin krevur eitt gjald í sambandi við umsóknir um løggilding, hjávinnuløggildingar og góðkenning sum fakligur ábyrgdari. Løggild fyritøka skal harumframt rinda eitt árligt gjald fyri at varðveita løggildingina.
