@@ -1,0 +1,2 @@
+§ 2. [^4] Umsókn um persónliga viðbót eigur at verða send Almannaverkinum, innan umsøkjarin bindir seg fyri útreiðsluna.
+Stk. 2. [^4] Bert í heilt serligum føri kann persónlig viðbót verða veitt fyri útreiðslu, sum pensjónisturin longu hevur bundið seg fyri. Hetta er serliga galdandi, um so er, at tað ikki er ráðiligt hjá umsøkjaranum at bíða við útreiðsluni, til umsókn er latin Almannaverkinum. Umsókn skal í tílíkum førum verða send Almannaverkinum beinanvegin aftaná, at umsøkjarin hevur bundið seg fyri útreiðsluna.
