@@ -1,0 +1,1 @@
+§ 3. Henda kunngerð kemur í gildi dagin eftir, hon er kunngjørd. Samstundis fer úr gildi kunngerð nr. 84 frá 25. august 1983 um evni og tilfar, kunngerð nr. 120 frá 20. september 1990 um flokking, innballing, merking, sølu og goymslu av vandamiklum kemiskum evnum og tilfari og kunngerð nr. 130 frá 17. oktober 1990 um lista yvir vandamikil evnir.
