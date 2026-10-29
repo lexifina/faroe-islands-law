@@ -1,0 +1,1 @@
+§ 4. MVG-frí søla í teigi 8 er samlaða søluvirði av øllum teimum vørum og tænastum, sum við heimild í § 2 í meirvirðirgjaldslógini kunnu seljast uttan meirvirðisgjald og teimum vørum og tænastum, sum við heimild í § 12 í meirvirðisgjaldslógini kunnu seljast við einum avgjaldi, sum er sett til 0%.

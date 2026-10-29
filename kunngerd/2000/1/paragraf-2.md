@@ -1,0 +1,1 @@
+§ 2. Sølu-MVG í teigi 1 í uppgerðini fevnir um mvg av allari sølu av vørum og tænastum, undantikið tær vørur og tænastur, sum eru undantiknar meirvirðisgjaldi sambært § 2 í meirvirðisgjaldslógini og tær vørur og tænastur, har avgjaldið sambært § 12 í meirvirðisgjaldslógini er sett til 0%.
