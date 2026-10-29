@@ -1,0 +1,7 @@
+## Revsing
+§ 13. [^3] [^1] Er hægri revsing ikki ásett eftir aðrari lóggávu, verður við bót revsaður tann, sum brýtur § 3, stk. 4 og stk. 5, 3. pkt., § 4, stk. 3, 4. pkt., § 5, stk. 1, § 8, stk. 1 og 3 og § 9.
+Stk. 2. Revsingin kann hækka til fongsul upp í 2 ár, um brotið er framt tilætlað ella av grovum ósketni, og um tað við brotinum er elvdur skaði á fólk, hval, umhvørvi ella lutbundin virði, ella har nærliggjandi vandi hevur verið fyri slíkum skaða. Revsingin kann somuleiðis hækka til fongsul upp í 2 ár í førum, har viðkomandi áður er revsaður fyri brot á grindalógina, ella í førum, har viðkomandi er skuldsettur fyri í sama viðfangi at hava framt fleiri brot á grindalógina, ella reglur, ásettar við heimild í grindalógini, hóast hvørt brotið sær annars hevði verið revsað sambært stk. 1. Revsingin kann harumframt hækka til fongsul upp í 2 ár í førum, har viðkomandi hevur eggjað til ella fyriskipað, at ein fjøld av fólki hevur tikið lut í hópbroti á grindalóggávuna.
+Stk. 3. [^1] Tá revsing verður ásett sambært stk. 1 og 2, skal tað metast sum herðandi umstøður, um brot eisini er framt á § 3, stk. 1 um fráboðanarskyldu.
+Stk. 4. [^1] Í reglum, sum eru ásettar við heimild í § 2, stk. 4, § 4, stk. 4, § 5, stk. 2, § 6, stk. 2, § 7, stk. 1, 2 og 4 og § 8, stk. 1 kunnu verða ásettar reglur um revsing við bót. Tað kann somuleiðis verða ásett, at revsingin kann hækka til fongsul upp í 2 ár undir samsvarandi umstøðum sum í stk. 2.
+Stk. 5. [^1] Løgfrøðiligir persónar verða revsaðir sambært 5. kapitli í revsilógini.
+Stk. 6. [^2] [^1] [^4] (Strikað).
