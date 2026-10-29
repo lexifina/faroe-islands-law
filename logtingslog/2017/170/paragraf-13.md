@@ -1,0 +1,1 @@
+§ 13. Um afturbering verður játtað sambært hesi løgtingslóg, skal hóskandi tilvísing vera til Føroya landsstýri í endatekstinum í filminum ella sendirøðini og í øðrum tilfari, eins og tá víst verður til aðrar íleggjarar og stuðlar í framleiðsluni.
