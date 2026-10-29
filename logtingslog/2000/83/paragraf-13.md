@@ -1,0 +1,2 @@
+§ 13. Stýrið er ovasta leiðsla í skúlanum og virkar samsvarandi viðtøkum skúlans. Eftir tilmæli skúlaleiðarans staðfestir stýrið virksemið í einum skúlaárí, eins og tað skal góðkenna skúlans rakstrarætlan og roknskap.
+Stk 2. Tá ið eitt stýri er valt, skal tað boða landsstýrismanninum frá, hvørjir limirnir í stýrinum eru. Broytingar í samansetingini av stýrinum skulu somuleiðis fráboðast landsstýrismanninum.
