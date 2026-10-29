@@ -1,0 +1,1 @@
+§ 4. Sleppast skal undan óneyðugari ávirkan av óljóði. Har arbeitt verður, skal óljóðið, herundir neðra- og ervaljóð, tekniskt sæð verða so lítið sum gjørligt, og tær akustisku umstøðurnar verða í lagi.
