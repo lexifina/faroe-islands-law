@@ -1,0 +1,2 @@
+§ 10. [^3] Arbeiðsloysisskipanin kann krevja, at rættleikin í upplýsingunum sambært § 9, stk. 2 og 3 verður váttaður av tí ella teimum arbeiðsgevarum, sum tann arbeiðsleysi hevur arbeitt hjá í útgjaldsskeiðnum.
+Stk. 2. [^3] Um tann arbeiðsleysi heldur frí, er sjúkur ella av aðrari orsøk ikki er tøkur at arbeiða fyri fiskavirkið, skal tann arbeiðsleysi boða Arbeiðsloysisskipanini frá hesum. Í tílíkum førum kann víkjast frá freistini sambært § 9, stk. 4.

@@ -1,0 +1,4 @@
+## Útrokningargrundarlag
+§ 7. Útrokningargrundarlagið fyri arbeiðsleys á fiskavirkjum er sambært §§ 15 og 16 í løgtingslóg um arbeiðsloysistrygging og arbeiðsávísing og verður sambært § 15, stk. 4 í løgtingslóg um arbeiðsloysistrygging og arbeiðsávísing roknað av nýggjum tann 1. januar á hvørjum ári. Nýggja útrokningargrundarlagið kann tó ongantíð verða lægri enn tað fyrsta útrokningargrundarlagið.
+Stk. 2. Arbeiðsloysisstuðul verður roknaður eina ferð um vikuna frá og við 9. arbeiðsloysistíma.
+Stk. 3. Fyri arbeiðsleys, sum sambært avtalu við fiskavirkið ikki arbeiða fulla tíð, verður arbeiðsloysisstuðul roknaður við einum lutfalsliga lægri tímatali. Fyri arbeiðsleys á fiskavirki, ið kemur undir treytirnar í § 2, stk. 4, verður arbeiðsloysisstuðulin somuleiðis roknaður við einum lutfalsliga lægri tímatali.

@@ -1,0 +1,7 @@
+## Upplýsingarskylda [^3]
+§ 9. [^3] Arbeiðsloysisskipanin kann áleggja fiskavirkinum at geva Arbeiðsloysisskipanini upplýsingar, sum Arbeiðsloysisskipanin metir eru neyðugar fyri at gjalda út arbeiðsloysisstuðulin.
+Stk. 2. [^3] Áðrenn arbeiðsloysisstuðulin verður útgoldin, skal tann arbeiðsleysi vátta, at upplýsingarnar, sum fiskavirkið hevur latið Arbeiðsloysisskipanini, um eitt nú talið av tímum, viðkomandi hevur arbeitt á virkinum, eru rættar.
+Stk. 3. [^3] Á váttanini, sum tann arbeiðsleysi letur Arbeiðsloysisskipanini sambært, stk. 2, skal tann arbeiðsleysi eisini geva tær upplýsingar, sum Arbeiðsloysisskipanin metir eru neyðugar fyri at gjalda út arbeiðsloysisstuðulin, harímillum upplýsingar um arbeiddar tímar og vunna A-inntøku ella aðra lønarinntøku, sum ikki er A-inntøka, og møguliga inntøku frá øðrum arbeiðsgevara í útgjaldsskeiðnum.
+Stk 4. [^3] Upplýsingarnar, sum skulu latast sambært stk. 2 og stk. 3, skulu latast Arbeiðsloysisskipanini umvegis Vangan hjá Talgildu Føroyum í seinasta lagi 14 dagar frá, at útgjaldsskeiðið er endað.
+Stk. 5. [^3] Eru upplýsingarnar sambært stk. 2 og stk. 3 ikki latnar Arbeiðsloysisskipanini rættstundis, missir tann arbeiðsleysi arbeiðsloysisstuðulin tað tal av útgjaldsdøgum, sum váttanin er avgreidd ov seint í tí útgjaldsskeiðnum, váttanin viðvíkur.
+Stk. 6. [^3] Arbeiðsloysisskipanin kann í serligum førum loyva, at onnur skrivlig fráboðan enn tann, sum er nevnd í stk. 4, verður nýtt.
