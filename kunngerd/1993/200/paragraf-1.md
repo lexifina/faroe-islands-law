@@ -1,0 +1,1 @@
+§ 1. Við heimild í § 48, stk. 2, í løgtingslóg nr. 45 frá 29. juni 1972 og sambært sáttmála millum Argja kommunu, samtyktur á bygdarráðsfundi 29. november 1993, og Tórshavnar kommunu, samtyktur á býráðsfundi 2. desember 1993, hevur landsstýrið gjørt av at hesar báðar kommunurnar verða lagdar saman frá 1. januar 1997 at rokna.
