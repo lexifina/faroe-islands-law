@@ -1,0 +1,1 @@
+§ 3. Veiða av fiskasløgunum sambært § 2, nr. 1-6 verður mótroknað í kvotunum av hesum fiskasløgum uttan mun til, um talan er um beinleiðis veiðu ella hjáveiðu. Veiða av øðrum fiskasløgum, enn teimum í § 2, nr. 1-6, verður mótroknað í kvotu-ni av øðrum fiskasløgum sambært § 2, nr. 7.

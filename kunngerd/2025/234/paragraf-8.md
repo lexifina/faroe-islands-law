@@ -1,0 +1,1 @@
+§ 8. Um fiskifør, sum fiska eftir undantaksreglunum sambært §§ 6 og 7, hava størri enn 50% íbland av øðrum fiskasløgum, skal fráboðan sendast Vørn á vakt@vorn.fo, og fiskiskapurin eftir hesum fiskasløgum skal steðga beinanvegin.
