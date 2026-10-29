@@ -1,0 +1,3 @@
+30. desember 2025 Nr. 230
+# Kunngerð um veiðu eftir botnfiski o.ø. við fiskiførum undir føroyskum flaggi í NAFO-skipanarøkinum í 2026, sum seinast broytt við kunngerð nr. 58 frá 1. juni 2026
+Við heimild í § 23, stk. 1 og 2, § 34, stk. 1, nr. 1-4, stk. 2, nr. 1-4, 6-8 og 10 og stk. 3, § 41, stk. 2, § 56, stk. 3 og § 64, stk. 2 í løgtingslóg nr. 152 frá 23. desember 2019 um sjófeingi (Sjófeingislógin), sum broytt við løgtingslóg nr. 106 frá 29. juni 2020, løgtingslóg nr. 185 frá 18. desember 2020, løgtingslóg nr. 71 frá 5. mai 2021, løgtingslóg nr. 170 frá 21. desember 2021 og løgtingslóg nr. 155 frá 20. desember 2023, verður ásett:
