@@ -1,0 +1,5 @@
+## Trygdarvegleiðing fyri skjóttgangandi før, sum sigla við ferðafólkum millum føroyskar havnir
+§ 7. Reiðari skal í samstarvi við brúgvayvirmenninar gera eina trygdarvegleiðing, sum ásetir karmarnar fyri raksturin og trygga nýtslu av skjóttgangandi farinum fyri hvørja farleið og havn, ið siglt verður á.
+Stk. 2. Trygdarvegleiðingin skal verða grundað á eina samlaða váðameting, sum skal taka støði í millum annað rakstrarligum royndum við skjóttgangandi farinum, atløguviðurskiftunum, botnviðurskiftunum og vanligastu veðurlíkindunum, undir hesum vindviðurskiftunum, alduviðurskiftunum og streymviðurskiftunum á ítøkiligu farleiðini.
+Stk. 3. Í trygdarvegleiðingini skulu verða ásett ítøkilig mørk fyri, nær skjóttgangandi farið kann nýtast, umframt tey fyrivarni, ið skulu takast, tá ið umstøðurnar nærkast ásettu mørkunum fyri trygga nýtslu av skjóttgangandi farinum.
+Stk. 4. Reiðarin skal skráseta og kanna ótilætlaðar hendingar við skjóttgangandi farinum, og um tað við støði í hesum verður mett neyðugt, gera tillagingar í trygdarvegleiðingini.

@@ -1,0 +1,3 @@
+1. mars 2022 Nr. 24
+# Kunngerð um upplæring fyri skipsyvirmenn á skjóttgangandi førum, fevnd av HSC-koduni
+Við heimild í § 1, stk. 2, § 7, stk. 2, § 31 og § 49, stk. 2 í løgtingslóg nr. 165 frá 21. desember 2001 um trygd á sjónum, sum broytt við løgtingslóg nr. 71 frá 30. mai 2011 og løgtingslóg nr. 61 frá 17. mai 2013 og í § 10, stk. 1, § 17, stk. 4, § 21 a, stk. 1 og § 24, stk. 3 í løgtingslóg nr. 63 frá 3. juli 1998 um manning av skipum, sum broytt við løgtingslóg nr. 71 frá 30. mai 2011 og løgtingslóg nr. 51 frá 7. mai 2019, og í samráð við umboð fyri reiðarafeløgini og sjómannafeløgini, verður ásett:
