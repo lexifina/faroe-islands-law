@@ -1,0 +1,4 @@
+## Rættindi og skyldur
+§ 5. Løggildur djórasjúkrarøktarfrøðingur kann, á tí serøki, hann hevur fingið løggilding til, eftir ávísing frá djóralækna og undir ábyrgd djóralæknans, veita tær í skjali 1 nevndu viðgerðir á eini djóralæknastovu, uttan at djóralæknin er til staðar.
+Stk. 2. Løggildur djórasjúkrarøktarfrøðingur kann bara, á tí serøki, hann hevur fingið løggilding til, eftir ávísing frá djóralækna og undir ábyrgd djóralæknans, veita tær í skjali 2 nevndu viðgerðir á eini djóralæknastovu, um djóralæknin er til staðar.
+Stk. 3. Løggildur djórasjúkrarøktarfrøðingur kann bara, á tí serøki, hann hevur fingið løggilding til, eftir ávísing frá djóralækna og undir ábyrgd djóralæknans, veita tær í skjali 3 nevndu viðgerðir á eini djóralæknastovu, um djóralæknin samstundis hevur umsjón við viðgerðini.
