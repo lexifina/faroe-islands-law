@@ -1,0 +1,2 @@
+§ 35. Persónar, sum hava fingið djóralæknaprógv á fróðskaparseturstøði í norðurlondum, og sum virka sum djóralæknar í Føroyum, tá ið hendan lóg verður sett í gildi, kunnu framhaldandi virka sum djóralæknar í 6 mánaðar eftir, at lógin er sett í gildi, uttan at vera løggildir. Eftir hetta tíðarskeið kunnu bert persónar, ið eru løggildir eftir §§ 3-5 virka sum djóralæknar.
+Stk. 2. Sama er galdandi fyri persónar sum eftir lógini skulu løggildast eftir § 6 ella góðkennast eftir § 7.

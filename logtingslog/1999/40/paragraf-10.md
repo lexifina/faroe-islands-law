@@ -1,0 +1,2 @@
+§ 10. Ein djóralækni skal av sínum eintingum kunna dýraeigara ella tann, sum hevur eitt dýr í hondum, um kanning, sjúkuavgerð, hóskandi viðgerðarmøguleikar, útlit ella vánir, eins og um møguligar ampar og hjáárin við ella av kanning og viðgerð av dýrinum.
+Stk. 2. Stendst skaði ella óhapp í sambandi við kanning ella viðgerð av dýrinum, skal djóralæknin kunna dýraeigaran ella tann, sum hevur dýrið í hondum, um hetta.

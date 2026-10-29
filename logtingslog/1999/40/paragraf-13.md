@@ -1,0 +1,2 @@
+§ 13. Landsstýrismaðurin kann áseta nærri reglur fyri, í hvørjum vavi og á hvønn hátt djóralæknar skulu skráseta partar av virksemi sínum við atliti til fráboðanar- og meldiskyldu teirra.
+Stk. 2. Landstýrismaðurin kann krevja ella seta forboð fyri, at djóralækni ger brúk av ávísari tøkni, framferðarhátti, hjálparamboðum og heilivági til sjúkuavgerð, fyribyrgjan og viðgerð av sjúku hjá dýri, tá hetta verður gjørt við atliti til at tryggja vælferð dýranna, at fremja niðurberjing av sjúku hjá dýri, ella at forða fyri heilsuvanda í matvøru, sum er av dýrauppruna.

@@ -1,0 +1,2 @@
+§ 27. Er løggilding ella rættindi afturtikin smb. §§ 24-25 við tíðaravmarking, kunnu hesi fáast aftur eftir umsókn, tá ið ásetta tíðarskeiðið er farið. Umsóknin verður viðgjørd eftir ásetingunum í §§ 2-4.
+Stk. 2. Løggilding ella rættindi, sum ein djóralækni hevur fráskrivað sær smb. § 26, verða latin viðkomandi aftur, tá ásetta tíðarskeiðið fyri fráskrivingina er runnið, og annars eftir fráboðan til landstýrismannin.

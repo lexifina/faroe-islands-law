@@ -1,0 +1,2 @@
+§ 5. Ein djóralækni kann ikki uttan serligt loyvi nevna seg serfrøðing. Landsstýrismaðurin kann geva eitt slíkt loyvi eftir tilmæli frá landsdjóralæknanum og norðurlendskari serfrøðinganevnd á viðkomandi fakøki, ella frá norðurlendskum djóralæknafrøðiligum fróðskaparsetrum.
+Stk. 2. Akademisk heiti, sum eru fingin við altjóða viðurkend fróðskaparsetur, kunnu verða nýtt av djóralæknum, um skjalprógv fyri hesum er lagt fyri landsdjóralæknan, og hesi akademisku heiti ikki kunna mistakast fyri serfrøðingaheiti.

@@ -1,0 +1,1 @@
+§ 33. Landstýrismaðurin kann seta eitt djóralæknafrøðiligt ráð til at vera ráðgevi í veterinermedisinskum málum, málum í sambandi við hesa lóg og øðrum málum í sambandi við djóralæknavirksemi. Landsstýrismaðurin ásetir nærri reglur fyri virkseminum hjá ráðnum.

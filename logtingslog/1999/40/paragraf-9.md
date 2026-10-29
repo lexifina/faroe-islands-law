@@ -1,0 +1,2 @@
+§ 9. Ein djóralækni skal grunda sína klinisku sjúkuavgerð á starvsstovukanning, tá henda kann vera av týdningi fyri røttu viðgerðina, ella kann sanna ella avsanna illgruna um smittandi sjúku, ið er fevnd av lóggávuni um smittandi sjúku hjá dýrum.
+Stk. 2. Fær ein djóralækni illgruna um, at eitt dýr er rakt av sjúku, sum kemur undir lóggávuna um smittandi sjúkur hjá dýrum, skal hann alt fyri eitt boða landsdjóralæknanum frá hesum.

@@ -1,0 +1,4 @@
+§ 3. Løggilding sum djóralækni verður veitt eftir umsókn til persónar, sum hava fingið djóralæknaprógv á fróðskaparsetursstøði í Norðurlondum.
+Stk. 2. Løggilding kann somuleiðis veitast persóni, ið hevur staðið djóralæknaprógv á fróðskaparsseturstøði uttan fyri Norðurlond. Løggildingin kann tá verða treytað av, at umsøkjari hevur fingið útbúgving í ávísum lærugreinum á fróðskaparligum støði í einum av Norðurlondunum. Við løggildingini kunnu fylgja avmarkingar í rættinum hjá honum at útinna djóralæknavirksemi. Eisini kann løggildingin verða tíðaravmarkað.
+Stk. 3. Tann, ið verður løggildur sum djóralækni, skal duga føroyskt ella eitt av hesum málum: danskt, íslendskt, norskt ella svenskt, og geva djóralæknalyftið, sum er orðað av landsstýrismanninum.
+Stk. 4. Djóralækni, sum er 70 ár, skal á hvørjum ári søkja um at fáa løggildingina longda, um hann framhaldandi ætlar at virka sum djóralækni.

@@ -1,0 +1,1 @@
+§ 21. Tá djóralækni fyriskrivar ella útflýggjar forskriftaskyldugan heilivág, skal hann veita nágreiniliga leiðbeining um, hvussu heilivágurin skal goymast og brúkast, herímillum um afturhaldstíðarskeið aftaná nýtslu av heilivági.

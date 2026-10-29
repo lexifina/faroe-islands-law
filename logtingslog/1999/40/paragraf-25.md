@@ -1,0 +1,4 @@
+§ 25. Mál um afturtøku av løggilding ella rættindum hjá djóralækna vegna tvørrandi sálarjavnvág ella tvørrandi andsførleika, skal leggjast fyri landslæknan til ummælis.
+Stk. 2. Avgerð um at taka aftur løggilding ella rættindi, kann leggjast fyri rættin innan eina freist upp á 4 vikur eftir, at avgerðin er fráboða viðkomandi, og skal hetta vera upplýst í avgerðini.
+Stk. 3. Krevur avvarðandi djóralækni, at málið skal fyri rættin, reisir landsstýrismaðurin sakarmál móti avvarðandi djóralækna eftir borgarligu rættargangsreglunum.
+Stk. 4. Krav um sakarmálsviðgerð steðgar afturtøkuni; men dómstólurin kann við úrskurði gera av, at avvarðandi djóralækni undir sakarmálsviðgerðini ikki kann gera nýtslu av umrøddu løggilding ella rættindum. Um avgerð, ið er tikin av landsstýrismanninum, fær viðhald við dóminum, kann tað í dóminum verða avgjørt, at kæra ikki setir steðg.
