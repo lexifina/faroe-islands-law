@@ -1,0 +1,1 @@
+§ 12. [^1] Landsstýrismaðurin ásetir eftir ummæli frá yrkisútbúgvingarráðnum og eftir samtykt frá yrkisnevndini, smb. løgtingslóg um yrkisútbúgvingar, gjølligari reglur um innihaldið í yrkislærugreinum, almennum lærugreinum og vallærugreinum um tímatalið og á hvørjum stigi, tær kunnu takast smb. §§ 8 og 9.

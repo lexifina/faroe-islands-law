@@ -1,0 +1,1 @@
+§ 14. Landsstýrismaðurin ásetir eftir ummæli frá yrkisútbúgvingarráðnum reglur um próvtøku, herímillum royndir og metingar í einum skúlaári, krøv og próvtøkuuppgevingar, próvdøming, próvtøl og ummæli, og um hvussu lærugreinametini í teimum ymsu stigunum og onnur avrik telja við í próvnum.
