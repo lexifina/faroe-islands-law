@@ -1,0 +1,5 @@
+## Afturrindan
+§ 16. Tekur persónur nýtt lønandi arbeiði upp í einum tíðarskeiði, tá viðkomandi nýtir rætt sín at fáa barsilspening, skal hann rinda barsilspening aftur fyri teir dagar, hann hevur havt slíkt arbeiði, eisini í teimum førum, har barsilspeningur er útgoldin til arbeiðsgevara jbr. tó stk. 2 og í mun til inntøkuna, viðkomandi hevur vunnið hesar dagar.
+Stk. 2. Er barsilspeningur útgoldin arbeiðsgevara fyri løn í farloyvistíðini til arbeiðstakara, skal arbeiðsgevarin uttan mun til stk. 1 rinda barsilspening aftur, um viðkomandi arbeiðstakari í sama tíðarskeiði tekur nýtt arbeiði upp hjá hesum arbeiðsgevaranum.
+Stk. 3. Kravið um afturrindan av barsilspeningi eftir stk. 1 og 2 kann eisini fremjast við at mótrokna møgulig krøv frá arbeiðstakara ella arbeiðsgevara upp á barsilspening, og peningurin kann eisini krevjast inn við at afturhalda í løn og við panting.
+Stk. 4. Persónur, sum tekur upp nýtt lønandi arbeiði í einum tíðarskeiði, viðkomandi nýtir rætt sín at fáa barsilspening, skal boða umsitingarmýndugleikanum sbr. § 25 frá hesum.

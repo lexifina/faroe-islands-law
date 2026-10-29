@@ -1,0 +1,1 @@
+§ 22. [^13] Hevur umsøkjari givið landsstýrisfólkinum skeivar upplýsingar ella tagt um umstøður, sum hava havt týdning fyri barsilspeningin, kunnu upphæddir, sum av órøttum eru útgoldnar, verða kravdar afturgoldnar frá tí, sum hevur fingið peningin útgoldnan.

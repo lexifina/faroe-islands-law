@@ -1,0 +1,2 @@
+§ 7. Verður løntakari uppsagdur ella fyri vanbýti í móti reglunum í § 6, skal arbeiðsgevarin rinda eina samsýning, sum í mesta lagi svarar til løn í 50 vikur, ið verður at áseta alt eftir starvsaldri og umstøðunum annars.
+Stk. 2. Verður løntakari uppsagdur ella á annan hátt fyri vanbýti í viðgongutíðini, undir barnsburði, eftir barnsburð ella ættleiðing, áliggur tað arbeiðsgevaranum at prógva, at uppsøgnin ikki var grundað á hesi viðurskifti.

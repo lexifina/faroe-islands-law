@@ -1,0 +1,1 @@
+§ 6. Arbeiðsgevari kann ikki siga upp løntakara, tí viðkomandi hevur sett fram krav um at nýta rættin til barsilsfarloyvi eftir §§ 1 og 2, ella annars siga upp vegna viðgongu, barnsburð ella ættleiðing.

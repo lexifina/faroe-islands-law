@@ -1,0 +1,1 @@
+§ 20 a. [^13] Hjá teimum, sum eru nýútbúgvin og ikki longur hava rætt til stuðul frá Studna, verður studningur, móttikin seinastu 12 mánaðirnar fyri fráveruna, taldur við í útrokningargrundarlagið sbrt. § 12, stk. 1, 1. pkt. Landsstýrisfólkið ásetur nærri reglur um barsilspening til nýútbúgvin.

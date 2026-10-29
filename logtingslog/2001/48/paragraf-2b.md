@@ -1,0 +1,2 @@
+§ 2 b. [^9] Tá ið eitt barn, ið skal ættleiðast uttan samtykki, verður fyribils staðsett hjá tí umsøkjara, sum barnið er ávíst til við atliti at ættleiðing sbrt. § 39 a í løgtingslóg um ættleiðing, hevur umsøkjari rætt til barsilsfarloyvi eftir somu treytum sum foreldur, ið ættleiða barn sbrt. §§ 2 og 2 a.
+Stk. 2. Gevur Familjufyrisitingin umsøkjara loyvi at ættleiða barn nevnt í stk. 1, fær viðkomandi rætt til barsilsfarloyvi sbrt. § 2.

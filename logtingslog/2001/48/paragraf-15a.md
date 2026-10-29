@@ -1,0 +1,3 @@
+§ 15 a. [^14] [^13] Øllum stovnum, sum eru á fíggjarløgtingslógini við rakstrarjáttan, løgujáttan, landsfyritøkum og almennum grunnum, umframt teimum stovnum, ið koma undir málsræðið hjá landsstýrisfólkinum í fíggjarmálum at áseta lønar- og setanartreytir, verður veittur barsilspeningur eftir § 15, stk. 1, um starvsfólk verður sett í staðin fyri tann, ið fer í barsilsfarloyvi. Stovnurin fær tó í mesta lagi endurgoldið tað, sum tann, ið er í farloyvi, fær goldið í løn.
+Stk. 2. [^1] Kravið í stk. 1 er ikki galdandi, um tann, ið fer í barsilsfarloyvi, er lærlingur.
+Stk. 3. [^1] [^13] Landsstýrisfólkið ásetur nærri umsitingarligar reglur, herundir um freistir fyri at lata inn umsóknir.

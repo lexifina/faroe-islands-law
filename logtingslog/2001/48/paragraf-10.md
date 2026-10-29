@@ -1,0 +1,6 @@
+## Ættleiðing og fyribils staðseting [^9]
+§ 10. [^2] [^3] [^4] [^5] [^1] [^12] Foreldur, ið eru løntakarar og ættleiða barn, hava rætt til barsilspening í tilsamans 52 vikur eftir, at tey hava fingið barnið, og upp til 4 vikur, áðrenn tey hava fingið barnið.
+Stk. 2. Tað er ein treyt, at ættleiðingarmyndugleikarnir hava tikið ta avgerð, at foreldrini, annað ella bæði, skulu vera heima í sambandi við, at tey fáa barnið.
+Stk. 3. [^3] [^4] [^11] [^5] [^1] [^12] [^9] Rættin til barsilspening eftir stk. 1 kann bara annað av foreldrunum nýta í senn. Hóast ásetingina í 1. pkt. hava foreldrini rætt til barsilspening samstundis í 8 vikur innan fyri tær fyrstu 56 vikurnar eftir, at foreldrini hava fingið barnið. Uttan mun til ásetingina í 1. pkt., hava foreldrini, í sambandi við, at tey fara eftir barninum, rætt til barsilspening samstundis í upp til 4 vikur áðrenn, tey fáa barnið. Rætturin til barsilspening hetta tíðarskeið er treytaður av, at viðkomandi er staddur uttanlands eftir barninum.
+Stk. 4. [^9] Tá ið foreldur ættleiða 2 ella fleiri børn samstundis, verða 48 vikur lagdar afturat teimum 8 vikunum, ið foreldrini hava rætt til sbrt. stk. 3. Umsorganarpersónur sbrt. § 2 a, stk. 3 hevur rætt til barsilspening í 48 vikur.
+Stk. 5. [^4] [^9] Barsilsfarloyvi við barsilsútgjaldi skal í minsta lagi vera 1 vika samanhangandi.
