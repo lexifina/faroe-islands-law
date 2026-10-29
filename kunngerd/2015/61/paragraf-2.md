@@ -1,0 +1,4 @@
+§ 2. Atkvøðurætt hava teir íbúgvar í skúlaumdøminum, ið hava valrætt til kommunustýrið tann dagin avgerðin, um at leggja niður skúla, verður kunngjørd í føroysku bløðunum. Kommunustýrið ásetur hvønn dag, atkvøðugreiðslan verður og ger lista við nøvnunum á íbúgvunum í skúlaumdøminum, sum hava atkvøðurætt.
+Stk. 2. Á listan sbr. stk. 1 verða eisini tey skrásett, ið búgva í skúlaumdøminum, og sum í seinasta lagi atkvøðudagin lúka treytirnar til valrætt samsvarandi aldri, sum til kommunustýrisval.
+Stk. 3. Viðvíkjandi skráseting á vallista, framløgu til alment eftirlit í skúlaumdøminum, kæru móti vallistanum og viðgerð av klagum verða reglurnar í løgtingslóg um val til allar føroyskar kommunur nýttar.
+Stk. 4. Kommunustýrið kunnger sbrt. § 1, stk. 1 við í minsta lagi 4 vikurs freist, nær og hvar atkvøðugreiðslan verður.
