@@ -1,0 +1,4 @@
+§ 1 D. [^1] [^2] Ein lutaeftirlønaruppsparing er ein eftirlønarskipan í peningastovni, har eftirlønarupphæddin verður útgoldin í eins stórum veitingum eftir 10 árum. Lutaútgjaldingin skal verða útgoldin kontoeigaranum, meðan hann er á lívi. Í avtaluni skal verða tilskilað inngjaldingartíðarskeiðið og tann árliga inngoldna upphæddin. Avrátt skal vera um útgjalding, um kontoeigarin doyr.
+Stk. 2. Áðrenn lutaútgjalding byrjar, velur kontoeigarin útgjaldingarhátt:
+1) Ein útgjaldingarhátt við eini árligari lutaútgjalding, sum er ein upphædd svarandi til virðið á skipanini við álmanakkaársins byrjan, býtt við tí áratali, sum útgjalding enn ikki hevur verið fyri, ella
+2) ein útgjaldingarhátt við einari árligari lutaútgjalding, sum er ein upphædd, sum við óbroyttari rentu í øllum útgjaldingartíðarskeiðinum hevur eins stórar árligar lutaútgjaldingar.

@@ -1,0 +1,1 @@
+§ 4. [^2] Rentur og annar vinningur av eftirlønarskipanum í peningastovni v.m. skulu ikki roknast við í skattskyldugu inntøkuna, eins og avgjald ikki verður tikið so leingi, hesar eftirlønir ikki verða útgoldnar.

@@ -1,0 +1,3 @@
+§ 2. [^1] [^2] Ein arbeiðsgevari kann, tá hansara skattskylduga inntøka verður uppgjørd, draga frá gjøld til eftirløning av starvsfólki hansara ella næstu avvarðandi teirra. Hetta er galdandi, antin tey, sum sambært eftirlønarskipanini hava rætt til eftirløn, hava rætt til eina stigvísa árliga eftirlønarinntøku (eftirlønarskipan við stigvísum útgjaldingum ella lutaeftirlønarskipan) ella eina kapitalútgjalding (kapitaleftirlønarskipan). Frádrátturin er treytaður av:
+1) At gjaldið verður endaliga frábýtt ognum gjaldarans og hann ikki kann ráða yvir tí.
+2) reglurnar í eftirlønarskipanini eru gjørdar soleiðis, at løntakarin – eftir § 3 – ikki tekur egin og arbeiðsgevarans gjøld til eftirlønarskipanina við, tá ið tann skattliga inntøkan verður uppgjørd.

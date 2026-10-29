@@ -1,0 +1,1 @@
+§ 8. [^1] Fyri útgjaldingar frá tryggingar- ella eftirlønarskipanum eftir hesi lóg, sum vóru virkandi við byrjan av tí inntøkuári, sum varð nýtt til at seta í skatt fyri skattaárið 1971/72, ella tær tryggingar- ella eftirlønarskipanir, sum inngjalding var liðug fyri ella steðgað, galda í staðin fyri ásetingarnar í § 6 a) tær higartil galdandi reglur.

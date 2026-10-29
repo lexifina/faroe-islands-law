@@ -1,0 +1,1 @@
+§ 1 H. [^2] Eftirlønarupphæddin í peningastovni skal støðlast í samsvar við reglurnar í lógini um bankar og sparikassar. Tá talan er um puljuskipan, kann peningastovnurin uttan avgjald ella inntøkuskatt fyri eftirlønareigaran flyta upphæddir av kontantkontoini, sum svara til negativan ávøkstur í puljuni.
