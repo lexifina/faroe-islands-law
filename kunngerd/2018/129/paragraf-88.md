@@ -1,0 +1,2 @@
+§ 88. [^5] Handhavi av einum koyrikorti, útgivið í Norra, Íslandi, Stóra Bretlandi ella landi, sum er limur í ES, ella einum landi, ið eftir avtalu við ES hevur sett í gildi reglurnar í direktivi ráðsins 2006/126/EF um koyrikort, kann uttan drál umbýta hetta við eitt samsvarandi føroyskt koyrikort, sbr. tó stk. 2.
+Stk. 2. Handhavi av koyrikorti útgivið í øðrum londum enn teimum í stk. 1 nevndu, kann bert umbýta koyrikoyrtið við eitt samsvarandi føroyskt koyrikort, um so er at viðkomandi stendur eina eftiransandi koyriroynd.

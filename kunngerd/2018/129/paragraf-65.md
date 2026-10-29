@@ -1,0 +1,4 @@
+§ 65. Tekur Akstovan avgerð um, at koyrirætturin skal takast frá persóni, ella verður koyrirætturin frádømdur treytaleyst, skal koyrikortið latast Akstovuni. Løgreglan kann verða til hjálpar við atliti til at taka koyrikort aftur.
+Stk. 2. Koyrikortið skal somuleiðis latast Akstovuni, um tað við heimild í § 69, stk. 2, verða gjørdar avmarkingar í koyrirættinum.
+Stk. 3. Hevur persónur fingið útgivið eitt føroyskt altjóða koyrikort, og Akstovan tekur koyrirættin frá persóni ella koyrirætturin verður frádømdur treytaleyst, skal eisini altjóða koyrikortið latast Akstovuni ella løgregluni.
+Stk. 4. Verður koyrirætturin tikin frá persóni, tí viðkomandi ikki er edrúiligur ella óbundin av at nýta dusandi ella onnur tilvitsávirkandi evni, leggur ákærumyndugleikin eftir áheitan málið fyri rættin sbrt. ásetingunum í § 78, stk. 3 í revsilógini.

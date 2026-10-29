@@ -1,0 +1,1 @@
+§ 42. Stendur umsøkjari ikki verkligu royndina grundað á manglandi kunnleika til týdningarmiklar ferðslureglur ella grundað á vánaligan koyriførleika ger Akstovan sbrt. ásetingunum í § 68 av, um umsøkjarin skal til eftiransandi koyriroynd fyri at varðveita eitt møguliga frammanundan útgivið koyrikort til aðrar bólkar.

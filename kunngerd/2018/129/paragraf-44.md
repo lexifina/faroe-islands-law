@@ -1,0 +1,2 @@
+§ 44. Tá eftiransandi koyriroynd verður hildin sbrt. § 68, stk. 1 og § 70, stk. 1, skal koyrikortið latast próvdómaranum, áðrenn ástøðisroynd og verklig koyriroynd verður hildin. Verður royndin ikki staðin, verður koyrikortið inndrigið.
+Stk. 2. Eftiransandi koyriroynd sbrt. § 68, stk. 1 og § 70, stk. 1, skal verða avgreidd í seinasta lagi 3 mánaðir eftir, at boðan um eftiransandi koyriroynd er send frá Akstovuni. Akstovan kann gera av, at víkja frá tíðarfreistini.

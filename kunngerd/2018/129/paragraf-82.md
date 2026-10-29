@@ -1,0 +1,3 @@
+§ 82. [^2] Eitt danskt koyrikort ella eitt talgilt danskt koyrikort, sbrt. § 3 d. verður í øllum førum javnsett við eitt føroyskt koyrikort og gevur handhavanum rætt at koyra somu akfør sum í Danmark í tíðarskeiðnum, koyrikortið hevur gildi, uttan so, at tíðarskeiðið er longri enn til handhavin hevur fylt 75 ár.
+Stk. 2. [^4] Eitt koyrikort, útvegað í Grønlandi tann 1. januar 1995 ella seinni, gevur handhavanum rætt til at koyra somu akfør í Føroyum, sum tað gevur rætt til í Grønlandi, tó í mesta lagi 180 dagar eftir, at treytirnar um vanligan bústað eru loknar, sbr. tó stk. 3.
+Stk. 3. Koyrikort til bólk A, motorsúkkla, givið út í Grønlandi gevur ikki rætt til at koyra motorsúkklu í Føroyum.

@@ -1,0 +1,2 @@
+§ 49. Hevur umsøkjari staðið koyriroyndina ella verkligu royndina, skal umsøkjarin, meðan starvsfólk hjá Akstovuni sær, undirskriva í serstakum øki á umsóknini. Sama er galdandi fyri umsøkjarar, sum hava fylt 18 ár og hava staðið ástøðisroynd til bólk AM, lítið prutl. Akstovan útflýggjar umsøkjaranum eitt fyribils koyrikort.
+Stk. 2. Samstundis sum fyribils koyrikort verður útflýggjað, skal møguligt áður útgivið koyrikort latast Akstovuni aftur.

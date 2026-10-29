@@ -1,0 +1,1 @@
+§ 11. Koyrikort til vinnuligan fólkaflutning gevur rætt til at koyra vanligan bil, bólkur B, stóran persónbil, bólkur D, ella bæði vanligan bil og stóran persónbil, við tí ætlan at koyra vinnuligan fólkaflutning.

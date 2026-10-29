@@ -1,0 +1,1 @@
+§ 38. Ástøðisroynd kann í fyrsta lagi verða hildin ein mánað, áðrenn umsøkjarin lýkur kravið um aldur fyri at fáa útgivið tað koyrikort, sum søkt verður um. Umsøkjari, sum søkir um koyrikort til traktor ella motoramboð, kann tó fara upp til ástøðisroynd seks mánaðir áðrenn hann lýkur kravið um aldur.

@@ -1,0 +1,2 @@
+§ 51. Umsøkjarar, sum á fyrsta sinni taka koyrikort til bólkarnar A, B, ella A og B, og sum ikki kunna skjalprógva at hava fingið frálæring í koyring í myrkri, sbrt. § 32, fáa útgivið koyrikort til viðkomandi bólk ella bólkar, ið er galdandi til 31. desember sama ár.
+Stk. 2. Koyrikort útgivið við gildi til 31. desember sama ár sbrt. stk. 1, kann verða endurnýggjað og útgivið við gildi í 15 ár, treytað av, at handhavin skjalprógvar fyri Akstovuni at hava fingið frálæru í koyring í myrkri, sbrt. § 32 og § 43, stk. 1, nr. 6.

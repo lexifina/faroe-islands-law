@@ -1,0 +1,3 @@
+§ 70 b. Umsókn um endurtøku av koyrirættinum aftan á koyriforboð sbrt. § 59 h í løgtingslógini verður latin Akstovuni.
+Stk. 2. Er koyriforboð givið vegna rúsdrekkakoyring, her uppi í promillukoyring sbrt. teimum reglum, ið vóru galdandi um hetta áðrenn 1. oktober 2009, sbrt. § 59 a, stk. 1, nr. 2 í løgtingslógini, skal umsøkjarin leggja skeiðsprógv við sum skjalprógv um luttøku í skeiði í rúsdrekka og ferðslu, R/F-skeiði.
+Stk. 3. Við umsóknini skal vera fotomynd, sbrt. § 3, stk. 2. Umsøkjarin skal eisini vátta sín samleika, sbrt. § 3 a, stk. 1-5. Ásetingarnar í § 3, stk. 3 og 5 og § 3 b, verða nýttar samsvarandi.

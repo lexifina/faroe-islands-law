@@ -1,0 +1,2 @@
+§ 90. Um ein persónur við vanligum bústaði í Føroyum útvegar eitt koyrikort í útlandinum, kann tað verða umbýtt sbrt. ásetingunum í hesum kapitli, um uppihaldið hevur vart longur enn seks mánaðir, sbr. tó stk. 2.
+Stk. 2. [^5] Henda avmarking er ikki galdandi fyri grønlendsk koyrikort ella koyrikort sum eru útvegað í Norra, Íslandi, Stóra Bretlandi ella landi, sum er limur í Evropeiska Samveldinum, ella í einum landi, sum eftir avtalu við ES hevur sett í gildi reglurnar í direktivi ráðsins 91/439/EØF um koyrikort.

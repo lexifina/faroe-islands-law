@@ -1,0 +1,3 @@
+§ 27. Á umsóknini um koyrikort váttar koyrilærarin, at koyrifrálæran í minsta lagi hevur fevnt um skúlatímarnar í ávikavist ástøðishøli, ástøðilig frálæra, og í verkligari frálæru, venjingarakstur, sbrt. § 25, stk. 1-8 eins, og at treytirnar í § 25, stk. 9-11 um frálærugongdina eru uppfyltar. Harumframt verður í sambandi við koyrifrálæruna váttað, at ein lesiætlan er gjørd, útflýggjað og nýtt, sbrt. § 26.
+Stk. 2. Við verkliga roynd skal váttan um koyrifrálæru somuleiðis vera undirskrivað av koyrilæraranum.
+Stk. 3. Hava fleiri koyrilærarar lært næmingin, skal tann koyrilærari, sum hevur havt seinasta skúlatíma ávikavist í ástøðishøli, ástøðilig frálæra, og í verkligari frálæru, venjingarakstur, skriva undir váttanina um koyrifrálæru.

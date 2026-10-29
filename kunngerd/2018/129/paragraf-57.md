@@ -1,0 +1,8 @@
+§ 57. Akstovan gevur eftir umbøn út eitt fyribils endurrit av koyrikorti, um ein handhavi av føroyskum koyrikorti:
+1) Er frádømdur koyrirættin uttanlands,
+2) uttanlands hevur fingið koyriforboð, og tann útlendski koyrikortsmyndugleikin hevur treytað byrjanina á frádømingartíðarskeiðnum ella koyriforboðnum av, at koyrikortið verður útflýggjað til skráseting av brotinum ella átekning av hesum, ella
+3) uttanlands hevur fingið koyrikortið inndrigið fyrisitingarliga.
+Stk. 2. Tað er tó ein treyt fyri at fáa útgivið fyribils endurrit sbrt. stk. 1, at koyrikortið samstundis verður latið inn, ella skjalprógv frá útlendska koyrikortsmyndugleikanum um, at hesin hevur koyrikortið í varðveitslu, verður víst fram. Fyribils endurrit av koyrikorti verður útgivið við átekning um, at tað ikki hevur gildi í tí landi, har brotið er framt.
+Stk. 3. Verður avgerð tikin um at leggja mál fyri rættin um frádøming av koyrirættinum sbrt. § 11 í revsilógini, kann fyribils endurrit av koyrikorti ikki verða útgivið sbrt. stk. 1, um so er, at tað verður mett, at treytirnar fyri treytaleysari frádøming av koyrirættinum eru til staðar. Ásetingarnar í § 67 verða nýttar samsvarandi.
+Stk. 4. Verður fyribils bráðfeingiskoyrikort givið út, sendir Akstovuni koyrikortið til útlendska koyrikortsmyndugleikan, um so er, at hesin ikki longu hevur koyrikortið í varðveitslu. Akstovan skipar undir øllum umstøðum so fyri, at koyrikortið aftaná skráseting ella átekning hjá tí útlendska koyrikortsmyndugleikanum, verður sent aftur til Akstovuna.
+Stk. 5. Um so er, at fyribils bráðfeingiskoyrikort er útgivið, kann útflýggjan av koyrikortinum, aftaná skráseting ella átekning hjá útlendskum koyrikortsmyndugleika, bert fara fram, um fyribils bráðfeingiskoyrikortið verður latið inn aftur.

@@ -1,0 +1,3 @@
+§ 35. Koyriroynd og verklig roynd til bólk A, koyriroyndir til bólkarnar AM, stórt prutl, B, C, D, C/E og D/E eins og verklig roynd til bólk B/E, skulu fremjast sbrt. ásetingunum í skjali 6, nr. 1.
+Stk. 2. Koyriroyndir til vinnuligan fólkaflutning til bólkarnar B og D, eins og koyriroynd til traktor ella motoramboð skulu fremjast sbrt. ásetingunum í skjali 6, ávikavist nr. 2 og 3.
+Stk. 3. Koyriroyndin til vinnuligan fólkaflutning til bólk D kann fara fram samstundis sum koyriroynd til bólk D. Stendur umsøkjari ikki ástøðisroyndina til vinnuligan fólkaflutning til bólk D, varðveitir hann kortini rættin til at fara upp til verkliga roynd til bólk D, um so er, at ástøðisroyndin til bólk D er staðin.

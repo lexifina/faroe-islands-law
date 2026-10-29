@@ -1,0 +1,1 @@
+§ 84. Motordrivið akfar kann aftaná, at vanligur bústaður í Føroyum er viðurkendur, bert verða koyrt við støði í einum donskum, grønlendskum ella útlendskum koyrikorti, um koyrikortið hevur gildi og handhavin lýkur krøvini til aldur, sum eru galdandi fyri útgávu av einum samsvarandi føroyskum koyrikorti, sbrt. ásetingunum hesum viðvíkjandi í kapitli 1.

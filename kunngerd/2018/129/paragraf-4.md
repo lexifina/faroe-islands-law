@@ -1,0 +1,5 @@
+## Vanligur bústaður
+§ 4. Vanligur bústaður er í hesi kunngerð tað stað, har persónurin vanliga heldur til í minsta lagi 185 dagar í einum kalendaraári, orsakað av persónligum ella vinnuligum tilknýti. Er viðkomandi persónur uttan vinnuligt tilknýti, skal eitt persónligt tilknýti vera, sum vísir, at tað er eitt tætt samband millum viðkomandi og staðið, har hann býr.
+Stk. 2. Vanligur bústaður verður viðurkendur, tá ið ein persónur hevur búsett seg í Føroyum við tí ætlan at lúka eina av treytunum, nevndar í stk. 1.
+Stk. 3. Persónur, sum bert hevur vinnuligt tilknýti til Føroyar, verður mettur at hava vanligan bústað í tí landi, har viðkomandi hevur persónligt tilknýti, um so er, at viðkomandi við jøvnum millumbilum fer aftur hagar. Tað verður tó ikki kravt, at síðstnevnda treyt er lokin, um viðkomandi heldur til í Føroyum við tí ætlan at virka í einum tíðaravmarkaðum starvi.
+Stk. 4. Upptøka á útbúgvingarstovni førir ikki av sær sjálvum við sær, at viðkomandi fær vanligan bústað í Føroyum.

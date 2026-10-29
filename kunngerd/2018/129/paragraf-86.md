@@ -1,0 +1,2 @@
+§ 86. Umsøkjarar, sum hava eitt galdandi danskt, grønlendskt ella annað útlendskt koyrikort, kunnu við teimum avmarkingum, sum eru ásettar í §§ 87-90, umbýta hetta til eitt føroyskt koyrikort, um umsøkjarin lýkur krøvini, sum galda fyri útgávu av samsvarandi føroyskum koyrikorti, sbrt. ásetingunum hesum viðvíkjandi í kapitli 1.
+Stk. 2. Um tann í stk. 1 nevnda treyt um gildi fyri koyrikort ikki er lokin, og hetta bert er orsakað av, at gildistíðin fyri koyrikortið er úti, kann umsøkjarin tó við støði í eini eftiransandi koyriroynd fáa útgivið eitt føroyskt koyrikort.

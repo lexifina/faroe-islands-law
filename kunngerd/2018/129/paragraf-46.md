@@ -1,0 +1,3 @@
+## Vegleiðandi heilsulig koyriroynd
+§ 46. Akstovan kann í sambandi við útvegan ella endurnýggjan av koyrikorti krevja, at ein vegleiðandi heilsulig koyriroynd verður hildin, fyri at gera av, um koyrikort kann verða givið ella møguliga verða givið við serligum treytum. Ein slík koyriroynd kann harafturat verða kravd, fyri at gera av, um og í hvønn mun ein handhavi av koyrikorti framhaldandi kann varðveita sín koyrirætt, sbrt. § 69. Akstovan kann krevja, at umsøkjarin ella handhavin av koyrikorti hevur akfar, sum er góðkent til venjingarakstur, tøkt til royndina.
+Stk. 2. Um so er, at Akstovan heldur tað verða neyðugt, at umsøkjarin áðrenn royndina sbrt. stk. 1 fær sær nakað av kunnleika í at handfara akfarið, skal hetta verða framt á hóskandi venjingarøki.

@@ -1,0 +1,2 @@
+§ 80. Akstovan kann geva persóni, sum ikki hevur vanligan bústað í Føroyum, og sum ikki hevur neyðugt koyrikort, sbrt. § 79, loyvi til fyribils at koyra motordrivið akfar í Føroyum, ferðafólkakoyrikort. Loyvið kann m.a. verða treytað av, at umsøkjarin stendur eina eftiransandi koyriroynd.
+Stk. 2. Eitt ferðafólkakoyrikort útgivið í Danmark, Finnlandi, Íslandi, Norra ella Svøríki gevur handhavanum rætt til at koyra somu akfør í Føroyum, sum tað gevur rætt til í landinum, har koyrikortið er útgivið.

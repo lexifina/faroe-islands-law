@@ -1,0 +1,2 @@
+§ 62. Eru trý ár ella meira liðin frá tí, at gildstíðin á koyrikortinum var úti til umsókn um endurnýggjan av koyrikorti verður latin inn, skal umsøkjarin standa eina eftiransandi koyriroynd sbrt. ásetingunum í § 45, stk. 3, áðrenn koyrikortið kann vera endurnýggjað. Hetta er tó ikki galdandi fyri koyrikort til bólk AM, lítið prutl.
+Stk. 2. Akstovan kann tó í serligum føri gera av, at eftiransandi koyriroynd skal ikki vera hildin.

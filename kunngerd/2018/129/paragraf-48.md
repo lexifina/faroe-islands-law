@@ -1,0 +1,2 @@
+§ 48. Koyrikort kann verða útgivið fyri avmarkaða tíð ella verða avmarkað til akfør, sum lúka serliga ásettar treytir, eins og serligar treytir kunnu verða settar. Slíkar treytir og avmarkingar verða áteknaðar á koyrikortið sum ein talkota sbrt. ásetingunum í skjali 7.
+Stk. 2. Koyrikort til bólk AM, lítið prutl, traktor ella motoramboð, vinnuligan fólkaflutning og koyrikort við koyrilæraragóðkenning verða útgivin sbrt. ásetingunum í skjali 7, nr. 4.

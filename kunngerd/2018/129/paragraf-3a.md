@@ -1,0 +1,5 @@
+§ 3 a. Tá ið umsókn um koyrikort verður latin inn, skal umsøkjarin veita prógv fyri sínum samleika við at vísa áður útgivið koyrikort í ES sniði, sbrt. § 47, stk. 2, ella við at vísa eitt galdandi pass.
+Stk. 2. Harumframt skal umsøkjarin vísa uppruna dópsbræv, navnabræv ella føðibræv, har P-tal umsøkjarans sæst..
+Stk. 3. Sæst P-tal umsøkjarans ikki týðiliga í skjølunum, sum nevnd eru í stk. 1 og 2, skal umsøkjarin harafturat vísa eitt samleikaprógv, sum er givið út av einum almennum myndugleika, har sum P-tal umsøkjarans týðiliga sæst.
+Stk. 4. Síggjast tey nøvn, sum umsøkjarin nú nýtir, ikki í teimum í stk. 1-3 nevndu skjølum, hevur umsøkjarin skyldu til eftir umbøn at skjalprógva navnabroytingina við at vísa vígslubræv, navnabræv ella annað skjalprógv um navnabroytingina.
+Stk. 5. Um útgáva av koyrikorti er treytað av eini koyriroynd ella eini eftiransandi koyriroynd, skal umsøkjarin, áðrenn royndina, veita prógv fyri samleika sínum, sbrt. stk. 1-2, bæði í sambandi við ta ástøðiligu og ta verkligu royndina, sbrt. § 33, stk. 3.

@@ -1,0 +1,4 @@
+§ 41. Verklig roynd kann í fyrsta lagi verða hildin, tá umsøkjarin lýkur kravið um aldur fyri at kunna fáa útskrivað koyrikort, sum biðið um.
+Stk. 2. [^4] Verklig roynd skal í seinasta lagi verða staðin 18 mánaðir eftir, at ástøðisroynd er staðin. Ástøðisroyndin varðveitir tó bert sítt gildi í upp til 18 mánaðir, um so er, at umsøkjarin samanhangandi er undir koyrifrálæru, sbrt. § 23, stk. 1 og 2.
+Stk. 3. Umsøkjarin syrgir sjálvur fyri akfari til verkligu royndina. Akfarið skal lúka treytirnar í skjali 5.
+Stk. 4. Kann umsøkjari av heilsuávum bert fáa koyrikort til serstøk sløg av akførum ella akfør, sum eru serliga tilgjørd og útgjørd, sbrt. § 48, stk. 1, verður verklig roynd hildin við slíkum akfari. Tað kann verða kravt, at akfarið, meðan verklig roynd fer fram, er útgjørt við serstøkum pedálum til próvdómaran, sbrt. skjali 5.

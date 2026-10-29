@@ -1,0 +1,6 @@
+## Kapittul 8
+## Endurtøka av koyrirætti
+§ 71. Umsókn um endurtøku av koyrikorti, eftir at Akstovan hevur tikið koyrirættin frá persóni, ella eftir at koyrirætturin er frádømdur treytaleyst, verður latin Akstovuni. Umsøkjarin skal í hjáveru av starvsfólki hjá Akstovuni undirskriva á serstøkum øki á umsóknini.
+Stk. 2. Er koyrirætturin frádømdur treytaleyst vegna rúsdrekkakoyring, her uppi í promillukoyring sbrt. teimum reglum, ið vóru galdandi um hetta áðrenn 1. oktober 2009, sbrt. § 18 c, stk. 3, 2. pkt. í løgtingslógini, skal umsøkjarin leggja skeiðsprógv við sum skjalprógv um luttøku í skeiði í rúsdrekka og ferðslu, R/F-skeiði.
+Stk. 3. Við umsóknini skal vera fotomynd, sbrt. § 3, stk. 2. Umsøkjarin skal eisini vátta sín samleika, sbrt. § 3 a, stk. 1-5. Ásetingarnar í § 3, stk. 3 og 5 og § 3 b, verða nýttar samsvarandi.
+Stk. 4. Hevur Akstovan tikið koyrirættin frá persóni orsakað av heilsuligum ávum ella orsakað av, at viðkomandi er bundin av at nýta dusandi ella onnur tilvitsávirkandi evni ella orsakað av, at viðkomandi ikki er edrúiligur, ella koyrirætturin hevur verið frádømdur treytaleyst í 3 ár ella meira, skal harumframt latast inn læknaváttan, sbrt. § 3, stk. 4. Annars krevst læknaváttan bert, um ein læknaváttan, ið áður er latin í sambandi við útgávu ella endurnýggjan av koyrikorti, ella aðrar umstøður geva orsøk til tess.

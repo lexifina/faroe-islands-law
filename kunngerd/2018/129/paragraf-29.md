@@ -1,0 +1,1 @@
+§ 29. Við koyrifrálæru til bólkarnar AM, stórt prutl, A og B skal umsøkjarin undir venjingarrakstri, sbrt. § 28, í minsta lagi fremja 4 skúlatímar, sum hvør varir 45 minuttir, í venjing á hóskandi venjingarøki.
