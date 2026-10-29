@@ -1,0 +1,3 @@
+§ 5. Hóast ásetingina í § 3, stk. 1 kann Heilsufrøðiliga starvsstovan, eftir skrivliga umsókn, geva fyritøkum loyvi til at flyta inn ikki vandamikil eksotisk dýr.
+Stk. 2. Fyritøka, sum ætlar at flyta inn og/ella halda eksotisk dýr í fangilsi, skal vera góðkend av og undir støðugum eftirliti av Heilsufrøðiligu starvsstovuni.
+Stk. 3. Innflutt ikki vandamikið eksotiskt dýr til fyritøku skal hava heilsuskjal í tráð við fylgiskjalið við sær. Heilsufrøðiliga starvsstovan ásetir nærri treytir fyri innflutning, góðkenning og eftirlit, íroknað krøv til innrætting av uppihaldsstaði (rúm, búður, akvarium og tílíkt) til eksotisku dýrini.

@@ -1,0 +1,2 @@
+§ 4. Hóast ásetingina í § 3, stk. 1 kann Heilsufrøðiliga starvsstovan, eftir skrivliga umsókn, geva privatum persóni, sum er búsitandi í ella flytur til Føroya, loyvi til at flyta inn ikki vandamikil eksotisk dýr.
+Stk. 2. Innflutt ikki vandamikið eksotiskt dýr til privatan persón skal hava heilsuskjal í tráð við fylgiskjalið við sær. Heilsufrøðiliga starvsstovan kann seta nærri treytir fyri innflutningi og uppihaldi av eksotisku dýrunum.
