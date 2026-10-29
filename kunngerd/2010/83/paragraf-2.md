@@ -1,0 +1,1 @@
+§ 2. Avgerðir, sum Heilsufrøðiliga starvsstovan hevur tikið eftir løgtingslóg nr. 58 frá 26. mai 2010 um matvørur v.m. ella reglum, givnar við heimild í lógini, kunnu kærast til Vinnukærunevndina innan fýra vikur eftir, at móttakarin hevur fingið boð um avgerðina. Avgerðir, sum Vinnukærunevndin hevur tikið, kunnu ikki kærast til hægri fyrisitingarligan myndugleika.
