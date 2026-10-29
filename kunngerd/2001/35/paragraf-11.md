@@ -1,0 +1,1 @@
+§ 11. Fyristøðufelagið skal syrgja fyri óheftum staðfestingum av virkis-, tøkni- og fyriskipanarligum viðurskiftum, ið hava týdning fyri at varðveita eitt forsvarligt heilsu-, trygdar- og umhvørvisstig.

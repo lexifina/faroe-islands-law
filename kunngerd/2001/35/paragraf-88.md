@@ -1,0 +1,1 @@
+§ 88. Tað skal bera til at flyta havstøðina burtur frá brunninum um ótemjandi útblástur berst á ella um aðrir vandar eru. Mannagongdir skulu vera gjørdar fyri, hvussu koplað verður úr, og hvussu havstøðin verður flutt.

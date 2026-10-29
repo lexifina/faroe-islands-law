@@ -1,0 +1,1 @@
+§ 17. Fyristøðufelagið á havstøðini skal lýsa hættislig arbeiði, ið kunnu hava við sær vanda fyri tann einstaka, umhvørvið ella tinglig virði. Fyri slík arbeiði skal ein greining av arbeiðstrygdini gerast at lýsa neyðug tiltøk, ið skulu til at tryggja eitt góðtakiligt stig fyri heilsu, trygd og umhvørvi.

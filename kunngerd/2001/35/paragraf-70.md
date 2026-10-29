@@ -1,0 +1,1 @@
+§ 70. Arbeiðstakarar mugu ikki vera fyri ávirkan av veðri og vindi, ið kann skaða heilsuna ella økja sannlíkindini fyri at mistøk henda. Mørk skulu setast fyri, nær veðurlagið krevur serlig verndartiltøk, tá arbeitt verður á dekkinum, og nær arbeiðið skal avmarkast ella halda uppat.

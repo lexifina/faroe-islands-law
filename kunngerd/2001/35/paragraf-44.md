@@ -1,0 +1,1 @@
+§ 44. Áðrenn farið verður at bora á djúpum vatni, skal metast um innantvørmátið á týni- og sleppirørunum á reisirørinum orsakað av trýsttapi og gníggimótstøðu, ið eru grundað á krøv til tamarhald á brunninum.

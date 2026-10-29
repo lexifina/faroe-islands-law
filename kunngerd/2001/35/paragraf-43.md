@@ -1,0 +1,2 @@
+§ 43. Havstøð skal hava beri-, spenni- og doyviskipan, soleiðis at lodrættar rørslur á havstøðini ikki ávirka reisirørið. Havstøð við dýnamiskari positionering skal hava eina virkna doyviskipan, so til ber at kopla útgerð í og úr aftur brunninum.
+Stk. 2. Havstøð skal hava úrkoplingarskipan, ið ger ventilarnar á útblástrartryggingini virknar og sum loysir reisirørið. Henda skipan skal vera raðstýrd.

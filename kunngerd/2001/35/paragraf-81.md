@@ -1,0 +1,1 @@
+§ 81. Fyristøðufelagið skal, har tað er hóskandi, formliga samskipa tilbúgvingarætlanir og –orku á egnari havstøð við onnur fyristøðufeløg, aðrar loyvishavarar og almennar tilbúgvingarætlanir og -orku.

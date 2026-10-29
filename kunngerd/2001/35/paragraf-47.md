@@ -1,0 +1,2 @@
+§ 47. Hátrystpumpuútbúnaðurin til sementing skal hava útgerð, ið lýkur krøv til blandilutfall, pumpunøgdir og evnistyngd, ið eru lagað til brunnin. Pumpuútbúnaðurin skal um neyðugt kunna brúkast til løg, sum etjar og elvir til rust.
+Stk. 2. Hátrýstpumpueindin við tilhoyrandi hátrýstskipanum skulu hava nøktandi orku og arbeiðstrýst at trýstroyna brunnin og brunnútgerðina, samstundis sum tamarhaldið á brunninum verður varðveitt.

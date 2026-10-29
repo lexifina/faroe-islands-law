@@ -1,0 +1,2 @@
+§ 48. Tá væta verður leidd úr brunni undir skipaðum viðurskiftum, skal útgerðin á havstøðini og í brunninum vera lagað til umstøðurnar í brunninum og tørvin á upplýsingum um brunnin. Meðan væta verður leidd, skal hátrýstskipanin vera sett til týnisíðuna á royndartrænum, so til ber at týna brunnin uttan drál.
+Stk 2. Øll væta, ið verður leidd úr brunninum, skal kunna burturveitast til eina skipan við greinrørum og haðani til brennimastur, har kolvetni kunnu verða brend.

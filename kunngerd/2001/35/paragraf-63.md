@@ -1,0 +1,2 @@
+§ 63. Arbeiðið skal leggjast soleiðis til rættis hvat longdini á arbeiðskeiðinum viðvíkir, at arbeiðstakarar ikki vera fyri óforsvarligari arbeiðsbyrðu. Arbeiðið skal í øllum lutum skipast og gerast soleiðis at líkindini fyri mistøkum eru minst møgulig.
+Stk. 2. Dentur skal leggjast á, at javnvág er millum tey krøv, ið sett verða arbeiðstakara og hansara fatan av tamarhaldi á arbeiðsumstøðunum. Fyrilit skal havast fyri sosialum samskifti av týdningi fyri heilsu, tryggleika og trivna.

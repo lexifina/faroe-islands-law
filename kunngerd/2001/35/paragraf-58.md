@@ -1,0 +1,3 @@
+§ 58. Dagførdir listar skulu altíð vera yvir øll, ið eru umborð á havstøðini ella skipum, ið luttaka í virksemi, sum fyristøðufelagið hevur ábyrgdina av. Yvirlitið skal eisini fevna um tey, ið ferðast til og frá havstøðini ella skipunum.
+Stk. 2. Hvør einstakur skal kunnast um viðurskifti, ið hava týdning fyri heilsu, trygd og umhvørvi umborð. Øll, ið luttaka í kolvetnisvirkseminum skulu kunnast um galdandi reglur um uppihald á havstøðini og á hjálparskipum.
+Stk. 3. Tá starvsfólk verða skift, skal ansast eftir at støðan yvir virksemi, sum er í gongd og allar nýggjar ella broyttar upplýsingar, ið hava týdning fyri trygdina, verða kunnað nýggju starvsfólkunum.

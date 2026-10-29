@@ -1,0 +1,1 @@
+§ 107. Frágreiðing um fólkaskaða á havstøðini ella umborð á skipum sum lasta og lossa, skal sendast Oljumálastýrinum í seinasta lagi 9 dagar eftir at skaðin hendi. Frágreiðingin skal skrivast á oyðublað, sum Oljumálastýrið útflýggjar.

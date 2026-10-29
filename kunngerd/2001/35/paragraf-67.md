@@ -1,0 +1,4 @@
+§ 67. Arbeiðstakarar skulu verjast móti geislavirkni sambært lóggávu. Arbeiðstakarar skulu í minst møguligan mun vera fyri jónandi geisling. Geislavirknar keldur skulu ikki verða brúktar, um til ber í staðin at brúka óskaðiligar, minni skaðiligir ella minni nervandi mannagongdir, sum í aðrar mátar kunnu metast at vera tøkniliga nøktandi.
+Stk. 2. Á havstøðini skulu til hvørja tíð vera fullfíggjað yvirlit yvir geislavirkin evni, slag av útgerð og geislavirknar keldur, geislingarstig, verndarkrøv og hvar tílík evni vera goymd. Geislavirknar keldur og evni skulu vera merkt sambært fyriskipanum.
+Stk. 3. Arbeiði, ið hevur við sær samband við lággeislavirkið botntilfar, skal leggjast soleiðis til rættis, at tað slepst undan dustgerð, og at vandin fyri innanding av dustbitlum verður sum minst.
+Stk. 4. Arbeiðstakarar skulu í minst møguligan mun vera fyri ikki jónandi geislingum.

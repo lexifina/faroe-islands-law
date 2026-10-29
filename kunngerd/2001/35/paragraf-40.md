@@ -1,0 +1,3 @@
+§ 40. Bori- og brunnvirksemi skal kunna stýrast og vera undir eftirliti av útgerð, sum er gjørd soleiðis, at til ber at tippa og tryggja brunnin, um ein brunnbyrging fer fyri skeytið.
+Stk. 2. Útblástrartryggingin skal vera gjørd soleiðis, at væta og gass kunnu leiðast upp úr brunninum undir tamarhaldi og út í eitt greinrør gjøgnum tvær ósamantengdar rørleiðingar. Øll úttøk á renslirørum á útblástrartryggingini skulu hava tveir stoppikranar so nær úttøkunum sum til ber.
+Stk. 3. Útblástrartryggingin skal kunna setast til frá í minsta lagi trimum støðum á havstøðini. Starttalvurnar skulu, óheft av hvørjum øðrum, senda boð til eftirlitsskipanina á útblástrartryggingini.

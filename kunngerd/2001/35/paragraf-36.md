@@ -1,0 +1,2 @@
+§ 36. Bústaðarøkið skal hava hóskandi tal av kømrum, sjúkra-, uppihalds-, matar-, skifti-, vaski-, goymslu-, arbeiðs-, kokka-, proviant-, frysti- og kølirúmum; rúm til klædnavask og -turking, nátthúsum og skrivstovum. Rúmini skulu hóska og hava neyðugu útgerðina til tað brúk, tey eru ætlað til.
+Stk. 2. Í mesta lagi tvey fólk skulu búgva á hvørjum kamari og er nátthús og bað ikki á kamarinum, skulu í minsta lagi vera 6 fermetrar í part. Er hinvegin nátthús og bað á kamarinum, skal gólvvíddin í minsta lagi vera 4,75 fermetrar í part.

@@ -1,0 +1,1 @@
+§ 83. Umboð hjá fyristøðufelagnum og tann, ið hevur ábyrgd av rakstrinum av boriútbúnaðinum ella brunninntrivsútgerðini og leiðararnir fyri bori- og brunnvirksemi, sum er í gongd, skulu hava førleika í trýsteftirliti.

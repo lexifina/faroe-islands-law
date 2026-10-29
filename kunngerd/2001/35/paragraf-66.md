@@ -1,0 +1,3 @@
+§ 66. Arbeiðstakarar skulu í minst møguligan mun vera fyri ávirkan av heilsuskaðiligum kemikalium og evnum, krabbameinselvandi evnum og tilgongdum ella lívfrøðiligum virkevnum. Heilsuskaðilig kemikaliir, evni ella tilfar mega ikki vera brúkt, um tað ber til í staðin at brúka ikki vandamikil, minni vandamikil ella minnni nervandi kemikaliir, evni ella tilfar.
+Stk. 2. Heilsuskaðilig evni og kemikaliir, skulu vera flokkað, merkt, innballað og goymd samsvarandi viðurkendum evropeiskum reglum.
+Stk. 3. Áðrenn heilsuskaðilig kemikaliir verða tikin í brúk, skulu tilfarsgreiningar vera tøkar og lættar at fáa hendur á. Dagførd evnisskrá skal vera til skjals á havstøðini.
