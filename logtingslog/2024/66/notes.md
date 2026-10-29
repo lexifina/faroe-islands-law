@@ -1,0 +1,1 @@
+[^1]: Broytt við løgtingslóg nr. 196 frá 9. desember 2025, har § 2 ljóðar soleiðis: “Stk. 1. Henda løgtingslóg kemur í gildi 1. desember 2025. Stk. 2. Gjaldið, nevnt í § 13, sum er kravt inn í tíðarskeiðinum 1. januar - 31. desember 2026, verður gjørt upp og goldið eftir teimum freistum í § 13 a, sum eru galdandi fyri gjaldið, sum er kravt inn í 2026.”

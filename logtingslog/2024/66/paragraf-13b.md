@@ -1,0 +1,3 @@
+§ 13 b. [^1] TAKS kann krevja upplýsingar, kanna roknskapartilfar o.tíl. hjá teimum, sum eftir § 13, stk. 2 og 3, vegna landið krevja inn burðardygdargjald frá ferðafólki, og hjá øðrum, sum hava tilfarið um hendur.
+Stk. 2. Fær TAKS ikki umbidnar upplýsingar, ella eru upplýsingarnar ófullfíggjaðar ella villleiðandi, um upphæddina, sum er kravd inn, metir TAKS um upphæddina og krevur inn samsvarandi gjald.
+Stk. 3. TAKS kann heinta inn burðardygdargjald, skuldskrivaða rentu, innheintingarkostnaðir, sektir og onnur gjøld eftir hesi løgtingslóg við at afturhalda í A-inntøku hjá teimum, sum hava skyldu at krevja inn burðardygdargjald, eftir reglunum í skattalógini.

@@ -1,0 +1,1 @@
+§ 17. Áðrenn 1. oktober í øðrum hvørjum ári leggur landsstýrisfólkið fyri Løgtingið frágreiðing sambært § 51, stk. 4 í Tingskipan Løgtingsins um burðardygga ferðavinnu í Føroyum. Frágreiðingin verður fyrstu ferð løgd fram í 2027.
