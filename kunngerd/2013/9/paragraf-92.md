@@ -1,0 +1,2 @@
+§ 92. Um heilt serlig viðurskifti gera seg galdandi, kann ávikavist vikutímatalið og tíðarskeiðið, sjúkraundirvísing verður framd, sbr. § 90, verða økt og longt. Um onnur serlig viðurskifti gera seg galdandi kunnu reglurnar í § 93 um longda útbúgvingargongd eisini fevna um næming, sum er sjúkur í longri tíð.
+Stk. 2. Næmingur, sum við títtari, styttri fráveru vegna sjúku hevur verið burtur, ella sum væntandi noyðist at vera burtur frá undirvísingini í longri tíð, kann fáa ískoytisundirvísing.

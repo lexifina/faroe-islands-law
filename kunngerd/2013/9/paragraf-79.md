@@ -1,0 +1,2 @@
+§ 79. Undirvísingarfrágreiðingin er grundarlag undir munnligu próvtøkuni. Frágreiðingin verður gjørd eftir leisti, sum Mentamálaráðið ger, og hon skal vera tøk hjá próvdómara at taka niður frá stevnu, heimasíðu ella líknandi miðli, í seinasta lagi 14 dagar áðrenn munnligu próvtøkurnar verða kunngjørdar.
+Stk. 2. Fyri næming, sum skiftir skúla í einum skúlaári, skal lærarin gera eina avmarkaða undirvísingarfrágreiðing.

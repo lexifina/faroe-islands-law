@@ -1,0 +1,3 @@
+## Lestrarmenning
+§ 37. Leiðari útbúgvingarstovnsins skal skipa so fyri, at allir næmingar fáa miðvísa fakliga vegleiðing og vegleiðing um lestrarháttalagið í ávísu lærugreinunum. Vegleiðingin skal miða ímóti, at næmingurin gerst førur fyri at lesa og granska í lestrartíðini, og at næmingurin megnar at fremja útbúgvingina innan ásettu tíðarkarmarnar.
+Stk. 2. Til lestrarmenning skulu nýtast 25 klokkutímar, á fyrireikingarbreytini tó 35 klokkutímar, og tímarnir skulu nýtast fyrsta árið. Lestrarmenning skal standa á tímatalvuni, og tað er skylda næmingsins at luttaka. Vegleiðingin skal taka støði í námsætlanini fyri lestrarmenning og vegleiðing um lestrarmenning.

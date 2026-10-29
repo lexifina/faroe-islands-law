@@ -1,0 +1,3 @@
+## Sjálvboðin undirvísing
+§ 32. Útbúgvingarstovnurin kann eisini bjóða bólkum av næmingum sjálvbodna undirvísing tvørtur um floksmørk. Hetta slag av undirvísing kann ikki vera royndarfyrireikandi faklig undirvísing. Sjálvboðin undirvísing kann ikki vera ein treyt fyri, at næmingurin sleppur at velja ávísar lærugreinar.
+Stk. 2. Útbúgvingarstovnurin kann veita næmingum við serligum evnum serlig undirvísingartilboð. Útbúgvingarstovnurin kann bjóða næmingum at luttaka í lesiringum tvørtur um floksmørk. Hetta slag av undirvísing kann ikki vera royndarfyrireikandi faklig undirvísing og kann ikki vera ein treyt fyri, at næmingurin sleppur at velja ávísar lærugreinar.

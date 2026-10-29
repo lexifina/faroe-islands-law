@@ -1,0 +1,1 @@
+§ 34. Høvuðsmálið í undirvísingini er føroyskt. Í øðrum máli enn móðurmálinum kann høvuðsmálið í lærugreinini vera avvarðandi mál, men mállærugreinarnar skulu umframt teirra egnu málfrøðiheiti eisini vísa til føroysk málfrøðiheiti, har tað ber til.

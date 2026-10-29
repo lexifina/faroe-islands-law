@@ -1,0 +1,1 @@
+§ 29. Leiðari útbúgvingarstovnsins kann taka stig til at skipa tiltøk fyri allar næmingar ella partar av teimum so sum evnisdagar, felagstímar, innleiðsluskeið, ítróttartiltøk, sjónleik, tónleik o.tíl. Tiltøkini skulu hava til endmáls at røkka málunum í útbúgvingini. Tiltøkini eru fevnd av § 19.

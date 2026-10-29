@@ -1,0 +1,2 @@
+§ 15. [^3] Á búskaparbreytini, hugbreytini, náttúrubreytini og tilfeingisbreytini er útbúgvingartíðin í minsta lagi 2470 klokkutímar og í mesta lagi umleið 2600 klokkutímar. Á tøknibreytini er útbúgvingartíðin í minsta lagi 2630 klokkutímar og í mesta lagi umleið 2760 klokkutímar. Á fyrireikingarbreytini er útbúgvingartíðin í minsta lagi 1625 klokkutímar og í mesta lagi umleið 1760 klokkutímar.
+Stk. 2. Leiðari útbúgvingarstovnsins kann loyva, at onnur tímatøl vera nýtt, um næmingur hevur fingið avriksflutning góðkendan frá øðrum útbúgvingum.

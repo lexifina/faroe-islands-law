@@ -1,0 +1,1 @@
+§ 77. Í tíðini frá byrjanini 1. árið til undirvísingarlok 3. árið skulu haldast í minsta lagi 5 royndir, skrivligar ella munnligar, undir próvtøkulíknadi umstøðum, t.e. eftir reglunum í próv-tøkukunngerðini og námsætlanini við tí í hyggju, at næmingarnir fáa vant teir ymisku próvtøkuhættirnar, sum eru at finna í útbúgvingini.

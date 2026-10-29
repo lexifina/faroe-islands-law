@@ -1,0 +1,8 @@
+## Kapittul 9
+## Kæra
+§ 94. [^3] Næmingur ella møguligur foreldramyndugleiki kann kæra námsfrøðiligar avgerðir, sum eru tiknar á stovninum sambært hesi kunngerð, her undir endalig ársmet, til leiðara útbúgvingarstovnsins. Kærufreistin er 7 dagar frá tí degi, at avgerðin er kunngjørd næminginum.
+Stk. 2. Gongur leiðari útbúgvingarstovnsins ikki kæruni á møti, kann næmingurin ella møguligur foreldramyndugleiki kæra avgerð leiðara útbúgvingarstovnsins til landsstýrismannin, samsvarandi § 40, stk. 1 í lógini. Kærufreistin er 7 dagar, eftir at avgerð leiðarans er kunngjørd næminginum ella foreldramyndugleikanum. Kæran skal vera skrivlig, ítøkilig og grundgivin.
+Stk. 3. Leiðari útbúgvingarstovnsins skal gera eitt ummæli av kæruni sbrt. stk. 2 og geva kæraranum høvi at gera viðmerkingar til ummælið. Leiðari útbúgvingarstovnsins skal í mesta lagi geva kæraranum 7 dagar til at gera viðmerkingar. Kærarin skal lata leiðaranum sínar møguligu viðmerkingar, sum so sendir alt málið til landsstýrismannin.
+Stk. 4. Landsstýrismaðurin kann taka avgerð um at burturvísa kæruni, um treytirnar í stk. 2 ikki eru uppfyltar. Landsstýrismaðurin kann eisini staðfesta avgerð leiðarans. Landsstýrismaðurin kann somuleiðis taka avgerð um at broyta avgerð leiðarans til kærarans fyrimun, og landsstýrismaðurin kann eisini taka avgerð um at heita á leiðaran um at viðgera málið av nýggjum.
+Stk. 5. Kærur um próvtøl, próvtøkur og próvtøkuviðurskifti annars kunnu tó verða kærd samsvarandi reglunum í próvtøkukunngerðini.
+Stk. 6. Aðrar fyrisitingarligar avgerðir hjá leiðara útbúgvingarstovnsins, sum ikki eru fevndar av stk. 2 ella stk. 5, kunnu somuleiðis verða kærdar til landsstýrismannin. Kærufreistin er 4 vikur eftir, at kærarin hevur móttikið avgerðina.

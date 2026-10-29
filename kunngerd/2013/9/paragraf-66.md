@@ -1,0 +1,1 @@
+§ 66. [^2] Tað er leiðari útbúgvingarstovnsins, sum ger leiðreglur fyri, hvussu eftirmetingin skal fara fram í teimum einstøku lærugreinunum. Leiðreglurnar skulu leggjast fyri lærararáðið til viðgerðar.

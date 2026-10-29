@@ -1,0 +1,4 @@
+## Næmingar, ið fáast við úrvalsvirksemi
+§ 93. Ein 3 ára útbúgvingargongd kann verða løgd serliga til rættis sum ein 4 ára útbúg-vingargongd fyri næming, sum íðkar úrvalsítrótt, úrvalstónleik ella annað úrvalsvirksemi á høgum stigi. Ein fyritreyt er, at viðkomandi landsfelag, samband ella skipanir skrivliga viðmæla og vátta ætlanirnar.
+Stk. 2. Somuleiðis kann ein 2 ára útbúgvingargongd verða løgd serliga til rættis sum ein 3 ára útbúgvingargongd fyri næming á fyrireikingarbreytini, sum íðkar úrvalsítrótt, úrvalstónleik ella annað úrvalsvirksemi á høgum stigi. Ein fyritreyt er, at viðkomandi landsfelag/samband ella skipanir skrivliga viðmæla og vátta ætlanirnar.
+Stk. 3. Landsstýrismaðurin ger nærri ásetingar um longda útbúgvingargongd, og hvussu próvtøkur kunnu verða lagdar serliga til rættis sbrt. stk. 1 og 2.

@@ -1,0 +1,3 @@
+§ 30. Næmingur kann eftir umsókn nýta part av útbúgvingartíðini á útbúgvingarstovni uttanlands.
+Stk. 2. Um talan er um at vera skiftisnæmingur eitt skúlaár, skal hann, tá ið hann kemur aftur, halda fram í útbúgvingini har hann slepti, um avriksflutningur ikki er veittur sbr. §35.
+Stk. 3. Er talan um stutta skiftistíð, í mesta lagi 3 mánaðir, kann leiðari útbúgvingarstovnsins góðkenna, at undirvísingartíðin í skiftislandinum kemur í staðin fyri undirvísingartíðina heima. Skúlin skal gera avtalu um faklig, námsfrøðilig og praktisk viðurskifti við skúlan í skiftislandinum í hvørjum einstøkum føri.

@@ -1,0 +1,1 @@
+§ 63. Í sambandi við at skrivlig arbeiði verða eftirmett, skal næmingur javnan hava at vita, hvør fakliga støðan er, og hann skal somuleiðis hava eina nágreinliga lýsing av veikleikum og dygdum í hansara skrivligu avrikum.

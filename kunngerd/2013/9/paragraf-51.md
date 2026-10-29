@@ -1,0 +1,1 @@
+§ 51. Tá næmingur á fyrsta sinni fær undirvísing í einari lærugrein, ella hann á fyrsta sinni fær undirvísing á einum hægri lærugreinastigi, skal hann hava eina lestrarætlan útflýggjaða, ella vera við at gera eina lestrarætlan. Møguligar seinni dagføringar verða gjørdar í samstarvi við næmingarnar.
