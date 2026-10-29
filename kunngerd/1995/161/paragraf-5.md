@@ -1,0 +1,1 @@
+§ 5. Fiskurin skal verða handfarin og goymdur so vandaliga, at hann ikki verður skaddur. Loyvt er ikki at brúka spísk tól og amboð, sum kunnu skaða fiskin. Tó er brúk av goggi og haka loyvt til at fáa fiskin innanborða, og tá eigur bert at verða krøkt í høvdið.
