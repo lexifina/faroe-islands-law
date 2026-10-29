@@ -1,0 +1,1 @@
+§ 1. Persónar, sum hava bústað í Føroyum, men rinda til sosiala trygging í øðrum Norðanlandi vísandi til Nordisk Konvention om social sikring, og sum ikki kunnu draga gjaldið frá, vísandi til skattalógina, kunnu eftir umsókn verða undantiknir at rinda heilsutrygdargjald frá inntøkuárinum 2024.

@@ -1,0 +1,1 @@
+§ 4. Um ein persónur hevur givið Heilsutrygd skeivar upplýsingar ella tagt um umstøður, sum hava týdning fyri gjaldsundantøku sambært § 24, stk. 2. í løgtingslóg um almenna heilsutrygd, kann Heilsutrygd eftirfylgjandi krevja inn gjaldið, ið viðkomandi av órøttum ikki hevur goldið.
