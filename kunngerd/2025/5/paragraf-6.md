@@ -1,0 +1,2 @@
+## Fíggjarfyritøkur
+§ 6. Tryggingarfeløg skulu í staðin fyri umsetning nýta virðið á teknaðu brutto tryggingargjøldunum, sum fevna um allar móttiknar ella komandi upphæddir sambært tryggingaravtalum, ið eru teknaðar av hesum feløgum ella fyri teirra rokning, undir hesum latin endurtryggingargjøld eftir, at skattur ella skattalíknandi avgjøld eru drigin frá, ið verða kravd inn við støði í tryggingargjaldinum ella tryggingarupphæddini.

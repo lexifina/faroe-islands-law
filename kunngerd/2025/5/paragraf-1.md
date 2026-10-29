@@ -1,0 +1,5 @@
+## Umsetningur
+§ 1. Í hesi kunngerð er umsetningur at skilja sum nettoumsetningur í Føroyum í sambandi við vanliga raksturin, við frádrátti av meirvirðisavgjaldi og øðrum avgjøldum og skattum, ið hava beinleiðis tilknýti til søluna, samanber tó §§ 6 og 7.
+Stk. 2. Umsetningurin hjá eini luttakandi fyritøku sambært § 14, stk. 1, í løgtingslógini verður gjørdur upp sum umsetningurin í síðsta grannskoðaða roknsskapinum, samanber tó §§ 6 og 7.
+Stk. 3. Umsetningurin sambært § 14, stk. 1, í løgtingslógini verður gjørdur upp sum samantaldi umsetningurin hjá luttakandi fyritøkunum.
+Stk. 4. Um ein ella fleiri av luttakandi fyritøkunum, eftir at síðsta roknskaparár er lokið, hevur avhendað ein part av fyritøkuni, skal tann parturin av umsetninginum, ið hesin avhendaði parturin av fyritøkuni hevur skapt, dragast frá umsetninginum hjá tí luttakandi fyritøkuni. Umsetningur, ið er skaptur av ognum, ið luttakandi fyritøkan hevur fingið ræði á, eftir, at síðsta roknskaparár er lokið, skal leggjast afturat umsetninginum hjá luttakandi fyritøkuni.
