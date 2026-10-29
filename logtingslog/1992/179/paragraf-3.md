@@ -1,0 +1,1 @@
+§ 3. [^12] Brot móti hesi lóg ella kunngerð við heimild í hesi lóg verða sektað, heraftrat kann vøran, sum roynt hevur verið at selja í stríð við givnar reglur, inndragast. Annars verða reglurnar í 10. kap. í løgtingslóg nr. 121 frá 23. desember 1991 um toll at nýta.
