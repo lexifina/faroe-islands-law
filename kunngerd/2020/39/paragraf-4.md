@@ -1,0 +1,4 @@
+§ 4. Umsókn um samskatting skal vera skrivlig og skal latast TAKS í seinasta lagi 1. juli árið eftir, at fyrsta árið, sum samskattingin viðvíkur, endar. Áðrenn umsóknin verður viðgjørd, skulu sjálvuppgávur og roknskapir hjá teimum feløgum, sum skulu vera við í samskattingini verða latnir TAKS.
+Stk. 2. Í umsóknini skal verða tilskilað, hvørji feløg skulu verða umfatað av samskattingini. Skulu onnur feløg vera við í samskattingina eftir at fyrsta inntøkuárið er endað, skal skrivlig umsókn latast TAKS um hetta í seinasta lagi 1. juli árið eftir inntøkuárið, sum samskattingin viðvíkur, endar.
+Stk. 3. Um eitt felag fer úr samskattingini, skal móðurfelagið í samskattingini skrivliga boða TAKS frá hesum áðrenn freistin fyri rættstundis innlating av sjálvuppgávu, fyri inntøkuárið, sum serskattingin viðvíkur, gongur út.
+Stk. 4. Endurnýggjan av loyvi til samskatting aftaná, at feløg eru farin úr samskattingini, verður ikki loyvd.
