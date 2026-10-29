@@ -1,0 +1,1 @@
+§ 4. Vinnufelagslógarinnar § 104, stk. 2, um brævatkvøður verður ikki nýtt á fyrsta aðalfundinum, sum verður innkallaður eftir tann 1. januar 2012, uttan so, at aðalfundurin hevur avgjørt, at nevnda áseting skal verða nýtt longu á hesum fyrsta aðalfundinum.

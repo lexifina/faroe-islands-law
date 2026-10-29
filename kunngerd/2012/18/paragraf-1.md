@@ -1,0 +1,1 @@
+§ 1. Hóast vinnufelagslógarinnar § 2, stk. 1, kann eitt partafelag, sum áðrenn 1. januar 2012 er skrásett hjá Skráseting Føroya við einum felagsnavni, sum inniheldur aðra stytting enn P/F, framvegis nýta hesa stytting í navni felagsins til 1. januar 2016.

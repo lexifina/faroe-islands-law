@@ -1,0 +1,2 @@
+§ 5. Við innkalling til aðalfund, sbr. vinnufelagslógarinnar § 94, stk. 2, kann fyrsti aðalfundurin, sum verður hildin eftir 1. januar 2012, innkallast upp til 5 vikur áðrenn aðalfundin, hóast aðalfundurin ásetur eina styttri freist.
+Stk. 2. Hósat vinnufelagslógarinnar § 94, stk. 2, kann fyrsti aðalfundurin, sum verður hildin eftir 1. januar 2012 innnkallast við minni enn eini freist upp á 3 vikur, um hetta framgongur av viðtøkum felagsins.
