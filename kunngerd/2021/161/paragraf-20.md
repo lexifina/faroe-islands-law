@@ -1,0 +1,1 @@
+§ 20. Í málum, har serkunnleiki verður mettur neyðugur fyri viðgerðina, verður Føroya Kærustovnur settur við stjóranum og einum ella tveimum løgfrøðingum umframt einum ella tveimum viðkomandi serkønum.

@@ -1,0 +1,1 @@
+§ 37. Er ikki full semja um avgerðir hjá setta Føroya Kærustovni í einum máli, skulu tey, ið eru komin til aðra niðurstøðu í málinum, hava loyvi til at fáa sína støðu skrivaða í fundarbókina, tá ið biðið verður um tað.

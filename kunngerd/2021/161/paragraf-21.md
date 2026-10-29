@@ -1,0 +1,1 @@
+§ 21. Avgerðir um kærufreist, avgerðarheimild, uppafturtøku, partsstøðu og steðgandi virknað verða sum meginregla tiknar av Føroya Kærustovni, men tey serkønu kunnu verða biðin um at veita ráðgeving í tann mun, tað verður mett gagnligt ella neyðugt.

@@ -1,0 +1,3 @@
+## Innanhýsis val og samanseting av Føroya Kærustovni í einstøku málunum
+§ 23. Tá ið Føroya Kærustovnur verður settur, er stjórin fastur limur, umframt løgfrøðingurin, sum hevur fyrireikað málið. Stjórin kann lata annan royndan løgfrøðing á Føroya Kærustovni taka sæti í avgerðarbólkinum sína vegna. Ein triði løgfrøðingur verður valdur at taka sæti í Føroya Kærustovni.
+Stk. 2. Umframt løgfrøðingin, sum hevur fyrireikað málið, skal ein løgfrøðingur við royndum vera til staðar, tá ið Føroya Kærustovnur verður settur. Er løgfrøðingurin, sum hevur fyrireikað málið, royndur løgfrøðingur, er tað ikki neyðugt, at hinir løgfrøðingarnir hava royndir.

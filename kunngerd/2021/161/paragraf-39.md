@@ -1,0 +1,1 @@
+§ 39. Tá fundurin er lokin, skal fundarbókin skrivast undir av øllum luttakandi løgfrøðingunum og møguligum serkønum á fundinum. Eingin kann við at vísa sína serstøðu í einum máli sýta fyri at undirskriva fundarbókina.

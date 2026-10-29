@@ -1,0 +1,1 @@
+§ 34. Avgerðirnar verða tiknar við vanligum meiriluta. Tilmæli til avgerð verður roknað sum samtykt uttan atkvøðugreiðslu, tá ið stjórin ikki heldur tað vera neyðugt at atkvøða, og ongin løgfrøðingur ella serkønur krevur atkvøðugreiðslu.

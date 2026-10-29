@@ -1,0 +1,1 @@
+§ 15. Yvirlit yvir serkøn verður lagt á heimasíðuna hjá Føroya Kærustovni. Føroya Kærustovnur kann eisini tilnevna onnur serkøn ella leita sær serkøna hjálp frá onkrum, sum ikki stendur í yvirlitinum, t.d. um ógegni ger, at tey serkønu á yvirlitinum ikki kunnu vera við í ítøkuligu viðgerðini.

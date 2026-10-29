@@ -1,0 +1,1 @@
+§ 32. Avgerðin hjá setta Føroya Kærustovni kann vera at staðfesta, broyta, partvís broyta ella heimvísa avgerðina. Eisini kann verða gjørt av at útseta málið til nærri kanningar, um t.d. upplýsingar ella frágreiðingar, sum komu fram á fundinum, geva høvi til tess.
