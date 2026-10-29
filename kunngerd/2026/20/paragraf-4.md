@@ -1,0 +1,1 @@
+§ 4. Kommunan, har íløgan verður gjørd, skal vátta, at byggiverkætlanin er í samsvari við løgtingslóg um at byggja bygningar o.a. (Byggilógin), og reglur ásettar við heimild í løgtingslógini, og upplýsa hvussu nógvir leigubústaðir eru atkomiligir og kunnu nýtast av fólki í koyristóli.

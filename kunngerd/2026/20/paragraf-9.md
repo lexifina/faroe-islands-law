@@ -1,0 +1,1 @@
+§ 9. Útleigari hevur skyldu at boða TAKS frá broytingum, sum føra við sær javning av avgjaldi, sbrt. § 3 b, stk. 3 í løgtingslógini, so sum at leigubústaðir ikki longur verða nýttir til leigubústað, og at leigubústaðir ikki eru bygdir í samsvari við treytirnar og reglurnar fyri at fáa meirvirðisgjaldið endurgoldið.

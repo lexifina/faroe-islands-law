@@ -1,0 +1,1 @@
+§ 10. Tann, ið við vilja ella av grovum ósketni brýtur §§ 3, 4 og 9, verður revsaður við bót, uttan so at hann er skyldugur til strangari revsing sbrt. § 33, stk. 1 og 3 í løgtingslógini. Reglurnar í § 33, stk. 4 og § 34 í løgtingslógini eru eisini galdandi fyri brot á hesa kunngerð.

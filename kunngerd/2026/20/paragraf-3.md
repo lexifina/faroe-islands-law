@@ -1,0 +1,1 @@
+§ 3. Fíggjarætlanin og kostnaðarætlanin av at byggja ella umbyggja bygningar til leigubústaðir skal vera góðkend av statsautoriseraðum, skrásettum ella løggildum grannskoðara. Grannskoðarin skal í góðkenning sínari av fíggjarætlanini og kostnaðarætlanini staðfesta, hvussu stórur meirvirðisgjaldsparturin er, og at fígging er til alla byggiverkætlanina.
