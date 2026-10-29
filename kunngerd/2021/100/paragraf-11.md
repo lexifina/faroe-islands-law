@@ -1,0 +1,2 @@
+§ 11. Fyri at tryggja, at útbúgvingin er grundað á yrki og yrkisroyndir, verður kliniska undirvísingin løgd til rættis við samanhangi millum ástøðiligan og kliniskan kunnleika.
+Stk. 2. Fróðskaparsetur Føroya og kliniska útbúgvingarstaðið samstarva við tí fyri eyga, at samanhangur er millum ástøðiligu og klinisku undirvísingina og fyri at tryggja, at lesandi ognar sær kliniskar førleikar. Fróðskaparsetrið hevur ábyrgd av at byrja samstarvið, og báðir partar hava ábyrgdina av at halda tað við líka.

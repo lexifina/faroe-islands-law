@@ -1,0 +1,1 @@
+§ 3. Eftir lokið prógv hevur lesandi rætt til løggilding sum sjúkrarøktarfrøðingur sambært anordning om ikrafttræden for Færøerne af lov om autorisation af sundhedspersoner og om sundhedsfaglig virksomhed.
