@@ -1,0 +1,1 @@
+§ 5. Fyri inntøkuárið 2015 kunnu løgfrøðiligir persónar, ið við heimild í § 2 í kunngerð um talgildan roknskap hava valt ikki at lata inn í XBRL-sniði, síggja burtur frá krøvunum um skattaroknskap sambært hesi kunngerð.
