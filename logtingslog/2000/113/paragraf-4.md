@@ -1,0 +1,1 @@
+§ 4. Setir formansskapur Løgtingsins fólk at røkja starvið sum umboðsmaður fyribils, við heimild í løgtinslóg nr. 60 frá 10. mai 2000 um Løgtingsins umboðsmann § 1, stk. 2, fær viðkomandi samsýning og forvinnur sær eftirlønaraldur eftir hesi lóg frá tí degi, hann tekur við starvinum, til hann fer frá.

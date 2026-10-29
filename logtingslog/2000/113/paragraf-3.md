@@ -1,0 +1,1 @@
+§ 3. Tey rættindi, sum tingmaður hevur eftir løgtingslóg nr. 12 frá 18. februar 1999 um samsýning løgtingsmanna í sambandi við farloyvi vegna sjúku, barnsburð og ættleiðing, eru eisini galdandi fyri Løgtingsins umboðsmann.

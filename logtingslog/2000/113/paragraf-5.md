@@ -1,0 +1,1 @@
+§ 5. Formansskapur Løgtingsins tekur støðu til samsýningina, tá annar, við heimild í løgtingslóg nr. 60 frá 10. mai 2000 um Løgtingsins umboðsmann § 14, stk. 3, verður útnevndur at viðgera ávíst mál, ið umboðsmaður Løgtingsins er ógegnigur at viðgera.
