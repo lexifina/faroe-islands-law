@@ -1,0 +1,2 @@
+## Manning
+§ 5. Manningar á fiskiskipum undir føroyskum flaggi, sum fiska norðhavssild og makrel í 2014, og manningar á skipum undir føroyskum flaggi, sum taka ímóti norðhavssild og makreli í 2014, skulu lønast sambært føroyskum hýrusáttmálum. Í minsta lagi tríggir fjórðingar av manningini skulu vera føroyingar. Útlendingar, sum hava arbeiðs- og uppihaldsloyvi í Føroyum, verða javnsettir við føroyingar.
