@@ -1,0 +1,4 @@
+§ 26. [^8] [^10] Um veljari møtir til val og sigur seg ikki føran fyri einsamallan at greiða atkvøðu sum ásett, kann hann fáa hjálp til hetta frá tveimum limum í valnevndini, valstýrinum ella hjálparfólkum.
+Stk. 2. [^10] Um veljari ikki er førur fyri at koma sær inn í valhølið, kann hann krevja, at atkvøðugreiðslan fer fram beint uttan fyri valhølið, og skulu í hesum føri tveir persónar, sum eru limir í valnevndini, valstýrinum ella hjálparfólk vera hjástaddir, og um neyðugt veita honum hjálp við atkvøðugreiðsluni.
+Stk. 3. [^10] Veljarin kann krevja, at annar av persónunum, sum veitir hjálp við atkvøðugreiðsluni, sbrt. stk. 1 ella 2, verður skiftur út við ein persón, sum veljarin sjálvur vísir á.
+Stk. 4. [^10] Limir í valnevndini, valstýrinum, hjálparfólk og persónar, sum veljarin sjálvur vísir á, hava tagnarskyldu, tá ið teir veita hjálp sbrt. stk. 1-3.

@@ -1,0 +1,2 @@
+§ 37. Sjófólk og onnur, sum ikki halda seg verða heima valdagin, og veljarar, sum eru staddir uttanlanda, kunnu útfylla atkvøðuseðilin í fyrsta lagi 4 mánaðar áðrenn valdagin. Í øðrum førum skal atkvøðuseðilin vera útfyltur í fyrsta lagi 1 viku áðrenn valdagin.
+Stk. 2. Atkvøðugreiðsla við brævi kann í seinasta lagi fara fram dagin fyri valdagin, og atkvøðuseðilin skal vera komin fram til valstaðið, áðrenn atkvøðugreiðslan byrjar.

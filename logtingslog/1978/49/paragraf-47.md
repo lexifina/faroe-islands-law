@@ -1,0 +1,2 @@
+§ 47. Eingin limur í valnevndini ella nakar annar, ið hjástaddur er í valhølinum, har atkvøðuseðlar verða útflýggjaðir, hevur loyvi at geva veljarum ráð, ávísing ella tilelving um, hvønn teir skulu velja. Heldur ikki má nakar av teimum nakrantíð upplýsa, um ein veljari hevur verið á vali ella geva sína vitan víðari, um hann á valstaðnum fær kunnleika um, hvat valevni ella hvønn flokk ein veljari hevur valt.
+Stk. 2. [^10] Brot uppá tær í stk. 1. nevndu fyriskipanir verða revsaðar við sekt.

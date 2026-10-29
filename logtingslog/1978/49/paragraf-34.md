@@ -1,0 +1,1 @@
+§ 34. [^1] Tá ið løgtingsmaður heldur uppat sum limur í tinginum og annars eftir reglunum í tingsins tingskipan kann ikki møta á fundum, kemur sum varamaður ikki valt valevni, sum hevur mest av persónligum atkvøðum á listanum hjá viðkomandi flokki.

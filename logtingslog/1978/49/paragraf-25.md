@@ -1,0 +1,1 @@
+§ 25. Veljarar, ið vilja taka lut í valinum valdagin, mugu møta persónliga. Tó kunnu sjófólk, sjúk og onnur, ið hava ikki møguleika at greiða atkvøðu á valstaðnum sjálvan valdagin, greiða atkvøðu við innsending av brævatkvøðu, smbr. §§ 35-43.

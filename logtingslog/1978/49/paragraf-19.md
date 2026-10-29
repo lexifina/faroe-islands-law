@@ -1,0 +1,5 @@
+## VII. Atkvøðuseðlar
+§ 19. [^3] Løgtingsvalnevndin útvegar til valið atkvøðuseðlar og sendir neyðugt tal av atkvøðuseðlum til hvørt valstað. Atkvøðuseðlarnir skulu verða soleiðis gjørdir, at teir kunnu faldast soleiðis, at óviðkomandi ikki sær, hvussu atkvøtt er.
+Stk. 2. Atkvøðuseðilin skal í skilligum prenti innihalda upplýsing um valdag og valár, bókstav- og floksfrámerkir (vallisti A, vallisti B o.s.fr.) í so nógvum reglum sum talið á valevnislistum og harumframt nøvnini á øllum valevnunum í somu raðfylgju og við somu nummarmerking, sum tey eru lýst í valevnislistunum. Aftaná flokkslistarnar verða settir møguligir uttanflokkalistar við heitinum “uttanflokkalisti” (1, 2, 3 o.s.fr.).
+Stk. 3. Valevnislistarnir skulu vera skildir hvør frá øðrum við prentaðari grovari striku, meðan nøvnini á valevnunum verða skild hvørt frá øðrum við tunnari prentaðari striku.
+Stk. 4. Onki annað orð, bókstavur, tal ella frámerki má vera á nøkrum atkvøðuseðli, hvørki við prentaðari skrift ella á annan hátt.

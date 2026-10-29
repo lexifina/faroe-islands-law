@@ -1,0 +1,1 @@
+§ 7. [^2] [^3] Kommunustýrið skal uttan drál viðgera innkomnar kærur sambært § 6. Vísir tað seg, at mangul ella feilir eru í valkorti ella vallista, skal mangul ella feilur rættast við at útskriva nýtt valkort, og rætting gerast í vallista. Tílíkir feilir kunnu rættast til og við valdagin.

@@ -1,0 +1,2 @@
+§ 16. [^1] Løgmaður gevur hvørjum flokki eina bókstavamerking, sum nýtt verður til valevnislistar floksins. Hvør flokkur eigur um gjørligt at fáa sama bókstav, sum hann áður hevur nýtt til onnur val.
+Stk. 2. Skjótast gjørligt aftaná tær í § 15 nevndu freistir boðar løgmaður frá, hvørjir flokkar hava rætt til at taka lut í valinum og hvørja bókstavamerking, hvør flokkur hevur fingið til valevnislistar sínar.

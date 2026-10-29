@@ -1,0 +1,1 @@
+§ 5. [^2] Vallistarnir verða gjørdir, tá ið val er útskrivað, við fólkayvirlitinum sum grundarlag. Á vallistan verða skrivaðir teir persónar, sum valdagin lúka aldurstreytina og hinar treytirnar fyri valrætti.
