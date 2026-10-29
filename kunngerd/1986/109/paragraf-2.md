@@ -1,0 +1,1 @@
+§ 2. Verða treytirnar í § 1 ikki gjølliga hildnar ella broytingar gjørdar í tilgerðini aftan á innflutningin, kemur akfarið undir skrásetingargjald sum motorsúkkla, smb. lóg nr. 102 frá 1. oktober 1986, § 10.
