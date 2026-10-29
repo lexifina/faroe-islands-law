@@ -1,0 +1,4 @@
+## Roknskaparhald o.a.
+§ 3. Tey í § 2, stk. 1 nevndu feløg og stovnanir v.m., sum hava fingið játtað fult ella partvíst skattafrælsi, skulu á hvørjum ári lata Toll- og Skattstovu Føroya roknskap saman við sjálvuppgávuni, sum vísir, hvussu vinningurin er nýttur í roknskaparárinum. Roknskapurin skal somuleiðis vísa, um útgjaldingar til persónar er løn til starvsfólk, samsýning til nevndarlimir ella løn fyri annað arbeiði.
+Stk. 2. Fyri at avsetingar ella innskot á konto til skattafræls endamál í roknskaparárinum skulu verða góðkendar, verður kravt, at upphæddin, ið er avsett, er skild burtur úr øðrum ognum hjá tí, sum hevur fingið játtað skattafrælsi og sett á serstaka peningastovnskonto.
+Stk. 3. Tey, sum hava fingið játtað skattafrælsi, skulu á hvørjum ári saman við roknskapinum og sjálvuppgávuni vátta, at avsetingar ikki hoyra til tað vinnuliga virksemið, ella hoyra til annað enn til alment góðgerin ella onnur alment gagnlig endamál.
