@@ -1,0 +1,4 @@
+§ 11. [^2] Hjálparviðbót kann tillutast einum fyritíðarpensionisti ella persóni, ið hevur fingið tillutaða framskundaða pensjón, um viðkomandi støðugt má hava persónliga hjálp frá øðrum, ella um avlamnið stavar frá blindi ella nógv niðursettari sjón.
+Stk. 2. Røktarviðbót kann tillutast í staðin fyri hjálparviðbót, um avlamnið hevur við sær tørv á varandi røkt ella støðugari umsjón, ið ger tað neyðugt, at annar persónur er støðugt hjáverandi.
+Stk. 3. [^11] Almannaverkið kann taka avgerð um, at hjálparviðbót og røktarviðbót verða ikki útgoldnar, um pensionisturin í sama tíðarskeiði fær stuðul sambært lóg um samsýning fyri at ansa eldri og óhjálpnum heima. Útgjaldingin verður tikin uppaftur, tá ansingarstuðulin heldur uppat.
+Stk. 4. [^1] Persónar, sum fáa avlamisveiting, hava eisini rætt til hjálpar- og røktarviðbót eftir reglunum í stk. 1-3.

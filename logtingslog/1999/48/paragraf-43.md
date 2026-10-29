@@ -1,0 +1,1 @@
+§ 43. Uttan mun til ásetingarnar í §§ 13-15 hevur persónur við donskum heimarætti, ið er føddur í 1938 ella fyrr, rætt til fulla fólkapensión, um viðkomandi seinasta árið, áðrenn umsókn um pensión er latin inn, hevur havt fastan bústað í danska ríkinum, ella kann javnsetast við ein slíkan, sbr. § 16.

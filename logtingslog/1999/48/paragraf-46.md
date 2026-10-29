@@ -1,0 +1,1 @@
+§ 46. [^9] Persónar, ið áðrenn 1. januar 2009 hava fingið tillutað miðal ella lægstu fyritíðarpensjón aftan á fylta 60. árið, kunnu søkja um broyting av pensjón eftir nýggju reglunum. Broyting í pensjónsstigi verður galdandi frá 1. í mánaðinum aftan á dagfestingina fyri móttøku av umsóknini.

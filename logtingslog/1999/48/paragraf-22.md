@@ -1,0 +1,4 @@
+§ 22. [^7] [^11] [^10] Persónur, sum fær veiting eftir hesi løgtingslóg, skal boða Almannaverkinum frá einihvørji broyting í viðurskiftum, sum ætlast at hava við sær, at veitingin broytist, íroknað upplýsingar um broytingar í m.a. hjúnastøðu, uppihaldsstøðu, flyting ella andláti.
+Stk. 2. [^19] [^10] Persónur, sum hevur B-inntøku, hevur skyldu at veita Almannaverkinum neyðugar upplýsingar um inntøku frá viðkomandi skattamyndugleika soleiðis, at Almannaverkið kann áseta pensjónina samsvarandi inntøkuni.
+Stk. 3. [^11] [^19] [^10] Í teimum førum inntøkuupplýsingar hjá persóni við B-inntøku ikki fyriliggja áðrenn vanligu tíðarfreistirnar hjá TAKS, kann Almannaverkið áseta pensjónina eftir væntaðari inntøku. Verða neyðugar upplýsingar ikki veittar, kann Almannaverkið taka avgerð um ikki at áseta pensjón.
+Stk. 4. [^10] Flytur ein pensjónistur, skal hann geva Almannaverkinum fráboðan um nýggja bústaðin.

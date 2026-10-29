@@ -1,0 +1,1 @@
+§ 15. Við útrokning av pensión eftir § 13, stk. 2 og § 14, stk. 2, verður fulla pensiónin fyrst útroknað eftir reglunum í §§ 18-20. Síðani verður útroknaða pensiónsupphæddin lækkað við tí útroknaða talinum av fjørutiundapartum. Viðbøtur sambært § 10 og § 12 verða tó ikki lækkaðar.

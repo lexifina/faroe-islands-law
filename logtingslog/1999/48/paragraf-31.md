@@ -1,0 +1,1 @@
+§ 31. [^7] [^11] Almannaverkið kann krevja skattamyndugleikar, Landsfólkayvirlitið, kommunalar myndugleikar, arbeiðsgevarar og onnur viðkomandi, herímillum sjúkrahús, læknar o.o., ið hava kunnleika til viðurskiftini, eftir upplýsingum av týdningi fyri viðgerð av pensiónsmálum.

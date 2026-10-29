@@ -1,0 +1,6 @@
+§ 3 b. [^6] Um ein borgari, ið hevur fingið tillutað fyritíðarpensjón eftir hesi løgtingslóg, flytur til Danmarkar ella Grønlands, kann viðkomandi varðveita sína fyritíðarpensjón í upp til 12 mánaðir, hóast búsitandi í Danmark ella Grønlandi.
+Stk. 2. Rætturin til fyritíðarpensjón sambært stk. 1 fevnir um fyritíðarpensjón og tær veitingar, ið viðkomandi í tí sambandi hevur rætt til sambært hesi løgtingslóg.
+Stk. 3. 12 mánaða tíðarskeiðið sambært stk. 1 verður roknað at byrja frá 1. í mánaðinum eftir, at borgarin er fluttur.
+Stk. 4. Tillutaða fyritíðarpensjónin skal ikki endurmetast ella broytast í tíðarskeiðinum nevnt í stk. 1.
+Stk. 5. Flytur ein borgari, ið hevur fingið tillutað fyritíðarpensjón sambært hesi løgtingslóg, til Danmarkar ella Grønlands, skal viðkomandi søkja um fyritíðarpensjón ella aðra almannaveiting til uppihalds hjá avvarðandi myndugleikum í landinum, sum flutt verður til.
+Stk. 6. Um ein fluttur fyritíðarpensjónistur fær tillutaða fyritíðarpensjón ella aðra almannaveiting til uppihalds í Danmark ella Grønlandi innan teir fyrstu 12 mánaðirnar, fellur føroyska fyritíðarpensjónin burtur. Føroyska fyritíðarpensjónin fellur burtur, tá fyritíðarpensjón ella onnur almannaveiting til uppihalds í Danmark ella í Grønlandi tekur við.

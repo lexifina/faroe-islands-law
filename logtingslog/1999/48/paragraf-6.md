@@ -1,0 +1,1 @@
+§ 6. [^9] [^2] Hægsta fyritíðarpensión kann tillutast persónum, sum hava fylt 18 ár, men sum ikki hava rokkið pensjónsaldur, tá umsóknin verður latin inn, ið, orsakað av likamligum ella sálarligum avlamni, mugu roknast sum varandi óarbeiðsførir í eini og hvørjari vinnu, ella sum einans hava smávegis eftir av arbeiðsføri.

@@ -1,0 +1,2 @@
+§ 26. [^1] [^2] Til pensionistar, sum skifta frá fyritíðarpensión, framskundaðari pensjón ella avlamisveiting til fólkapensión, og sum við umskiftið fingu hjálparviðbót ella røktarviðbót, verða hesar viðbøtur framhaldandi veittar.
+Stk. 2. [^1] [^2] Persónar, sum fáa fyritíðarpensión, framskundaða pensjón ella avlamisveiting skifta uttan umsókn til fólkapensión frá 1. í mánaðinum aftaná, at pensjónsaldur er rokkin.

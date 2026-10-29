@@ -1,0 +1,1 @@
+§ 5. [^7] [^8] Pensjón, undantikið pensjón sambært § 7, nr. 2, kann ikki tillutast persónum undir 60 ár, um møguleikar eru fyri at seta í verk fyriskipanir, ið meira enn fyribils betra arbeiðsevnini, ella um møguleiki er fyri at útvega eitt eftir viðurskiftunum hjá viðkomandi hóskandi arbeiði.

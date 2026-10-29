@@ -1,0 +1,5 @@
+§ 9 d. Rætturin til bíðipart er treytaður av, at viðkomandi hevur havt inntøku av persónligum arbeiði í í minsta lagi 1000 tímar í einum álmanakkaári.
+Stk. 2. Almannaverkið skal aftaná hvørt árið taka avgerð um, hvørt treytin um arbeiði sbrt. stk. 1 er lokin.
+Stk. 3. Byrjar ella endar útsetanin av fólkapensjónini mitt í einum ári, verður kravið um arbeiði gjørt upp lutfalsliga sambært talinum á heilum mánaðum, ið fólkapensjónin er útsett í sama ári.
+Stk. 4. Er kravið um arbeiði sbrt. stk. 1 og 3 ikki lokið í uppgerðartíðini, verður sæð burtur frá hesum tíðarskeiði, tá bíðiparturin verður gjørdur upp. Í staðin verður útgoldin ein einnýtisupphædd, ið svarar til fólkapensjónina, ið viðkomandi hevur rætt til í tíðarskeiðinum, sbr. tó § 9 e, stk. 3. Upphæddin verður roknað út við støði í inntøkuni hjá viðkomandi í tíðarskeiðinum, talan er um.
+Stk. 5. [^4] Landsstýrisfólkið ásetur nærri reglur um uppgerð um vavið av arbeiðinum, herundir um persónligt arbeiði í sjálvstøðugari fyritøku og um eftirlit í hesum sambandi, eins og um útrokning av einnýtisupphæddum.

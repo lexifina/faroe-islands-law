@@ -1,0 +1,3 @@
+§ 34. [^10] Pensjón, tillutað áðrenn 1. januar 2026, verður útgoldin frammanundan eina ferð um mánaðin. Pensjón, tillutað aftan á 31. desember 2025, verður útgoldin afturúr eina ferð um mánaðin.
+Stk. 2. [^11] [^10] Persónur, ið hevur fingið tillutað fyritíðarpensjón áðrenn 1. januar 2026, og sum flytur til fólkapensjón aftan á 31. desember 2025, fær fólkapensjón útgoldna afturút. Rætturin til fyritíðarpensjón hjá viðkomandi dettur burtur við endan av tí mánaði, sum kemur aftan á mánaðin, persónurin røkkur fólkapensjónsaldri.
+Stk. 3. [^4] [^10] Persónur, ið hevur útsett útgjaldið av fólkapensjón áðrenn 1. januar 2026, og sum steðgar útsetanini aftan á 31. desember 2025, fær fólkapensjón útgoldna afturúr.

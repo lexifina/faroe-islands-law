@@ -1,0 +1,2 @@
+§ 8 a. [^1] [^9] [^2] Avlamisveiting kann tillutast persónum frá 18 ár upp til fólkapensjónsaldur, sum vegna inntøku ikki kunnu fáa pensjón eftir dømingini sambært § 9, tá avlamni læknaliga mett er so mikið umfatandi, at teir vildu havt rætt til hægstu ella miðal fyritíðarpensjón sambært §§ 6 og 7, nr. 1, um teir ikki høvdu arbeiði.
+Stk. 2. Avlamisveiting kann eisini tillutast persónum, sum vegna álvarsamar hoyriskaðar hava stórar samskiftistrupulleikar.

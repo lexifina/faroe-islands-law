@@ -1,0 +1,5 @@
+## Flyting av fyritíðarpensjón millum Føroyar, Danmark og Grønland [^6]
+§ 3 a. [^6] Um ein borgari, ið hevur fingið tillutað fyritíðarpensjón eftir hesi løgtingslóg, flytir til Danmarkar ella Grønlands, hevur føroyski myndugleikin skyldu til í seinasta lagi 1 mánað aftan á áheitan at veita nøktandi upplýsingar til viðgerð av umsókn um fyritíðarpensjón í landinum, sum viðkomandi flytur til.
+Stk. 2. Føroyski myndugleikin rindar kostnaðin av umseting av neyðugum skjølum.
+Stk. 3. Tá føroyski myndugleikin gerst kunnugur við, at fyritíðarpensjónistur flytur til Danmarkar ella til Grønlands, skal myndugleikin seta seg í samband við viðkomandi myndugleikar í Danmark ella í Grønlandi við tí fyri eyga at byrja eitt mál um fyritíðarpensjón í landinum, sum flutt verður til.
+Stk. 4. Flytur ein borgari, ið hevur fingið tillutað fyritíðarpensjón í Danmark ella í Grønlandi, til Føroya, heita føroysku myndugleikarnir á viðkomandi myndugleikar í Danmark ella Grønlandi um at fáa til vega nøktandi upplýsingar.

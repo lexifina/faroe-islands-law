@@ -1,0 +1,3 @@
+§ 36. Krøv um veitingar eftir hesi lóg kunnu ikki gerast til mál fyri úttøku ella aðrari rættarsókn. Avtalur um tílík krøv eru ógildugar.
+Stk. 2. [^19] Krøv um ov nógv útgoldna pensjón og krøv um ov nógv útgoldna viðbót eftir løgtingslóg um viðbót til ávísar pensjónistar kunnu mótroknast í eftirgjøldum av pensjón og pensjónsútgjaldingum og í viðbót eftir løgtingslóg um viðbót til ávísar pensjónistar.
+Stk. 3. Krøv um ov nógv útgoldna pensión, sum stava frá ov stórum útgjaldi til ein pensionist í tíðini frá tillutingardag til útgjaldingardag fyri pensión hjá hjúnafelaga hansara, kunnu mótroknast í eftirgjaldinum hjá hjúnafelagnum.

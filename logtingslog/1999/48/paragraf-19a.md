@@ -1,0 +1,2 @@
+§ 19 a. [^18] Hjá persóni, sum móttekur fyritíðarpensjón, og samstundis móttekur lestrarstuðul sambært lógini um lestrarstuðul § 6, stk. 2, nr. 1, nr. 3, nr. 6, nr. 7 og nr. 9, verður lestrarstuðulin drigin frá grundupphæddini.
+Stk. 2. Er lestrarstuðulin hægri enn grundupphæddin, verður upphæddin, sum er hægri enn grundupphæddin drigin frá í avlamisviðbótini. Fyri lægstu fyritíðarpensjonistar verður drigið frá í eyka viðbótini.
