@@ -1,0 +1,1 @@
+§ 24. Eigarin av alibrúki í fyribils niðurberjingarsonu, niðurberjingarsonu og eftirlitssonu skal hvørja viku senda inn eina framleiðslufrágreiðing til Heilsufrøðiligu starvsstovuna. Hetta skal verða gjørt á einum elektróniskum rokniarki, sbr. fylgiskjal 2.

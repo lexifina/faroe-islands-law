@@ -1,0 +1,2 @@
+§ 22. Heilsufrøðiliga starvsstovan kann lata privatum djóralæknum upp í hendi at hava veterinert eftirlit við alibrúkum og virkjum, sum hava við alifisk at gera, í fyribils niðurberjingasonu, niðurberjingarsonu og eftirlitssonunu. Heilsufrøðiliga starvsstovan hevur ábyrgdina av hesum.
+Stk. 2. Uttan mun til ásetingina í stk. 1 skal Heilsufrøðiliga starvstovan altíð gera fyrsta eftirlitið á alibrúki í fyribils niðurberjingasonu, niðurberjingarsonu og eftirlitssonu, sbr. § 19, stk. 2.

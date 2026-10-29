@@ -1,0 +1,1 @@
+§ 21. Virki, sum hava við alifisk í fyribils niðurberjingarsonu, niðurberjingarsonu og eftirlitssonu at gera, skulu verða sett undir veterinert eftirlit. Eftir at mett er um vandan, skal verða gjørt av, hvussu víðfevnt veterinera eftirlitið skal vera.

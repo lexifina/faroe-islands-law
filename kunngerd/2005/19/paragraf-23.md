@@ -1,0 +1,1 @@
+§ 23. Heilsufrøðiliga starvsstovan kann geva boð um, at neyðug smittuavmarkandi tiltøk sbr. § 9 í djórasjúkulógini skulu setast í verk á alibrúkum og virkjum, sum hava við alifisk at gera, í fyribils niðurberjingarsonu, niðurberjingarsonu og eftirlitssonu.

@@ -1,0 +1,3 @@
+§ 16. Niðurberjingarsona skal ikki verða avtikið fyrrenn øll alibrúk í niðurberjingarsonuni hava ligið still (verið brakkløgd) sbr. § 31.
+Stk. 2. Er talan um alibrúk á landi, har ILA ikki er staðfest, og sum ikki pumpa sjógv inn, ella sum reinsa og sóttreinsa sjógvin, ið verður tikin inn ella latin út eftir galdandi reglum um sjúkufyribyrgjandi rakstur av lívfiskastøðum, smoltstøðum og alistøðium, kann niðurberjingarsonan avtakast, áðrenn niðurberjingarsonan fyri alibrúk á sjónum verður avtikin, um ein váðameting vísir, at vandi ikki er fyri, at smittað verður aftur við ILA, ella at ILA virus verður spreitt.
+Stk. 3. Tá niðurberjingarsona verður avtikið, skal hon gerast um til eftirlitssonu.

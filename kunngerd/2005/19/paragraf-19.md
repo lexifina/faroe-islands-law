@@ -1,0 +1,6 @@
+## Veterinert eftirlit
+§ 19. Alibrúk í fyribils niðurberjingarsonu, niðurberjingarsonu og eftirlitssonu skulu verða undir veterinerum eftirliti av Heilsufrøðiligu starvsstovuni:
+1) øll alibrúk í fyribils niðurberjingarsonu skulu sýnast skjótast gjørligt, tó í seinasta lagi 1 viku eftir, at sonan er ásett. Eftir tað skal regluligt sýni vera 1 ferð um mánaðin í minsta lagi í 6 mánaðir, ella til sonan er avtikin,
+2) øll alibrúk í niðurberjingarsonu skulu sýnast skjótast gjørligt, tó í seinasta lagi 1 viku eftir, at sonan er ásett. Eftir tað skal regluligt sýni vera í minsta lagi 12 ferðir árliga, til sonan verður gjørd til eftirlitssonu,
+3) øll alibrúk í eftirlitssonu skulu sýnast skjótast gjørligt, tó í seinasta lagi 2 vikur eftir, at sonan er ásett. Eftir tað skal regluligt sýni vera í minsta lagi 6 ferðir árliga, til sonan er avtikin.
+Stk. 2. Tá fyrsta eftirlitið verður gjørt á einum alibrúki eftir at fyribils niðurberjingarsona, niðurberjingarsona ella eftirlitssona er ásett, skal Heilsufrøðiliga starvsstovan skráseta, hvat slag av fiski er á viðkomandi brúki, og hvussu nógvan fisk, talan er um, o.a. sbr. fylgiskjal 2. Eisini skal ein kanning verða gjørd av møguligum smittuvegum, t.d. nýtslu av brunnbátum, fóðurbátum ella øðrum smittandi sambandi við onnur alibrúk.

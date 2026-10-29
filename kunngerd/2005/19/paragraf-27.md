@@ -1,0 +1,1 @@
+§ 27. Uppskot til tíðarætlan fyri alibrúk/rakstrareindir í niðurberjingarsonu, sbr. §§ 25-26, skal verða sent Heilsufrøðiligu starvsstovuni í seinasta lagi 1 viku eftir, at niðurberjingarsonan og eftirlitssonan eru ásettar.
