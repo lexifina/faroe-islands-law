@@ -1,0 +1,2 @@
+§ 3. Samlaða siglingartíðin í samband við útbúgving sum skipari ella skipsførari skal í minsta lagi vera 12 mánaðir við skipi á 500 bruttotons ella størri, harav skulu í minsta lagi 6 mánaðir verða uttan fyri strandasigling.
+Stk. 2. Í minsta lagi 6 mánaðir av samlaðu siglingartíðini sbrt. stk. 1 skulu vera umborð á handilsskipi. Tá ið skúlin leggur starvsvenjingina til rættis, eigur dentur at vera lagdur á fjølbroytni viðvíkjandi teimum skipasløgum, sum næmingarnir skulu umborð á.
