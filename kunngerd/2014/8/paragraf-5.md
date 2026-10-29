@@ -1,0 +1,1 @@
+§ 5. Kirkjuráðsformaðurin kannar eftir, beinanvegin, tá hann fær atkvøðutilfarið, um talið á atkvøðuseðlunum og tilhoyrandi brævbjálvum er í samsvari við tað, sum valstýrið hevur boðað frá, og at tað er nóg mikið. Vantar tilfar, heitir formaðurin beinanvegin á valstýrið um at fáa tað, ið vantar í.

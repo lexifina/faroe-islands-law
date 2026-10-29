@@ -1,0 +1,5 @@
+## Valevnislistar og valtilfar
+§ 3. Valevnislistarnir skulu vera valstýrinum í hendi í seinasta lagi kl. 19.00, 4 vikur fyri valdagin. Beint sum freistin er farin, kannar valstýrið, um valevnini eru valbar, og at stillararnir lúka treytirnar í lógini.
+Stk. 2. Nøvnini á valevnunum skulu standa í stavrað á valevnislistum, umframt bústaður teirra. Valevni samtykkja skrivliga í at lata seg stilla upp. Valevni og stillarar kunnu eisini skriva undir á avrit av valevnislistanum ella vátta luttøku sína við brævi, telefaksi ella telduposti o.tíl.
+Stk. 3. Í seinasta lagi dagin eftir at freistin í stk. 1 er farin, sendir valstýrið stillarunum váttan um, at listin er í lagi og latin inn rættstundis. Eru brek á valevnislistanum, fáa stillararnir freist at rætta tey í seinasta lagi kl. 10.00 tríggjar dagar seinni.
+Stk. 4. Fyrst innlatni valevnislistin til próstadømisráð fær heitið 1, hin næsti heitið 2 o.s.fr. Fyrst innlatni valevnislistin til Stiftsstjórnina fær heitið I, hin næsti heitið II o.s.fr.
