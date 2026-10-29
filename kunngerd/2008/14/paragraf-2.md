@@ -1,0 +1,1 @@
+§ 2. Innflutningur av djóraúrdráttum til egna nýtslu skal fara fram eftir reglunum í Kommissionens forordning (EF) nr. 745/2004 af 16. april 2004 om foranstaltninger vedrørende import af animalske produkter til eget forbrug. Fyriskipanin er tikin við sum skjal I til hesa kunngerð. Smb. eisini skjølini II, III og IV.
