@@ -1,0 +1,2 @@
+§ 7. Eru stýrið fyri Húsalánsgrunnin og landsstýrisfólkið samd um tað, kann Húsalánsgrunnurin lata ræðið sambært § 1, stk. 1, aftur til landsstýrið. Landskassin tekur tá við teimum skyldum, ið knýta seg at bygninginum, undir hesum møguligari skuld við veð í bygninginum, samanber § 2, stk. 5.
+Stk. 2. Við afturhandan hevur Húsalánsgrunnurin rætt til endurgjald úr landskassanum svarandi til bókað virði av íløgum, sum Húsalánsgrunnurin hevur gjørt í bygningin.

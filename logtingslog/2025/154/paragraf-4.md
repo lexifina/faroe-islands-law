@@ -1,0 +1,2 @@
+§ 4. Húsalánsgrunnurin rekur, umsitur og heldur viðlíka bygning og kringliggjandi øki fevnt av § 1, og ber kostnaðin av hesum. Útreiðslur, sum standast av nýtslurættinum og atkomurættinum hjá Heilsumálaráðnum sambært § 1, stk. 2, ber Heilsumálaráðið.
+Stk. 2. Húsalánsgrunnurin umbyggir og umvælir bygningin í tann mun, tað er neyðugt fyri endamálið sambært § 3, stk. 1, og ber allar útreiðslur í hesum sambandi.
