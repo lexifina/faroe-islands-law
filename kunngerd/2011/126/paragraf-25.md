@@ -1,0 +1,1 @@
+§ 25. Átekningar kunnu bara verða tiknar við á fíggjarlóg ella eykajáttan, og hava bara gildi í sama fíggjarárið, sbrt. § 12, stk. 2 í lógini. Er ynski um, at átekningin eisini skal hava gildi aftaná fíggjarárið, má hon verða endurtikin á komandi fíggjarlóg.

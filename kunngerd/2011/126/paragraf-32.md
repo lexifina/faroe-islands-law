@@ -1,0 +1,1 @@
+§ 32. Um tað verður mett at hava stóran týdning, at fáa broytt fyritreytirnar, ið lýstar eru í viðmerkingunum til eina játtan, kann landsstýrismaðurin í fíggjarmálum loyva hesum, men fyrst skal hann við einum ráðførsluskjali ráðføra seg við Fíggjarnevnd Løgtingsins.

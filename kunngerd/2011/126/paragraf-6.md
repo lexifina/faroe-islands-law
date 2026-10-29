@@ -1,0 +1,1 @@
+§ 6. Játtanir verða veittar á høvuðskontum sum bruttojáttanir við serstakari játtan til at halda útreiðslur og hava inntøkur (bruttomeginreglan). Farið kann ikki verða útum útreiðslujáttan við at vísa til meirinntøku í mun til inntøkujáttan, sbrt. § 6 í lógini.

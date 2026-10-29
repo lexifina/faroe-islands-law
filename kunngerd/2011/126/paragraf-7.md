@@ -1,0 +1,3 @@
+§ 7. Løgujáttan, lógarbundin játtan og stuðulsjáttan eru bruttojáttanir.
+Stk. 2. Rakstrarjáttan er nettojáttan. Er inntøkan hægri enn ætlað, kunnu verða hildnar fleiri útreiðslur, bert ikki verður farið út um nettoútreiðslujáttanina. Er inntøkan minni enn ætlað, hevur hetta við sær, at útreiðslurnar skulu skerjast samsvarandi, sbrt. § 16, stk. 1 í lógini.
+Stk. 3. Hóast ásetingarnar í stk. 2, verða inntøkur og útreiðslur settar upp fyri seg í viðmerkingunum (meginreglan um at skráseta brutto), um ikki landsstýrismaðurin í fíggjarmálum gevur loyvi til at víkja frá meginregluni, sbrt. § 16, stk. 2. í lógini.

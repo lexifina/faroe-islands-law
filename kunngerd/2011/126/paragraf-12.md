@@ -1,0 +1,1 @@
+§ 12. Fyri hvørja høvuðskontu á greinunum hjá løgtingi, løgmanni og landsstýrisfólkum skal ásetast eitt av hesum játtanarsløgum: rakstrarjáttan, løgujáttan, lógarbundin játtan ella stuðulsjáttan, sbrt. kapittul 4 í lógini.

@@ -1,0 +1,1 @@
+§ 10. Fíggjarlógaruppskotið verður býtt á greinar, ið vísa ábyrgdarbýtið millum løgmann og einstøku landsstýrisfólkini. Ein grein er til Løgtingið, ein grein er til inntøkur og ein grein er til gjaldføri og skyldur, sbrt. § 10, stk. 2 í lógini. Eisini eru greinar til serinntøkur og –útreiðslur.

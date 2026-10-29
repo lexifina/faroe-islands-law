@@ -1,0 +1,1 @@
+§ 11. Lógarteksturin fyri hvørja grein byrjar við einum yvirliti yvir umbidnu játtanina (A). Síðan verða játtanarupphæddirnar, ið bidnar verða um, settar upp á høvuðskontustigi, og fyri hvørja høvuðskontu verður játtanarslag ásett (B). Seinast verða átekningar vístar (C).

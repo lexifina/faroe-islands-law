@@ -1,0 +1,2 @@
+§ 17. Viðmerkingarnar til stuðulsjáttanir skulu, umframt tey viðurskifti, ið nevnd eru í §13, lýsa móttakaraskara, útrokningarhátt, samantalda studningsupphædd og útgjaldingartíð, sbrt. § 24, stk. 4 í lógini. Eisini skal verða greitt frá tilsøgnum um útgjalding í seinni fíggjarárum.
+Stk. 2. Fyri stuðulsjáttanir kann í ávísum førum verða nóg mikið við heimild í sjálvari játtanini. Í tílíkum førum skal verða sagt frá hesum í viðmerkingunum til játtanina.

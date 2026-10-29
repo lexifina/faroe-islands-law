@@ -1,0 +1,1 @@
+§ 27. Við bráðfeingis játtanarlóg verður landsstýrinum heimilað, til fíggjarlóg er samtykt, at uppkrevja beinleiðis og óbeinleiðis skattir eftir galdandi lógum. Landsstýrinum verður heimilað í sama tíðarskeiði at rinda neyðugar útreiðslur, soleiðis at landshúsarhaldið ótarnað kann fara fram, og átiknar skyldur verða hildnar.

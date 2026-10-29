@@ -1,0 +1,1 @@
+§ 5. Við á fíggjarlógina verða tiknir stovnar og grunnar o.t., hvørs útreiðsla ella roknskaparligu hall verða goldin við studningi frá landinum ella við gjøldum ella aðrari inntøku sambært lóg, ella sum eru ella partvíst eru stovnaðir við kapitalinnskoti frá landinum uttan so, at reglur eru í aðrari lóg, sum víkja frá hesum, sbrt. § 5 í lógini.

@@ -1,0 +1,3 @@
+§ 14. Undir rakstrarjáttan skal loyvi at reka landsfyritøku, inntøkufíggjað virksemi og stuðulsfíggjað virksemi verða greitt í viðmerkingunum til fíggjarlógaruppskotið, sbrt. § 21 í lógini.
+Stk. 2. Í viðmerkingunum til landsfyritøku, inntøkufíggjað og stuðulsfíggjað virksemi skulu vera upplýsingar um virksemi undir hesum bygnað, hvat slag og hvussu umfatandi virksemið er. Fyri inntøkufíggjað og stuðulsfíggjað virksemi skal greiðast frá, hvussu virksemið verður avmarkað mótvegis vanliga virkseminum.
+Stk. 3. Landsfyritøka verður sett á egna høvuðskontu. Inntøkufíggjað virksemi og stuðulsfíggjað virksemi verða sett á undirkontur.
