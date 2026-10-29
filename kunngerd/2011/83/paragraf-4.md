@@ -1,0 +1,4 @@
+§ 4. [^1] [^2] Størri løguverkætlanir sbrt. § 1, stk. 1 upp á 20 mió. kr. ella meira skulu gerast við grundarlagi í einari verklagslóg.
+Stk. 2. [^1] Við heimild í ásettu samlaðu løguupphæddini í verklagslógini, sbr. stk. 1, kann landsstýrismaðurin gera avtalur, sum hava við sær byggiútreiðslur í komandi fíggjarárum, um so er, at tað er neyðugt fyri at gera skynsamar sáttmálar við atliti at valda útbjóðingar- og byggiháttinum.
+Stk. 3. [^1] [^2] Stuðul til løguverkætlanir sbrt. § 1, stk. 2, sum eru uppá á 20 mió. kr. ella meira, skal veitast við grundarlagi í einari verklagslóg.
+Stk. 4. [^1] Við heimild í ásettu samlaðu stuðulsupphæddini í verklagslógini, sbr. stk. 3, kann landsstýrismaðurin gera avtalur um at veita stuðul í komandi fíggjarárum, soleiðis at stuðulin so vítt møguligt verður veittur sambært gongdini í løguverkætlanini.

@@ -1,0 +1,1 @@
+§ 6. Í viðmerkingunum til løgujáttan skal vera ein frágreiðing um tað ávísu løguverkætlanina og upplýsingar um samlaðu løguupphæddina, við útreiðslunum liðaðar á fíggjarár, sbrt. § 22, stk. 3 í lógini.
