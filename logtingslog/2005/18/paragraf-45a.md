@@ -1,0 +1,1 @@
+§ 45 a. [^2] Tá barnaverndartænastan fær fráboðanir sbrt. § 14 um barn, ið er undir fyriskipan sambært hesi lóg, skal barnaverndarumsitingin meta um málið av nýggjum. Í sambandi við eftirmetingina av málinum skulu onnur, ið gera uppgávur fyri barnaverndartænastuna, men sum ikki hava verið partur av málsviðgerðini áður, í størst møguligan mun, vera við til at endurskoða málið.

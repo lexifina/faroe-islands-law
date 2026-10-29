@@ -1,0 +1,3 @@
+## Viðtøkuføri
+§ 43. [^3] Fyri at barnaverndarnevndin kann taka avgerð um at seta í verk fyriskipanir sambært hesi lóg, skal minst helvtin av limunum, formaðurin íroknaður, vera til staðar. Er meirilutin í nevndini ikki samdur við formannin um, hvørt eitt mál skal leggjast fyri Føroya Kærustovn, tekur formaðurin avgerð.
+Stk. 2. Um barnaverndarnevndin ikki er saman, kann formaðurin ella, tá honum berst frá, næstformaðurin í barnaverndarnevndini seta í verk fyribils fyriskipanir, ið ikki kunnu útsetast, av tí at vandi er fyri barnsins vælferð. Slíkar avgerðir verða skjótast gjørligt lagdar fyri barnaverndarnevndina til góðkenningar

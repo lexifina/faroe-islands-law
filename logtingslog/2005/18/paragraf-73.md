@@ -1,0 +1,1 @@
+§ 73. [^17] Tann, sum verður varugur við, men ikki boðar barnaverndartænastu frá, at foreldur ella annar uppalari misrøkir, meinslar, misnýtir ella aðramáta fer so við barni, at stórur vandi er fyri tess sálarligu ella likamligu heilsu ella búning, verður revsaður við bót ella fongsli í upp til tríggjar mánaðir.

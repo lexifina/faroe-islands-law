@@ -1,0 +1,2 @@
+§ 74. [^17] [^3] Tann, sum forðar fyri, at fyriskipan ella kanning eftir hesi lóg verður sett í verk ella útint, ikki gevur upplýsingar ella gevur viðkomandi barnaverndartænastu, Føroya Kærustovni ella almennum myndugleika rangar ella villeiðandi upplýsingar um viðurskifti, sum lógin umrøðir, verður revsaður við bót og, um talan er um grovt brot, við fongsli í upp til tríggjar mánaðir.
+Stk. 2. [^3] Á sama hátt verður tann revsaður, sum brýtur forboð frá Føroya Kærustovni um at vitja barn, sum Føroya Kærustovnur hevur sett heiman.

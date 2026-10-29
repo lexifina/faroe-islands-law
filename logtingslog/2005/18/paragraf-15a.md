@@ -1,0 +1,3 @@
+§ 15 a. [^1] [^3] [^5] Barnaverndarnevndin kann innskriva familju til familjuviðgerð á stovni sambært § 15, stk. 1, nr. 2.
+Stk. 2. [^3] Føroya Kærustovnur kann innskriva barn, ið er fevnt av hesi lóg, og sum ikki kann integrerast á kommunalum dagstovni, á dagstovn hjá landinum.
+Stk. 3. [^5] Barnaverndarnevndin kann veita fíggjarligan stuðul til útreiðslur, ið standast av fyriskipan eftir stk. 1 og 2 og eftir § 15, stk. 1, nr. 2, tá ið foreldrini ikki sjálvi megna útreiðslurnar. Um familjan verður innskrivað sambært stk. 1, fáa foreldrini endurgjald fyri mista arbeiðsinntøku, tó í mesta lagi við eini upphædd samsvarandi hægstu sjúkradagpeningaveiting.

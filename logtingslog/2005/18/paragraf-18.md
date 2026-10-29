@@ -1,0 +1,4 @@
+## Læknakanning og viðgerð
+§ 18. [^2] Í teimum førum, har orsøk er at halda, at eitt barn hevur eina lívshóttandi ella álvarsama sjúku ella skaða, er fyri kynsligum ágangi ella øðrum harðskapi, og um tann ella tey, ið hava foreldramyndugleikan, og barnið, ið hevur fylt 15 ár, ikki geva samtykki til, at barnið kemur til kanningar ella viðgerð, kann barnaverndarnevndin uttan rættarúrskurð avgera, at barnið skal til hóskandi viðgerð ella kanning, undir hesum viðgerð og kanning, ið Barnahúsið fyriskipar.
+Stk. 2. Um barnaverndarnevndin ikki er saman, kann formaðurin ella, tá honum berst frá, næstformaðurin avgera, at barnið skal til hóskandi viðgerð ella kanning sambært stk. 1.
+Stk. 3. [^3] Avgerðir sambært stk. 1 og 2 skulu skjótast til ber, og innan 2 yrkadagar, leggjast fyri Føroya Kærustovn til góðkenningar.

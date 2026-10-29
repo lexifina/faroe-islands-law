@@ -1,0 +1,1 @@
+§ 79. Landsstýrismaðurin kann, eftir avtalu við onnur lond, áseta nærri reglur um visitasjón, gjald og endurgjald umframt reglur um vitjanir v.m., tá ið føroysku sosialu myndugleikarnir senda børn ella ung til onnur lond fyri at fáa tilboð sambært hesi lóg. Samsvarandi kunnu reglur ásetast eftir avtalu, tá ið sosialu myndugleikarnir í øðrum londum senda børn ella ung til Føroyar.

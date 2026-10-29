@@ -1,0 +1,2 @@
+§ 9. [^1] Barnaverndarnevndin tekur avgerð í málum, har samtykki er fingið frá tí ella teimum, ið hava foreldramyndugleikan, og einum barni, ið hevur fylt 15 ár, tó undantikið í málum viðvíkjandi umsorganaryvirtøku og samverurætti, sbr. §§ 19, 22, 23 og 24 og viðvíkjandi § 15 a.
+Stk. 2. Harumframt tekur Barnaverndarnevndin avgerð í málum sambært § 15, stk. 2, § 17, stk. 1, § 18, stk. 1, § 20, stk.1 og § 21, stk. 2 uttan samtykki frá tí ella teimum, ið hava foreldramyndugleikan.

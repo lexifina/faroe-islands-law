@@ -1,0 +1,1 @@
+§ 29 f. [^9] Afturat samsýningini í § 29 a verður lagt gjald til arbeiðsloysisskipanina, gjald til barsilsgrunnin, gjald til arbeiðsmarknaðareftirlønargrunnin og bundna eftirlønargjaldið sbrt. § 2 í løgtingslóg um eftirløn.

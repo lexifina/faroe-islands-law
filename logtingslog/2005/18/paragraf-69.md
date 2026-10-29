@@ -1,0 +1,2 @@
+§ 69. [^4] [^3] Landið heldur útreiðslurnar fyri stovnsetan og rakstur av samdøgursstovnum, herundir familjuviðgerð á samdøgursstovnum, fyri stovnsetan og rakstur av dagstovnum hjá landinum, sambært § 33, stk. 2, fyri stovnspláss uttanlands, sambært § 35, stk. 2 og harumframt fyri útreiðslur í sambandi við ókeypis umboðan, sambært § 57.
+Stk. 2. [^4] Barnaverndarøkini rinda brúkaragjald fyri at seta barn á stovn sambært hesi lóg. Landsstýrismaðurin ásetir í kunngerð nærri reglur um brúkaragjaldið.

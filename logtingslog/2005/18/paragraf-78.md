@@ -1,0 +1,1 @@
+§ 78. Kunngerðir og aðrar reglur, sum eru settar í gildi sambært ”Lovbekendtgørelse nr. 104 af 2. marts 1988 om børneforsorg”, sum seinast broytt við ll. nr. 18 frá 12.03.02, verða verandi í gildi, til tær verða settar úr gildi ella verða avloystar av reglum, givnum við heimild í hesi lóg.

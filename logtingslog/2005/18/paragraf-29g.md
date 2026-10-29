@@ -1,0 +1,2 @@
+§ 29 g. [^9] Um talan er um eitt barn við sera stórum avbjóðingum, kunnu fosturforeldrini samsýnast við upp til tríggjar ferðir samsýningini sbrt. § 29 a, umframt eina ferð føstu gjøldini í §§ 29 b og 29 c.
+Stk. 2. Um talan er um eitt barn við óvanliga stórum avbjóðingum, sum tí krevur heilt serliga røkt frá fosturforeldrunum, kunnu fosturforeldrini samsýnast við upp til sjey ferðir samsýningini sbrt. § 29 a, umframt eina ferð føstu gjøldini í §§ 29 b og 29 c.

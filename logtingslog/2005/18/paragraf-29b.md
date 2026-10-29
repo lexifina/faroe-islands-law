@@ -1,0 +1,1 @@
+§ 29 b. [^9] Eitt fast gjald um samdøgrið verður rindað til vistarhald og klæði til barnið sbrt. § 29, stk. 3. Tá upp til 2 børn eru í somu fosturfamilju, er gjaldið fyri hvørt barnið ávikavist 224,76 kr. til børn undir 10 ár, og 236,59 kr. til børn 10 ár og eldri. Tá fleiri enn 2 børn eru í somu fosturfamilju, er gjaldið 209,55 kr. fyri hvørt barnið.

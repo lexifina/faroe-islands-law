@@ -1,0 +1,7 @@
+## Ætlan
+§ 47. Áðrenn fyriskipanir verða settar í verk, skal barnaverndarumsitingin gera eina skrivliga ætlan fyri barnið, sum verður løgd fyri barnaverndarnevndina til støðutakan.
+Stk. 2. [^1] Ætlanin skal áseta endamálið við fyriskipanini, og hvør fyriskipan skal setast í verk fyri at náa endamálinum. Ætlanin skal taka støði í kanningini eftir § 45. Ætlanin skal, í mun til tey viðurskifti, sum eru lýst í kanningini, seta ítøkilig mál í mun til barnsins trivna og menning í samsvari við yvirskipaða endamálið við fyriskipanini. Harafturat skal í ætlanini verða ásett, hvussu leingi fyriskipanin væntast at vara.
+Stk. 3. [^1] Í málum, har barn verður sett heiman, skal ætlanin harumframt áseta, hvør fyriskipan skal setast í verk fyri familjuna, meðan barnið er sett heiman og í tíðini eftir, at barnið er komið heim aftur.
+Stk. 4. [^1] Er talan um barn, ið hevur fylt 16 ár, skal ætlanin áseta ítøkilig mál fyri barnsins skifti til eina vaksnamannatilveru.
+Stk. 5. [^1] Ein felags ætlan kann gerast fyri fleiri børn í familjuni. Ætlanin skal tó taka atlit til viðurskiftini hjá tí einstaka barninum.
+Stk. 6. [^1] Í málum, har atliti til barnið ger, at avgerð um at seta fyriskipan í verk ikki kann bíða eftir, at ein ætlan er gjørd, er nóg mikið við eini stuttari tilskilan av endamálinum við fyriskipanini. Ein ætlan, ið lýkur krøvini í stk. 2-5, skal tó gerast skjótast gjørligt og í seinasta lagi tríggjar mánaðir eftir, at avgerð um at seta fyriskipan í verk er tikin.

@@ -1,0 +1,5 @@
+§ 24 a. [^1] [^3] Hevur eitt barn ikki verið sett heiman innan fyri tað seinasta árið, kann ein fyriskipan um umsorganaryvirtøku ikki halda fram longur enn eitt ár frá tí degi, Føroya Kærustovnur tók avgerð um fyriskipanina uttan við nýggjari avgerð frá Føroya Kærustovni.
+Stk. 2. [^3] Hevur eitt barn verið sett heiman innan fyri tað seinasta árið, kann ein fyriskipan um umsorganaryvirtøku ikki halda fram longur enn tvey ár frá tí degi, Føroya Kærustovnur tók avgerð um fyriskipanina uttan við nýggjari avgerð frá Føroya Kærustovni.
+Stk. 3. [^3] Freistin í stk. 1 og 2 verður roknað frá tí degi, at Føroya Kærustovnur tók avgerð.
+Stk. 4. [^3] [^3] Hóast ásetingina í stk. 1 og 2, kann Føroya Kærustovnur áseta styttri freist fyri, nær eftirmeting skal leggjast fyri Føroya Kærustovn til avgerðar.
+Stk. 5. [^3] Føroya Kærustovnur kann áseta eina longri freist enn tær í stk. 1 og 2, um umstøðurnar, ið eru grundarlagið fyri avgerðini, eftir øllum líkindum mugu væntast at vera til staðar út yvir freistina.
