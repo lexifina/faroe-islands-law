@@ -1,0 +1,1 @@
+§ 12. Fyri ógiftan persón undir 18 ár tekur tann, ið hevur foreldramyndugleikan, avgerð sbrt. § 8, stk. 2, 3 og 4, § 9, § 10, stk. 2, og § 11, stk. 2. Tann, ið er 14 ár ella eldri, skal geva samtykki.
