@@ -1,0 +1,1 @@
+§ 1. Klagur um arbeiðsumstøður og liviumstøður umborð á skipum, sambært ILO sáttmála um starvsviðurskifti hjá sjófólki, MLC ella ILO sáttmála 188 um starvsviðurskifti hjá sjófólki við fiskiskipum, kunnu leggjast fyri Sjóvinnustýrið.

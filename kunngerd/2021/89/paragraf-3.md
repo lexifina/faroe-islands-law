@@ -1,0 +1,2 @@
+§ 3. Í sambandi við viðgerð av klagu frá sjófólki ella fakfeløgum teirra viðvíkjandi arbeiðsumstøðum og liviumstøðum umborð, kann Sjóvinnustýrið ikki upplýsa fyri reiðaranum, arbeiðsgevaranum ella umboðsfólki teirra, hvør hevur klagað.
+Stk. 2. Er ein klaga grundarlagið undir eini eftirlitsvitjan umborð á avvarðandi skipi, kann Sjóvinnustýrið ikki upplýsa fyri reiðaranum, arbeiðsgevaranum ella umboðsfólki teirra, at vitjanin umborð er grundað á klaguna.
