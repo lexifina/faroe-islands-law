@@ -1,0 +1,4 @@
+§ 3. Tann, sum fyrstu ferð verður settur sum tænastumaður, verður løntur á 1. lønarstigi í viðkomandi lønarrammu og flytir á næsta lønarstig í lønarrammuni, tá ið hann í tvey ár hevur verið løntur á sama lønarstigi.
+Stk. 2. Eftir nærri av landsstýrinum fyrisettum reglum kunnu tænastumenn við fyrstu tilnevning verða løntir á hægri lønarstigi enn byrjunnarlønin í lønarrammuni.
+Stk. 3. Tá ið tænastumaður verður fluttur fram í starv í hægri lønarrammu, kemur hann við tað sama á tað lønarstig, sum er næst oman fyri lønarstigið higartil við møguligum serstøkum viðbótum uppíroknaðum.
+Stk. 4. Um so er at tænastumaður í starvinum frammanundan vegna aldursviðbót hevði komið á eitt lønarstig, sum er javnt við ella hægri enn tað, hann kemur á í nýggju lønarrammuni, fær hann longu frá hesum mundi nýggja aldursviðbót.

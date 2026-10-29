@@ -1,0 +1,1 @@
+§ 14. Landsstýrið kann veita tænastumanni eina ikki eftirløngevandi viðbót til útjavning av inntøkumissi, sum stendst av, at tænastumaður missir samsýningar fyri størv, sum natúrliga mugu haldast at hoyra til tænastumannastarvið. Henda viðbótin dettur burtur heilt ella lutvíst, tá ið ein fær hægri eftirløngevandi lønarinntøku, ella hægri vanligar ella serstakar viðbøtur.
