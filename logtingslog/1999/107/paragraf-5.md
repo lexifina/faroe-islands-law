@@ -1,0 +1,1 @@
+§ 5. [^4] [^5] Javnaðu árligu veitingarupphæddirnar verða avrundaðar til nærmasta krónutalið, ið kann býtast við 12, tó ikki samdøgursupphæddir og eingangsupphæddir. Frádráttarupphæddirnar verða avrundaðar til nærmasta krónutalið, ið kann býtast við 100.
