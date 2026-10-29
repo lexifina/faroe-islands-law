@@ -1,0 +1,1 @@
+§ 3. Landsstýrismaðurin ásetir í kunngerð neyvari treytir og reglur fyri, hvør kann fáa stuðul, og nær og hvussu stuðul verður játtaður. Her eru at nevna krøv til fíggjarætlan, eftirlit, upplýsingarskyldu, roknskap og grannskoðan hjá stuðulsmóttakara og afturrindan av stuðli.
