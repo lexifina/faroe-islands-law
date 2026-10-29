@@ -1,0 +1,3 @@
+§ 3. Skyldueintøkini skulu vera soleiðis frágingin og merkt, at tað eyðsýniliga verður upplýst, hvat talan er um, og hvør avhendarin er.
+Stk. 2. Skyldueintøkini skulu latast Landsbókasavninum fullfíggjað og óskalað. Húsar, kápur o.a., ið hoyrir til útgávuna, skulu fylgja við.
+Stk. 3. Við avhendingini skal fylgja eitt fullfíggjað yvirlit, har upplýst verður, hvørji skyldueintøk verða avhend, í hvussu nógvum eintøkum og nær. Er talan um smáprent, sum t.d. faldarar og líknandi, er bert neyðugt at upplýsa tal. Yvirlitið skal síðani innihalda váttan um, at alt, ið eftir løgtingslógini og hesi kunngerð skal avhendast, er tikið við. Váttanin skal verða undirskrivað av tí, ið avhent hevur, ella øðrum í hansara stað.
