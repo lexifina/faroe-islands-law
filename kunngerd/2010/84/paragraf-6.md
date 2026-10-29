@@ -1,0 +1,3 @@
+## Fráboðan um bunkring og flutning av olju
+§ 6. Í seinasta lagi tveir tímar áðrenn bunkringin ella flutningurin byrjar, skal móttakarin geva kommunustýrinum ella havnamyndugleikanum fráboðan um, hvar og nær ætlanin er at bunkra ella flyta olju. Eisini skal upplýsast, hvør veitarin er umframt nøgd og slag av olju, sum bunkringin ella flutningurin fevnir um. Móttakarin skal somuleiðis geva kommunustýrinum ella havnamyndugleikanum fráboðan, tá liðugt er at bunkra.
+Stk. 2. Kommunustýrið ella havnamyndugleikin kann áseta neyvari krøv til innihaldið í fráboðanini, heruppií at fráboðanin skal vera skrivlig.

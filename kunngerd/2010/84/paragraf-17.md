@@ -1,0 +1,1 @@
+§ 17. Umhvørvisstovan kann taka eina góðkenning sambært § 4 aftur, um loyvishavin í síni umsiting av loyvinum grovliga og ferð eftir ferð brýtur treytir í góðkenningini, ásetingar í loyvisskyldunum ella ikki lýður boð, sum Umhvørvisstovan hevur givið í sambandi við umsiting og eftirlit við nevndu loyvisskipan.
