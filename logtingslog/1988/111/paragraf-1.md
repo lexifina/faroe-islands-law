@@ -1,0 +1,1 @@
+§ 1. Eftir reglunum í hesi lóg verður studningur latin til vardar íbúðir, sum hava til endamáls at hýsa avlamisfólki og eldri fólki, og fólki annars, sum tørva at búgva í vardum umhvørvi, og tryggja teimum eitt gott og hóskandi tilhald.
