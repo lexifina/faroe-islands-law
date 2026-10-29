@@ -1,0 +1,4 @@
+§ 1. Kostnaðarendurgjaldið fyri flutning við Strandferðsluni verður roknað út eftir kostnaðinum fyri bíligasta avsláttarmøguleikan við persónbili fyri 200 ferðir aftur og fram árliga.
+Stk. 2. Tunnilsgjaldið í kostnaðarendurgjaldinum verður roknað út eftir kostnaðinum fyri bíligasta avsláttarmøguleikan við persónbili fyri 200 ferðir aftur og fram árliga gjøgnum tunnilin ella tunnlarnar.
+Stk. 3. Koyripeningurin í kostnaðarendurgjaldinum verður roknaður út eftir kilometratalinum fyri stytstu leið, sum Landsverk upplýsir, millum heimstaðarbýin ella bygdina og Havnina. Fyri hvønn kilometur verður latin tann upphædd sum er ásett í rundskrivi frá Fíggjarmálaráðnum um endurgjald fyri nýtslu av egnum bili í tænastuørindum, í løtuni kr. 3,20 sbr. rundskrivi dagfest 28. mars 2007.
+Stk. 4. Samlaða kostnaðarendurgjaldið verður útgoldið mánaðarliga afturút við 1/12 parti av árligu upphæddini.
