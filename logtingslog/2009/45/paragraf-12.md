@@ -1,0 +1,2 @@
+§ 12. Grannskoðarar, ið sambært § 11, stk. 1, geva váttanir í Føroyum, skulu geva teimum, sum eru móttakarar av váttanunum, upplýsingar um síni fakligu heiti í bústaðarlandinum, møguligt skrásetingarnummar í eini almennari skrá í bústaðarlandinum, møguligt mvg-skrásetingarnummar í bústaðarlandinum og um møguliga trygging til rindan av vinnuábyrgd.
+Stk. 2. Landsstýrismaðurin ásetir reglur um tær upplýsingar, sum skulu latast sambært stk. 1.

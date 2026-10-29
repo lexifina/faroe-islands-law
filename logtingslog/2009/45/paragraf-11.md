@@ -1,0 +1,4 @@
+## Høvi til at geva váttanir fyribils og av og á
+§ 11. Grannskoðarar, ið eru góðkendir og hava bústað í einum landi, sum Føroyar hava gjørt sínámillum avtalu við, kunnu fyribils og av og á geva váttanir sambært § 1, stk. 2 og 3. Váttanin má tó ikki viðvíkja lógbodnari grannskoðan av ársroknskapum og samtøkuroknskapum. Grannskoðarar, ið geva váttan sambært 1. pkt., skulu nýta sítt fakliga heiti í bústaðarlandinum.
+Stk. 2. Grannskoðarar, ið stk. 1 fevnir um, skulu geva Skráseting Føroya fráboðan, áðrenn váttanir verða givnar. Landsstýrismaðurin ásetir reglur um fráboðan og skráseting.
+Stk. 3. Skráseting Føroya førir eina almenna skrá yvir grannskoðarar, sbr. stk.1, sum, tá fráboðan verður latin inn, hava bústað í einum landi, sum Føroyar hava gjørt sínamillum avtalu við, og sum hava boðað Skráseting Føroya frá, at teir fyribils og av og á ætla at geva váttanir í Føroyum. Skrásett verður navn, bústaður og fakliga heitið hjá viðkomandi.

@@ -1,0 +1,2 @@
+§ 22 b. [^1] Eftir grundaða umsókn frá grannskoðara ella grannskoðanarvirki kann Skráseting Føroya í hendinga førum og undir heilt serligum umstøðum geva grannskoðaranum ella grannskoðanarvirkinum undantak frá avmarkingini í artikkul 4, stk. 2 í Europa-Parlamentets og Rådets forordning (EU) nr. 537/2014 af 16. april 2014 om specifikke krav til revision af virksomheder af interesse for offentligheden.
+Stk. 2. Undantak eftir stk. 1 kann í mesta lagi verða givið fyri 1 roknskaparár.

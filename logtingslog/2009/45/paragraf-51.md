@@ -1,0 +1,10 @@
+## Kapittul 12
+## Revsireglur
+§ 51. [^1] Er ikki hægri revsing ásett í aðrari lóggávu, verður brot á § 5, § 9, stk. 1, § 11, stk. 1 og 2, 1. pkt., §§ 18, 20-22, 22 c, 24 og § 29, stk. 1, 1. pkt., stk. 4 og 6 revsað við sekt. Á sama hátt verður tann revsaður, sum fremur brot á artikkul 4, stk. 1 og 2, artikkul 5, stk. 1, artikkul 11, stk. 1 og 2, artikkul 15, stk. 1 og artikkul 17, stk. 7 í Europa-Parlamentets og Rådets forordning (EU) nr. 537/2014 af 16. april 2014 om specifikke krav til revision af virksomheder af interesse for offentligheden.
+Stk. 2. [^1] Í fyriskipanum, givnar av Skráseting Føroya ella landsstýrismanninum sambært lógini, kann verða ásett revsing við sekt fyri brot á reglurnar í fyriskipanunum.
+Stk. 3. Feløg v.m. (løgfrøðiligir persónar) kunnu áleggjast revsiábyrgd eftir reglunum í kapittli 5 í revsilógini.
+Stk. 4. [^1] Ein grannskoðari, ið, tá hann útinnir uppgávur sambært § 1, stk. 2 og 3, gevur skeiva skrivliga váttan ella skrivliga vissu um nakað, sum hann ongan kunnleika hevur um, verður revsaður við sekt ella fongsli upp í 4 mánaðir. Sama er galdandi fyri ein grannskoðara, ið undirskrivar grannskoðanarátekningina í einum roknskapi, sum ikki er grannskoðaður av viðkomandi, uttan at hetta framgongur av givnu grannskoðanarváttanini, ella, sum uttan at vera knýttur at einum grannskoðanarvirki, fremur tær í § 1, stk. 2 nevndu uppgávur.
+Stk. 5. [^1] Ein grannskoðari, ið gevur váttanir sambært § 11, stk. 1, 1. pkt., uttan at hava givið fráboðan um skráseting til Skráseting Føroya sambært § 11, stk. 2, verður revsaður við sekt ella fongsli í upp til 4 mánaðir.
+Stk. 6. Ásetingin í stk. 5 er samsvarandi galdandi fyri grannskoðarar, ið eru skrásettir sambært § 11, stk. 3, men sum geva váttanir, sum eru nevndar í § 11, stk. 1, 2. pkt.
+Stk. 7. [^1] Er ikki hægri revsing ásett í aðrari lóggávu verður ein persónur, sum ger ímóti einum forboði, sum er givið sambært § 8 a, stk. 4, nr. 2, § 42, stk. 3, ella § 42 b, stk. 2, revsaður við sekt.
+Stk. 8. [^1] Fyrningarfreistin fyri brot á løgtingslógina ella fyriskipanir, ásettar sambært løgtingslógini, er 5 ár.

@@ -1,0 +1,7 @@
+§ 8 a. [^1] Vantar einum grannskoðara at fullføra alla ella partar av eftirútbúgvingini, sambært § 4, kann Skráseting Føroya áseta eina freist fyri, nær grannskoðarin skal lúka krøvini um eftirútbúgving.
+Stk. 2. Um ein grannskoðari ikki kann skjalprógva, at krøvini til eftirútbúgving sambært § 4 eru lokin, kann Skráseting Føroya geva grannskoðaranum boð um at taka lut í eftirútbúgvingartímum eftir nærri ásettum treytum.
+Stk. 3. Um Skráseting Føroya í sambandi við eftirlitið við grannskoðarum og grannskoðanarvirkjum, sambært § 30, stk. 2, nr. 2-4, metir, at ein grannskoðari hevur tørv á meiri eftirútbúgving innan fyri eitt ávíst avmarkað fakøki, kann Skráseting Føroya geva grannskoðaranum boð um, eftir nærri ásettum treytum, at taka lut í tílíkari eftirútbúgving.
+Stk. 4. Uppfyllir ein grannskoðari ikki treytirnar í § 4 um eftirútbúgving ella fylgir ikki boðum eftir stk. 1-3, kann Skráseting Føroya:
+1) taka góðkenningina treytað frá grannskoðaranum við áseting um, at viðkomandi í verandi ella komandi eftirútbúgvingarskeiði ikki setur til síðis krøvini um eftirútbúgving á slíkan hátt, at samlaða metingin verður, at góðkenningin skal verða tikin frá viðkomandi,
+2) geva grannskoðaranum forboð fyri í verandi ella komandi eftirútbúgvingarskeiði at grannskoða ella hava eftirlit við grannskoðan ella røkja uppgávur í einum grannskoðanarvirki, ella
+3) taka góðkenningina frá grannskoðaranum.

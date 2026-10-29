@@ -1,0 +1,3 @@
+§ 26 a. [^1] Grannskoðanarvirkir skulu sum liður í góðskustýringarskipanini hava eina serliga skipan, sum gevur starvsfólki teirra møguleika at fráboða brot og møgulig brot á lóggávu um grannskoðan. Fráboðanirnar skulu kunna vera dulnevndar.
+Stk. 2. [^1] Starvsfólkið skal ikki vera fyri ólagaligari viðferð ella ólagaligum fylgjum, tí tað hevur boðað frá broti ella møguligum broti á lóggávuna um grannskoðan, sambært stk. 1.
+Stk. 3. [^1] Stk. 1 er ikki galdandi fyri grannskoðanarvirkir, sum bert hava ein grannskoðara knýttan at sær ella grannskoðanarvirkir, sum bara fáast við aðrar uppgávur enn at grannskoða roknskapir.

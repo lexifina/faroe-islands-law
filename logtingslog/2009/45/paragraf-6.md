@@ -1,0 +1,5 @@
+## Varðveitsla
+§ 6. [^1] Grannskoðari kann lata sína góðkenning í varðveitslu hjá Skráseting Føroya. Varðveitsla er treytað av, at góðkenningin ikki er fallin burtur sambært § 7, tikin frá viðkomandi sambært § 8 og § 8 a, stk. 4, nr. 3 ella frádømd sambært § 42, stk. 2, ella § 79 í revsilógini.
+Stk. 2. Grannskoðari, sum hevur latið sína góðkenning í varðveitslu hjá Skráseting Føroya, kann í handilsviðurskiftum ikki nýta heitið “løggildur grannskoðari”, “skrásettur grannskoðari” ella “góðkendur grannskoðari”. Samansetingar ella styttingar av hesum heitum kunnu ikki verða nýttar.
+Stk. 3. [^1] Persónur, ið hevur latið sína góðkenning í varðveitslu, kann eftir áheitan um hetta aftur verða góðkendur treytað av, at viðkomandi lýkur treytirnar í § 3, stk. 1, nr. 1-3 og 6 og § 4, og at viðkomandi ikki hevur falna skuld til tað almenna upp á 100.000 kr. ella meira. § 8 a, stk. 1 og § 9, stk. 3, verða nýttar í sambandi við góðkenning aftan á varðveitslu.
+Stk. 4. Grannskoðari, ið leggur sína góðkenning í varðveitslu, verður strikaður úr almennu skránni yvir góðkendar grannskoðarar.
