@@ -1,0 +1,1 @@
+§ 3. Næmingastudningurin er eins fyri allar næmingar skúlans. Studningurin kann í mesta lagi verða kr. 100,00 um dagin. Um játtanin á løgtingsfíggjarlógini ikki røkkur, verður studningurin lækkaður samsvarandi.
