@@ -1,0 +1,2 @@
+§ 7. Bústaðarhús, sum studningur verður latin til, skal vera sjálveigandi stovnur og skal hava viðtøkur, sum eru góðtiknar av landsstýrinum.
+2. stk. Verða bústaðarhús ikki longur nýtt til endamálið ella verða tey seld, fellur tann parturin av ognarvirðinum ávikavist nettosøluprísinum, sum lutfalsliga svarar til tann studning, sum er veittur eftir § 3 í hesi lóg, samanber § 2, pkt. 1) ella 2), til landskassan, og landsstýrið ger av, hvussu hesin parturin av ognarvirðinum ávikavist nettosøluprísinum skal nýtast.
