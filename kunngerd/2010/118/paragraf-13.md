@@ -1,0 +1,5 @@
+## Skráseting og innaneftirlit
+§ 13. Tann, ið eigur HCFC-køliskipanir við kølifylling yvir 3 kg, skal á hvørjum ári kanna tær fyri lekar. Um kølifyllingin er yvir 30 kg, skal kanning gerast í minsta lagi hvørt hálvár. Um kølifyllingin er yvir 300 kg skal kannast í minsta lagi hvønn ársfjórðing.
+Stk. 2. Tann, ið eigur HCFC køliskipanir, skal meta um árliga leka frá skipanini. Er lekin meiri enn 25% av fyllingini, skal Umhvørvisstovan hava frágreiðing um, hvussu lekin er íkomin, og hvørji tiltøk verða sett í verk fyri at bøta um viðurskiftini.
+Stk. 3. Innflytarar og útflytarar skulu skráseta innflutning, útflutning, goymslu og sølu av vørum og útbúnaði, ið kunngerðin fevnir um. Upplýsingar fyri tað farna árið skulu, eftir umbøn, latast Umhvørvisstovuni áðrenn 1. mars árið eftir.
+Stk. 4. Tann, ið eigur HCFC-køliskipanir við kølifylling yvir 3 kg, skal í loggbók skráseta allar áfyllingar og endurvinningar, og tilskila slag og nøgd av evni. Navnið á tí virki og persóni, sum gjørdi arbeiði, skal tilskilast.
