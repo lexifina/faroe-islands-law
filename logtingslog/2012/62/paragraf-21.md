@@ -1,0 +1,2 @@
+§ 21. Leiðari útbúgvingarstovnsins heldur próvtøku og skrivar út prógv fyri lokna útbúgving og skrivar undir skjalváttan fyri lokna próvtøku í støkum lærugreinum.
+Stk. 2. Landsstýrismaðurin ásetir í kunngerð nærri reglur um, hvørjar upplýsingar eitt prógv fyri lokna gymnasiala miðnámsútbúgving skal fevna um, m.a. ársmet, próvtøl, próvtal fyri breytaverkætlan, umframt hvørja vekt ársmet og próvtøl hava í útrokningini av próvtøkuúrslitinum.
