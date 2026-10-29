@@ -1,0 +1,1 @@
+§ 38. Næmingur, sum til próvtøku hevur fingið minni enn 02 í yrkislærugrein ella í verkætlan, kann søkja um at fara til endurpróvtøku í hesum. Endurpróvtøka fer fram í seinasta lagi 2 mánaðir eftir, at próvtøkan hevur verið.

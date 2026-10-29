@@ -1,0 +1,3 @@
+§ 13. Útbúgvingarstovnurin skal skipa so fyri, at próvtakarin hevur hóskandi arbeiðsumstøður undir próvtøkuni, og at próvtøkurnar kunnu verða hildnar ótarnaðar. Próvtøkuumstøðurnar verða skipaðar soleiðis, at tað er ómøguligt hjá próvtakara at samskifta á óætlaðan hátt.
+Stk. 2. Próvtakarin kann nýta hjálparmiðlar og talgilda útgerð til próvtøkuna. Reglurnar í námsætlanunum fyri lærugreinirnar og umstøðurnar annars kunnu tó avmarka nýtsluna.
+Stk. 3. Heilsuskúli Føroya ger ítøkiligar mannagongdir um verklig viðurskifti í sambandi við próvtøkuumstøðurnar og í sambandi við nýtslu av hjálparmiðlum og talgildari útgerð til próvtøkuna.

@@ -1,0 +1,1 @@
+§ 16. Heilsuskúli Føroya kann gera av at bjóða próvtakara við sálarligum ella likamligum avmarkingum serligar próvtøkuumstøður, sum javnseta hann við aðrar próvtakarar. Í slíkum føri má fakliga støðið ikki verða lækkað. Leiðarin fyri Heilsuskúla Føroya skal skrivliga lýsa próvtøkustøðuna hjá próvtakaranum fyri próvdómara.

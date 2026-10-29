@@ -1,0 +1,1 @@
+§ 5. Leiðarin fyri Heilsuskúla Føroya skal skipa so fyri, at grundarlagið og undirvísingargongdirnar i teimum munnligu próvtøkulærugreinunum eru tøk á heimasíðu skúlans í seinasta lagi 28 dagar, áðrenn munnligu próvtøkurnar verða kunngjørdar.

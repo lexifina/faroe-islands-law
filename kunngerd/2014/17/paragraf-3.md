@@ -1,0 +1,1 @@
+§ 3. Leiðarin fyri Heilsuskúla Føroya hevur mótvegis Mentamálaráðnum ábyrgd av, at allar próvtøkur á Heilsuskúla Føroya fara fram sbrt. reglunum í hesi kunngerð, sbrt. ásetingum frá Mentamálaráðnum, sbrt. námsskipanunum hjá skúlanum, og at skúlin hevur orðað tær mannagongdir og vegleiðingar, ið eru nevndar í § 6, stk. 4.

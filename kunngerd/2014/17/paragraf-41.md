@@ -1,0 +1,1 @@
+§ 41. Umdøming ella endurpróvtøkur, sbrt. § 40, stk. 2 og 3, sum eru elvdar av skeivleika ella breki, kunnu ikki enda við einum lægri próvtali, uttan so at talan er um umdøming ella endurpróvtøku, av tí at upprunaliga próvtøkan varð ógildað.

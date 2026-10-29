@@ -1,0 +1,1 @@
+§ 18. Próvtøkurnar fara fram á føroyskum. Próvtøkurnar kunnu í ávísum førum fara fram á øðrum máli, tó ikki í teimum førum har endamálið við próvtøkuni er at skjalprógva førleika próvtakarans í føroyskum. Tað er ein fyritreyt, at próvtakari, próvhoyrari og próvdómari hava neyðugan førleika í avvarðandi máli.

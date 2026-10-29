@@ -1,0 +1,2 @@
+§ 14. Ein skrivlig próvtøka er byrjað, tá byrjað verður at býta út próvtøkuuppgávurnar. Ein munnlig próvtøka er byrjað, tá próvtakarin hevur tikið próvtøkuspurningin, uppgávuna, uppgávuorðingina, fyrireikingartilfarið ella samsvarandi.
+Stk. 2. Próvtøkur skulu vera hildnar innan fyri ásetta tíðarkarmin. Í sambandi við munnliga próvtøku er tíðin, tað tekur at útflýggja próvtøkuspurning, tilfar o.tíl., íroknað fyrireikingartíðina, og tíðin, tað tekur at samráðast og áseta próvtal, íroknað próvtøkutíðina.

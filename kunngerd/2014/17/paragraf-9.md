@@ -1,0 +1,4 @@
+§ 9. Próvtakari, sum ikki fær møtt til próvtøku vegna skjalprógvaða sjúku, ella er forðaður at luttaka av aðrari orsøk, sum próvtakarin ikki sjálvur hevur ræði á, skal hava møguleika at fara til próvtøku skjótast gjørligt í sama próvtøkuskeiði. Sjúka skal vera skjalprógvað í seinasta lagi tann dagin, próvtøkan fer fram.
+Stk. 2. Sjúka í sambandi við verkætlan skal skjalprógvast sama dag, sum sjúkan verður fráboðað Heilsuskúla Føroya. Leiðarin fyri Heilsuskúla Føroya kann gera av at leingja innlatingarfreistina ella at áseta sjúkrapróvtøku. Mentamálaráðið skal hava fráboðan um slíkar avgerðir.
+Stk. 3. Næmingur, sum ikki møtir til próvtøku, og sum ikki lýkur ásetingarnar í stk. 1, kann ikki halda fram í útbúgvingini.
+Stk. 4. Næmingurin kann tó skrivliga og við grundgeving søkja leiðara útbúgvingarstovnsins um loyvi at ganga skúlaskeiðið umaftur, har lærugrein, sum próvtøka var í, lá í útbúgvingini.

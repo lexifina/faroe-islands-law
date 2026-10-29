@@ -1,0 +1,4 @@
+§ 44. Leiðarin fyri Heilsuskúla Føroya tekur avgerð um, hvørt kærumálið verður tikið upp, ella um tað verður víst aftur, tí málið er eyðsýnt ógrundað. Afturvísing av kæru skal vera skrivlig og grundgivin.
+Stk. 2. Er talan um munnliga próvtøku, og leiðarin fyri Heilsuskúla Føroya tekur avgerð um, at kæran verður viðgjørd, leggur leiðarin alt fyri eitt kæruna fyri próvhoyrara og próvdómara við umbøn um, at teir í seinasta lagi innan 7 dagar lata leiðaranum eina meting av próvtøkugongdini og fakliga avriki próvtakarans.
+Stk. 3. Er talan um eina skrivliga próvtøku, leggur leiðarin fyri Heilsuskúla Føroya kæruna fyri próvdómarunum við umbøn um, at teir í seinasta lagi innan 7 dagar lata leiðaranum fyri Heilsuskúla Føroya eina fakliga meting av próvtøkavriki próvtakarans.
+Stk. 4. Leiðarin fyri Heilsuskúla Føroya leggur tær í stk. 2 og 3 nevndu metingar fyri kæraran, sum fær høvi at gera møguligar viðmerkingar innan 7 dagar.
