@@ -1,0 +1,2 @@
+§ 1. Frá 15. juni til 1. oktober er øll fiskiveiða bannað í ósanum við Leynar – frá sjónum og niðan til laksatrappurnar – og á sjónum innan fyri eina linju millum Stóruurð í Leynum og Slíggjhellugjógv á Stykkinum 100 m úr landi.
+Stk. 2. Fiskirannsóknarstovan fær heimild til at taka merktan laks við ljósi í áum, sum renna í Leynavatn og Mjáuvøtn frá 15. august og at kasta nót við áarmunnarnar á Leynavatni og Mjáuvøtnum frá 1. oktober. Á sama hátt verður loyvt Fiskirannsóknarstovuni at taka lívfisk.
