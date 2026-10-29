@@ -1,0 +1,1 @@
+§ 38. Eru munalig avvik millum matrikul og tingbók og tey veruligu eigindómsviðurskifti í ávísum øki, kann landsstýrismaðurin, tá tað verður hildið neyðugt, taka stig til, at matrikul og tingbók verða rættað. Til slíka rætting verða reglurnar í §§ 3-11 samsvarandi nýttar.

@@ -1,0 +1,2 @@
+§ 21. Skjøti ella annað heimildarskjal uppá part av samlaðum føstum eigindómi ella av ómatrikuleraðum luti má ikki førast í tingbókina, fyrrenn skjalið hevur fingið átekning frá matrikulmyndugleikanum um, at sundurbýtið er góðkent og um tær serligu treytir, sum góðkenningin møguliga er gjørd við.
+Um skjalið ikki hevur ta í stk. 1 nevndu átekning, ella nøkur í góðkenningini ásett serlig treyt fyri at lúka sundurbýtið ikki er lokin, verður tað avvíst frá tingbókini.

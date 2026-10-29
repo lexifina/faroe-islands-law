@@ -1,0 +1,1 @@
+§ 8. Í seinasta lagi 4 vikur eftir, at stevnufreistin er farin, verður rættarmálið tikið til dóms. Í dóminum verður ásett, at matrikulin við teimum broytingum, sum verða tilskilaðar í dóminum, skal verða grundarlagið undir tingbókini.

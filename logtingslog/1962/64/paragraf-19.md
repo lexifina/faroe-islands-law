@@ -1,0 +1,1 @@
+§ 19. Verður eigindómur, sum allur ella fyri ein part er settur í skattamerkur, býttur í fleiri, skiftir matrikulmyndugleikin eftir besta ætli skattamarkatalið teirra millum eftir grundvirðinum av teimum nýggju eigindómunum eftir reglum, sum landsstýrismaðurin ásetur.

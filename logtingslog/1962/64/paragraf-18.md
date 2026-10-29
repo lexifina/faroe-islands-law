@@ -1,0 +1,4 @@
+§ 18. Tann, ið ynskir at býta eigindóm sín sundur, skal venda sær til matrikulmyndugleikan, sum ger tær neyðugu kanningar fyri at sanna, um tað ætlaða sundurbýti er lógligt.
+Um sundurbýti verður hildið ikki at samsvara reglunum í hesi lóg ella lóggávuni annars, verður umsóknin avvíst skrivliga og orsøkin lýst.
+Bæði matrikulmyndugleikans avvísing av sundurbýtisumsókn vísandi til, at treytirnar í § 17, stk. 1-2, ikki eru loknar, og avvarðandi myndugleika avgerð sambart § 17, stk. 3-5, kunnu av viðkomandi verða kærað til landsstýrismannin.
+Heldur matrikulmyndugleikin, at treytirnar fyri sundurbýti eru loknar, stílar hon fyri, at tey nýggju markini verða merkt við skilligum og haldgóðum marknamerkjum, ger ta tørvandi uppmáling fyri at rætta matrikulsins skjøl og ger tey neyðugu sundurbýtisskjøl.

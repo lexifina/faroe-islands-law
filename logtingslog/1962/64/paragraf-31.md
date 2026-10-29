@@ -1,0 +1,1 @@
+§ 31. Reglurnar í lóg nr. 171 frá 18. mai 1937 (hegnlógin) § 44, stk. 2, verða samsvarandi nýttar um habilitet hjá landmálara og hegnsýnsmonnum. Um landmálarin er inhabilur, uppnevnir matrikulmyndugleikin annan í hansara stað.

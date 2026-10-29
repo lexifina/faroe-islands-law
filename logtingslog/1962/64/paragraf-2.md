@@ -1,0 +1,4 @@
+§ 2. Í matriklinum verður hvør fastur eigindómur settur undir sítt matrikulnummar.
+Eisini kann undir egið matr. nr. setast hvør felagseigindómur. Felagseigindómur er í hesi lóg eigindómur, sum hoyrir til ávísar fastar eigindómar.
+Í matriklinum verður fyri hvørt matr. nr. upplýst navn eigarans, hvørjir lutir innangarðs og uttangarðs hoyra til eigindómin og eigindómsins partar í felagseigindómum. Somuleiðis kann í matriklinum førast markatal, skattamarkatal og víddin á teimum einstøku lutum við upplýsing um, hvaðani víddin er fingin. Undir hvørjum matr. nr., sum er fyri felagseigindóm, verður upplýst, hvørjir eigindómar eiga part í felagseigindóminum og partstødd teirra í markatali ella líknandi.
+Til matrikulin fyri hvørt matrikuleringsumráði verður gjørt matrikulkort, sum staðarfestir hvønn fastan eigindóm við at vísa, hvussu teir einstøku lutir og felagslutir liggja hvør til annan í markini.

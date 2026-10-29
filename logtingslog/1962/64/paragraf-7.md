@@ -1,0 +1,3 @@
+§ 7. Tað í § 6 nevnda rættarmál verður havt í rætti allar vanligar tingdagar, frá tí stevningin fyrstu ferð er lýst, og til stevnufreistin er farin, báðar dagar viðroknaðar, og kann sorinskrivarin eisini viðgera málið á serligum rættarfundum.
+Fyrsta rættardag verður matrikulin við tilhoyrandi skjølum framlagdur.
+[^1] Mótmæli verða gjørd á rættarfundum og verða viðgjørd av sorinskrivaranum á rættarfundum, tá øll viðkomandi hava fingið tilsøgn. Matrikulmyndugleikin, búnaðarmyndugleikin og viðkomandi sýslumaður og kommunustýri hava rætt til at leggja fyri rættin mál um servituttir av almennum týdningi.

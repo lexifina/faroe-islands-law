@@ -1,0 +1,2 @@
+§ 3. Við lýsing í tí blaði, sum er góðkent at taka almennar kunngerðir í Føroyum, og í kunngerðartalvunum boðar matrikulmyndugleikin við 14 daga fyrivarningi eigarum og teimum, ið eiga brúksrætt, servituttir og líkn., til at koma og vísa á eigindóm sín ella geva upp rættindi síni. Lýsingin skal vísa til ta mannagongd, ið fyriskipað er í § 7, stk. 1.
+Kommunustýrið í viðkomandi kommunu skal eftir áheitan frá matrikulmyndugleikanum uppnevna tveir menn, ið eru førir fyri at hjálpa matrikulmyndugleikanum at fáa til vegar upplýsingar um eigindómsviðurskiftini.

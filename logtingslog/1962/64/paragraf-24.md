@@ -1,0 +1,4 @@
+§ 24. Tann, ið ynskir at leggja jarðir sínar, sum higartil í matriklinum hava verið førdar undir fleiri matr. nr., saman, so tær ikki kunnu leggjast sundur aftur uttan við sundurbýtisgóðkenning, skal venda sær til matrikulmyndugleikan, sum ger tær neyðugu kanningar fyri at sanna, um tann ætlaða samanlegging er møgulig eftir reglunum í § 23.
+Um samanleggingin ikki kann verða framd eftir reglunum í § 23, verður umsóknin avvíst skrivliga og orsøkin lýst.
+Um samanleggingin kann verða framd eftir reglunum í § 23, verða tær neyðugu broytingar gjørdar í skjølum matrikulsins og samanleggingargóðkenning givin umsøkjaranum.
+Tinglýsingarmyndugleikin førir í tingbókina tørvandi viðmerking um ta pantvíðkan, sum stendst av samanleggingini í førum, har eigindómurin framvegis er fleiri matr. nr., sbr. løgtingslóg nr. 55 frá 16. august 1962 um tinglýsing § 24.

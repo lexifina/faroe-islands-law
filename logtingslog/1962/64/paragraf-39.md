@@ -1,0 +1,1 @@
+§ 39. Um eigindómslýsing í matriklinum verður hildin at vera ófullfíggjað, kann matrikulmyndugleikin gera tørvandi rætting. Í samband við hetta kann verða gjørd fullfíggjað uppmáling av eigindóminum ella parti av honum.

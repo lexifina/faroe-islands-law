@@ -1,0 +1,2 @@
+§ 34. Tá mark er endaligt avgjørt eftir reglunum í frammanfyristandandi greinum, skal matrikulmyndugleikin gera tað, sum tørvar, fyri at marknasetingarmálið kann verða bókað í matrikli og tingbók. Í teimum førum, semja ikki er fingin, skal fyrst útvegast váttan frá sorinskrivaranum um, at ikki er stevnt, áðrenn freistin, sum § 33 ásetur, er farin.
+Um tað, aftaná at marknasetingarmál er lokið og bókað, koma fram upplýsingar, sum sanna, at marknasetingarmálið er avgjørt á skeivum grundarlagi, kann landsstýrismaðurin loyva, at málið fær nýggja viðgerð.

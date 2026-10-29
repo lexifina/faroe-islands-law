@@ -1,0 +1,2 @@
+§ 4. Tað, sum fer fram undir matrikuleringini, verður ført í gerðabók, løggild av landsstýrismanninum. Í gerðabókini verða serliga førd øll krøv, og allar viðtøkur og semjur.
+Fæst ikki semja um, hvør ið eigur lut ella rættindi, ella hvønn eigindóm lutur ella rættindi hoyra til, verður viðmerking gjørd í gerðabókina um hetta. Matrikulin verður førdur, so sum matrikulmyndugleikin heldur eigndómsviðurskiftini vera, men undir viðkomandi matr. nr. verður stutt viðmerking førd um ósemjuna.

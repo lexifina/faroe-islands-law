@@ -1,0 +1,1 @@
+§ 33. Um ikki eigari áðrenn 4 vikur eftir, honum er sent álit um seting av fyribilsmarki, gjørt samsvarandi § 32, síðsta stk., stevnir grannaeigaranum fyri rættin til at viðurkenna eitt annað mark, fær fyribilsmarkið sama rættsliga týdning sum mark, semja er gjørd um.

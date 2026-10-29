@@ -1,0 +1,1 @@
+§ 10. Skjøl, sum hava verið framløgd í teimum í hesum kapitli nevndu rættarmálum, mugu ikki verða afturflýggjað, fyrrenn kærufreistin er úti. Áðrenn afturflýggjað verður, skal hvørt skjal fáa átekning frá sorinskrivaranum um, hvussu nógv av innihaldinum er góðkent fyri viðkomandi eigindóm.
