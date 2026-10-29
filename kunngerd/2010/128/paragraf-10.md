@@ -1,0 +1,2 @@
+§ 10. Matvøruvirki mugu ikki, uttan serligt loyvi frá Heilsufrøðiligu starvsstovuni, takast við annað virksemi enn tað, sum skrásetingin fevnir um.
+Stk. 2. Høli, amboð og innbúgv mugu bert nýtast til tað virksemi, sum skrásetingin fevnir um. Heilsufrøðiliga starvsstovan kann tó í serligum førum loyva, at høli, amboð og innbúgv verða nýtt til virking av øðrum matvørum, antin samstundis ella tá vanliga virksemi ikki fer fram.

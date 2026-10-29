@@ -1,0 +1,2 @@
+§ 5. Smásøluvirki, ið fevnir um sølu ella viðgerð av matvørum, og heilsøluvirki, ið fevnir um sølu, goyming, áfylling, pakking, umpakking ella flutning av matvørum, kann byrja, tá løggilding er fingin til hetta virksemi frá Heilsufrøðiligu starvsstovuni.
+Stk. 2. Tað sama er galdandi fyri sølu av matvørum á gistingarhúsum, matstovum og fyri virkismatstovur og stovnskøkar við fleiri enn 12 føstum kostgangarum, og fyri høli, ið verða leigað út til matgerð og/ella borðreiðing.

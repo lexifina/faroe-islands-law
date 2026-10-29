@@ -1,0 +1,2 @@
+§ 14. Umsókn um skráseting skal verða send Heilsufrøðiligu starvsstovuni á serligum oyðublað. Virkir, sum søkja um skráseting, skulu saman við umsóknini lata starvsstovuni allar neyðugar upplýsingar.
+Stk. 2. Eitt virki, sum fevnir um fleiri framleiðslueindir ella bygningar, sum, orsakað av landafrøðiligari frástøðu, ikki natúrliga eru samanhangandi, skal søkja um skráseting fyri hvørja einstaka framleiðslu-eind ella bygning.

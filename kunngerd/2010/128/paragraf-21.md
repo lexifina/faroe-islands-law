@@ -1,0 +1,1 @@
+§ 21. Verður eitt brot ikki mett at hava við sær harðari revsing enn bót, kann Heilsufrøðiliga starvsstovan boða frá, at málið kann verða gjørt av uttan rættarsókn, um tann, sum hevur framt brotið, játtar seg sekan í brotinum og váttar innan eina nærri ásetta freist, ið eftir umsókn kann verða longd, at rinda eina í fráboðanini ásetta bót.

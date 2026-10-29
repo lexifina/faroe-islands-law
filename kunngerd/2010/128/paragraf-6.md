@@ -1,0 +1,1 @@
+§ 6. Hagreiðing av matvørum, sum fer fram á øðrum staði enn tí øki, har vørurnar verða veittar endabrúkaranum, kann verða løggildað sambært § 5, um veitingin fer fram frá einum einstøkum føstum ella koyrandi sølustaði, og um hagreiðingin og veitingin verður fyriskipað av sama eigara ella brúkara.
