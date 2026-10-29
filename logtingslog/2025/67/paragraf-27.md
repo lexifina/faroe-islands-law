@@ -1,0 +1,2 @@
+§ 27. Henda løgtingslóg kemur í gildi dagin eftir, at hon er kunngjørd.
+Stk. 2. Kunngerðir, sum eru settar í gildi sambært løgtingslóg nr. 104 frá 5. september 1988 um apoteksverkið og heilivág, og sum ikki eru í ósamsvari við hesa løgtingslóg ella løgtingslóg um apoteksverkið og heilivág, verða verandi í gildi, til tær verða settar úr gildi ella verða avloystar av reglum, givnum við heimild í hesi løgtingslóg ella løgtingslóg um apoteksverkið og heilivág.

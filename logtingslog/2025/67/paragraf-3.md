@@ -1,0 +1,2 @@
+§ 3. Landsstýrisfólkið kann áseta reglur um, at løgtingslógin heilt ella fyri ein part skal fevna um vøru, sum skal nýtast til fyribyrging, avgerð um og viðgerð av sjúku ella vøru, fevnd av § 2 um so er, at serligir eginleikar ella óheppin árin standast av at nýta hesar vørur.
+Stk. 2. Landsstýrisfólkið kann áseta reglur um, at løgtingslógin heilt ella fyri ein part ikki skal fevna um vørur ella vørubólkar, fevnd av § 4, nr. 1, og áseta serligar reglur fyri hesar.

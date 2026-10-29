@@ -1,0 +1,1 @@
+§ 17. Landslæknin og landsdjóralæknin kunnu leggja sínar heimildir, sambært hesum kapitli, til vísindasiðseminevndina, samanber anordning om ikrafttræden for Færøerne af sundhedsvidenskabelige forskningsprojekter og sundhedsdatavidenskabelige forskningsprojekter.

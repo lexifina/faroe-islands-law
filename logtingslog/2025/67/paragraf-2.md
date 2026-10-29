@@ -1,0 +1,1 @@
+§ 2. Løgtingslógin fevnir ikki um matvørur, kostískoyti, fóður, vakurleikarøkt t.e. kosmetikk, líveitur t.e. biosider, medisinska útgerð, tubbaksvøru ella líknandi nikotin vøru, radionukleid í afturlatnum keldum, óviðgjørdan vevnað, kyknur og blóðflot frá fólki, undantikið blóðflot sum rávøra í heilivágsframleiðslu.

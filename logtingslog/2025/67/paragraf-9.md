@@ -1,0 +1,1 @@
+§ 9. Landsstýrisfólkið ásetir reglur um, hvør heilivágur skal útflýggjast eftir resept, um hvussu reseptir skulu orðast, setast upp o.a., um generiska umbýting, um útlendskar reseptir og teirra gildi her á landi, um útflýggingarbólkar og útflýgging í serstøkum føri uttan trygd fyri gjalding.
