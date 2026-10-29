@@ -1,0 +1,3 @@
+§ 21. Fjarskiftiseftirlitið kann áleggja lyklamiðstøðini at velja ein nýggjan skipanargrannskoðara, sbr. § 6, stk. 2, innan ávísa tíðarfreist, um virkandi skipanargrannskoðarin eyðsæð er óegnaður til starv sítt.
+Stk. 2. Fjarskiftiseftirlitið kann áleggja skipanargrannskoðaranum at lata upplýsingar um viðurskifti hjá lyklamiðstøðini uttan góðkenning frá lyklamiðstøðini.
+Stk. 3. Tá skift verður grannskoðara, skal lyklamiðstøðin og tann fráfarandi skipanargrannskoðarin ella teir fráfarandi skipanargrannskoðararnir hvør sær lata Fjarskiftiseftirlitinum frágreiðing. Fjarskiftiseftirlitið kann geva boð um at akta 1. pkt.

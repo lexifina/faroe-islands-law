@@ -1,0 +1,3 @@
+§ 8. Ein lyklamiðstøð skal, tá skikkað prógv verður útgivið, tryggja, at undirskrivarin, samstundis sum prógvið verður útgivið, ræður yvir teimum undirskriftardátum, ið samsvara við tær ásanningardátur, ið eru í próvnum.
+Stk. 2. Tá skikkað prógv verða útgivin, har tað er lyklamiðstøðin, sum letur undirskriftar- og ásanningardátur, skal bara nýtast undirskriftar- og ásanningardátur, sum hoyra saman á eindømis hátt. Lyklamiðstøðin skal tryggja trúnaðin av undirskriftardátunum undir framleiðsluni.
+Stk. 3. Ein lyklamiðstøð skal áseta mannagongdir fyri útgávu av prógvum, sum gera tað møguligt at dag- og tíðarfesta útgávuna.

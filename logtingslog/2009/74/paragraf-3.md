@@ -1,0 +1,2 @@
+## Útlendskar lyklamiðstøðir
+§ 3. Ein lyklamiðstøð etablerað í einum ES-landi, ella einum landi, sum hevur gjørt avtalu við ES, sum tryggjar, at landið lýkur krøvini í fyriskipan 1999/93/EF um felagsskapsrammu fyri elektroniskar undirskriftir (skjal 1), kann geva út skikkað prógv, sbr. § 5, til almenningin í Føroyum, um lyklamiðstøðin lýkur krøvini til útgávu av skikkaðum prógvum í viðkomandi landi, og um ein sínámillum avtala er gjørd millum Føroyar og ES, ella millum Føroyar og landið, har lyklamiðstøðin er etablerað.

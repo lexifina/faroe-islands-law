@@ -1,0 +1,2 @@
+§ 20. Fjarskiftiseftirlitið kann krevja, at lyklamiðstøðin gevur fráboðan um allar upplýsingar, ið eru neyðugar fyri at útinna eftirlitið sbrt. § 19, undir hesum at taka avgerð um likamligur ella løgfrøðiligur persónur er umfataður av eftirlitinum.
+Stk. 2. Lyklamiðstøðin og skipanargrannskoðarin skulu beinanvegin fráboða Fjarskiftiseftirlitinum um viðurskifti, sum hava avgerðandi týdning fyri framhaldandi virksemi hjá lyklamiðstøðini.
