@@ -1,0 +1,1 @@
+§ 1. [^1] Líkningarráð Føroya fyrisitur skipanina viðvíkjandi inn- og útgjalding av frítíðarløn, sum er ásett í § 10, 2. stk. í lógini. Ráðið fyrisitur og útinnir tær uppgávur, sum lógin áleggur grunninum í sambandi við inn- og útgjalding av frítíðarløn.
