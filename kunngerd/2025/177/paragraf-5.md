@@ -1,0 +1,1 @@
+§ 5. Øll neyðug skjøl verða útflýggjað í sambandi við eftirlitið. Tað kann vera ársfrágreiðing frá kommununi, avrit av skrivligum klagum um tilboð og tænastur, avrit av fundarfrásagnum og annað viðkomandi tilfar.
