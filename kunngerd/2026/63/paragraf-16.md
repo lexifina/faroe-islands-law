@@ -1,0 +1,1 @@
+§ 16. Kann tann, sum framleiðir grøði ella fóður, prógva, at hann hevur verið fyri missi av náttúruávum ella øðrum serligum ávum, verður latin stuðul, sum svarar til ta mistu inntøkuna, sbr. tó avmarkingarnar í § 15.
