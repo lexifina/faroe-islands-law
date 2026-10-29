@@ -1,0 +1,1 @@
+§ 9. Um so er, at haldaranummarið verður porterað aftur til tann latandi veitaran, sbrt. § 8, stk. 1, hevur tann móttakandi veitarin einki krav mótvegis endabrúkaranum, hvørki sum fastar útreiðslur ella sum brúkarabundnar útreiðslur fyri porteringina ella fyri tað tíðarskeiðið, sum haldaranummarið hevur verið virkið hjá tí móttakandi veitaranum.

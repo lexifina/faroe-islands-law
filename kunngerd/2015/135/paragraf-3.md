@@ -1,0 +1,2 @@
+§ 3. Umbøn um at fremja nummarportering fyri ein endabrúkara verður send av tí móttakandi veitaranum til tann latandi veitaran.
+Stk. 2. Ein umbøn um portering skal innihalda upplýsingar um navn, bústað, sáttmálaeyðmerking hjá endabrúkaranum og haldaranummarið, sum skal porterast. Harafturat skal tann móttakandi veitarin í umbønini vátta, at endabrúkarin hevur heimilað honum at siga avtaluna hjá endabrúkaranum upp við tann latandi veitaran og biðja um portering.

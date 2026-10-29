@@ -1,0 +1,1 @@
+§ 6. Tann latandi veitarin skal fremja porteringina uttan útreiðslur fyri endabrúkaran. Porteringin má annars, frá tí latandi veitaranum, ikki geva høvi til nakað slag av mismuni mótvegis endabrúkaranum, í mun til aðrar líknandi endabrúkarar.

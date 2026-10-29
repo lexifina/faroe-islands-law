@@ -1,0 +1,3 @@
+§ 5. Tann latandi veitarin skal avgreiða eina umbøn um portering skjótast til ber og í seinasta lagi innan vanliga arbeiðstíð dagin eftir at umbønin er móttikin.
+Stk. 2. Fjarskiftiseftirlitið kann leingja freistina í stk. 1, um Fjarskiftiseftirlitið ítøkiliga metir, at freistin ikki er rímilig, undir hesum orsakað av, at talan er um eina nýggja skipan, eitt tillagingartíðarskeið ella eina umbøn um portering av somikið stórari nøgd av numrum, at tann latandi veitarin ikki megnar at avgreiða øll numrini til tíðina.
+Stk. 3. Hóast stk. 1 og 2, skal porteringin altíð avgreiðast á tann hátt, at tann latandi og móttakandi veitarin saman tryggja, at haldarasambandið hjá endabrúkaranum verður slitið í so stutta tíð sum møguligt.

@@ -1,0 +1,3 @@
+## Klagur um nummarportering
+§ 14. Um tað verður klagað um nummarporteringar, um tað so snýr seg um átalur frá endabrúkara mótvegis einum ella fleiri veitarum ella átalur frá veitara mótvegis øðrum veitarum, verða hesar viðgjørdar av Fjarskiftiseftirlitinum, ið tekur umsitingarliga avgerð viðvíkjandi møguligum broti á galdandi reglur.
+Stk. 2. Um so er, at tað eisini verða reist fíggjarlig krøv sambært hesum reglum, ella út frá vanligum rættarreglum og høvuðsreglum, kann Fjarskiftiseftirlitið viðvirka í samráðingum um eina semju, um ein slík er møgulig, og annars mugu krøvini vísast til teir vanligu dómstólarnar.
