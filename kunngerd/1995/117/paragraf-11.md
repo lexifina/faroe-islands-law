@@ -1,0 +1,1 @@
+§ 11. Tann, ið fær loyvi til at nýta savnindi, ið ikki eru alment atgongd, tó ikki telduskráir, kann lata tilfarið avrita, uttan so at tað í loyvinum er ásett, at avritan ikki er loyvd. Tað er ikki loyvt at flyta víðari ella at almannakunngera avrit av savnindum, ið ikki eru alment atgongd, uttan serstakt loyvi frá landsskjalasavninum.

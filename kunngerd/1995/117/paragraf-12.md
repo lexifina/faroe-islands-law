@@ -1,0 +1,1 @@
+§ 12. Atgeingifreistirnar í §§ 11 og 13 í løgtingslóg um Føroya Landsskjalasavn eru eisini galdandi fyri savnindi, ið eru avhend landsskjalasavninum, áðrenn lógin kom í gildi, um ikki onnur freist er ásett við serstakari avgerð ella verður avtalað við avhendandi myndugleika.
