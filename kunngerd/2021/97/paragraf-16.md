@@ -1,0 +1,2 @@
+## Lestrarvegleiðingin
+§ 16. Fróðskaparsetur Føroya bjóðar lesandi lestrarvegleiðing um útbúgvingarnar á Fróðskaparsetri Føroya og starvsmøguleikar, ið útbúgvingarnar geva. Fróðskaparsetur Føroya veitir lesandi vegleiðing í sambandi við lestrarvist. Lestrarvegleiðingin vegleiðir um rættindi og skyldur hjá tí lesandi í sambandi við lesturin. Harumframt kann lestrarvegleiðingin ráðgeva lesandi við sosialum, persónligum og fíggjarligum avbjóðingum í sambandi við lestur.
