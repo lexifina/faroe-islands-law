@@ -1,0 +1,2 @@
+§ 1. Føroya Kærustovnur er fyrisitingarmyndugleiki, fevndur av fyrisitingarlógini, og virkar óheftur av landsfyrisitingini. Virksemið hjá Føroya Kærustovni er grundað á meginregluna um, at øll eru líka og hava sama rætt sambært lógini. Føroya Kærustovnur virkar fyri, at rættar avgerðir verða tiknar stundisliga.
+Stk. 2. Avgerðir hjá Føroya Kærustovni kunnu ikki kærast til annan fyrisitingarligan myndugleika.
