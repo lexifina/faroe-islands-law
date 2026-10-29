@@ -1,0 +1,1 @@
+§ 5. Um arbeiðið í Føroyum, sum upprunaliga ikki var ætlað at vara longri enn 6 mánaðir, seinni vísir seg at vara longri enn 6 mánaðir, hevur persónur gjaldsskyldu til Arbeiðsloysisskipanina, eftir at hava verið í arbeiði í 6 mánaðir.
