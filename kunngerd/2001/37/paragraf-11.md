@@ -1,0 +1,2 @@
+§ 11. [^1] Um so er, at umstøðurnar, sum liggja til grund fyri loyvinum, verða broyttar munandi, skal eigari ella brúkari av havstøð beinanvegin geva Umhvørvisstovuni fráboðan um hetta.
+Stk. 2. [^1] Umhvørvisstovan kann til eina og hvørja tíð broyta ella taka loyvi aftur, um so er, at reglur ella ásettar treytir sambært hesi kunngerð ikki verða hildnar. Sama er galdandi, um tað í umsókn um loyvi eru latnar rangar ella villleiðandi upplýsingar, ella um umstøðurnar munandi eru broyttar.
