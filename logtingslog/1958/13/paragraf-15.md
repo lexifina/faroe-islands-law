@@ -1,0 +1,1 @@
+§ 15. Eftir at starvsmaður hevur givið ella tikið ímóti uppsøgn úr tænstuni, skal arbeiðsgevari geva honum tørvandi loyvi frá arbeiði at søkja sær annað starv. Starvsmaður skal tó sýna ynskjum arbeiðsgevara mest møguligt fyrilit soleiðis, at hann nýtir tær tíðir, sum hóska virkinum best, at leita sær eftir starvi.
