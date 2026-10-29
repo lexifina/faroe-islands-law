@@ -1,0 +1,1 @@
+§ 7. Avgjald, sum er goldið aðrastaðni enn í Føroyum av vinningi haðani, kann verða drigið frá í tí gjaldi, sum latast skal eftir hesi lóg. Frádrigið kann tó ikki verða meira enn tað avgjald, sum annars skuldi verið rindað landskassanum eftir hesi lóg.

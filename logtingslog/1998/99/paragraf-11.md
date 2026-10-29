@@ -1,0 +1,1 @@
+§ 11. Toll- og Skattstova Føroya kann boða loyvishavaranum frá, at málið kann verða loyst uttan rættarviðgerð, um so er, at hann viðgongur seg sekan í lógarbrotinum og váttar, at hann innan nærri ásetta freist, sum eftir áheitan kann verða longd, vil gjalda eina í fráboðanini tilskilaða bót.

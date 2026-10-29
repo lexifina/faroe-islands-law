@@ -1,0 +1,1 @@
+§ 3. Avgjøld av vinningum eftir løgtingslóg um ítróttarvedding, føroyskan happadrátt, kringvarp og happadráttarloyvi til Útvarp Føroya skulu fráboðast og rindast landskassanum eftir reglum ásettar av landsstýrismanninum.
