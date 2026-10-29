@@ -1,0 +1,1 @@
+§ 2. Av inntøku sambært § 1 skal verða goldin persónsskattur, skattur í sambandi við deyðsbúgv, felagsskattur og annað sambært vanligu reglunum í skattalóggávuni við teimum broytingum, ið kapittul 2 og 3 hava við sær.

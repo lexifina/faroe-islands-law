@@ -1,0 +1,6 @@
+## Kapittul 3
+## Aðrar reglur
+§ 11. Persónar, ið ikki koma undir reglurnar í §§ 1 og 2 í skattalógini um skattskyldu, og sum hava inntøku í samband við vinnuligt virksemi, ið kemur undir hesa lóg, gjalda bert inntøkuskatt til landskassan, 35 prosent av skattskyldugu inntøkuni. Undantikin er inntøka, sum er nevnd í § 4.
+Stk. 2. Persónar, ið ikki koma undir reglurnar í § 1 í skattalógini, og sum arbeiða fyri ein arbeiðsgevara, sum ikki hevur heimating her á landi, gjalda ein endaligan skatt til landskassan, 35 prosent av bruttoinntøku, ið kemur undir hesa lóg. Undantikin er inntøka, sum er nevnd í § 4, og onnur sløg av inntøku av vinnuligum virksemi.
+Stk. 3. [^2] Persónar og feløg, sjálvsognarstovnar, felagsskapir, deyðsbúgv o.o., ið hava inntøku, sum er nevnd í § 4, stk. 1 og 2, gjalda umframt serskatt eftir kapittul 2a inntøkuskatt til landskassan av tílíkari inntøku við 27%. Inntøkuskatturin verður at rokna serstakt av inntøku, ið kemur undir § 4, stk. 1 og 2.
+Stk. 4. Skattur, ið er goldin av feløgum, sjálvsognarstovnum, felagsskapum, deyðsbúgvum, o.ø., sum ikki koma undir reglurnar í §§ 1 ella 2 í skattalógini, og sum hava inntøkur, ið koma undir hesa lóg, undantiknar inntøkur, nevndar í § 4, fellur llur til landskassan.

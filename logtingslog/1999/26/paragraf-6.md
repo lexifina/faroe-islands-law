@@ -1,0 +1,3 @@
+§ 6. Ein nevnd, ið landsstýrismaðurin setur, setur normprísin. Í nevndini eru formaður og 4 aðrir limir umframt eykalimir fyri teir. Formaðurin verður settur eftir tilmæli frá sorinskrivaranum. Í nevndini skal vera umboðan við løgfrøðiligum, búskaparligum, roknskaparligum og tøknifrøðiligum serkunnleika. Í minsta lagi tveir av limunum skulu harumframt hava serstakan kunnleika til handil við kolvetni. Limirnir og tiltakslimirnir fyri nevndarlimirnar verða tilnevndir fyri 4 ár.
+Stk. 2. Landsstýrismaðurin ger starvsskipanina hjá nevndini.
+Stk. 3. Avgerðir hjá nevndini kunnu ikki verða skotnar inn fyri annan fyrisitingarligan myndugleika.

@@ -1,0 +1,1 @@
+§ 10 d. Útveganarpeningurin fyri loyvisbrøv, loyvi ella rættindi, nevnd í § 4, stk. 1, nr. 3, og sum verða útvegað aftaná, at leiðbyggiætlanin er góðkend, skal dragast frá tað árið, útveganin fer fram.

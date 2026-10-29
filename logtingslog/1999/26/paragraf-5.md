@@ -1,0 +1,4 @@
+§ 5. Landsstýrismaðurin kann taka avgerð um, at normprísir skulu verða ásettir fyri framleidd kolvetni til at nýta í uppgerðini av skattskyldugu inntøkuni. Avgerast kann, at normprísir bert verða settir á flótandi kolvetni.
+Stk. 2. Normprísurin skal svara til marknaðarprísin í sølu millum óheftar partar undir fríum marknaðartreytum. Normprísurin skal verða ásettur aftureftir fyri 3 mánaðir í senn.
+Stk. 3. Eru normprísir ásettir sambært stk. 1, verður nevnda inntøka í § 4, stk. 1, nr. 1 og 2 og stk. 2, uppgjørd eftir tí normprísi, ið var galdandi, tá sølan fór fram, ella úttøka sambært § 4, stk. 2 varð framd, av tí framleidda kolvetni, við teimum broytingum, sum eru treytaðar av frávikum í dygd, latingarstaði, latingartreytum og gjaldstreytum fyri ta einstøku latingina.
+Stk. 4. Uppgerðarháttur nevndur í stk. 3 skal verða nýttur uttan mun til, um tann veruliga inntøkan víkir frá tí ásettu inntøkuni.

@@ -1,0 +1,2 @@
+§ 9. Útveganarupphædd fyri loyvisbrøv, loyvir og rættindir sum nevnd í § 4, stk. 1, nr. 3, kunnu verða avskrivað við javnstórum árligum upphæddum yvir 5 ár.
+Stk. 2. Selur ella letur hin skattskyldugi innaftur loyvisbræv, loyvi ella rættindi, ella tekur landsstýrismaðurin hetta aftur, kann tann ikki avskrivaði parturin sambært stk. 1 verða avskrivaður í tí inntøkuári, tá søla, innlating ella afturtøka verður framd.

@@ -1,0 +1,1 @@
+§ 10 b. Útreiðslur, sum eru hildnar undan góðkenning av leiðbyggiætlanini, kunnu ikki dragast frá. Tó kunnu dragast frá tær útreiðslur, sum hava beinleiðis samband við fund og meting av viðkomandi kolvetnisleið(um). Hesar útreiðslur kunnu dragast frá tað árið, leiðbyggiætlanin verður góðkend. Landsstýrismaðurin kann áseta nærri reglur um, hvørjar útreiðslur kunnu dragast frá.
