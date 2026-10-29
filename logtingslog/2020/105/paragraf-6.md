@@ -1,0 +1,8 @@
+## Kapittul 6
+## Sjálvuppgáva og gjalding
+§ 6. [^1] Persónar og feløg, skattskyldug eftir hesi løgtingslóg, skulu í seinasta lagi 60 dagar aftan á eina sølu av veiðirættindum senda TAKS eina sjálvuppgávu, ið vísir úrslitið av søluni. Sama er galdandi við sølu av partabrøvum og umskipan í samtaki. Feløgini, sum eru við í eini umskipan, skulu lata TAKS upplýsingar um allar partaeigarar og øll feløg, ið eru við í umskipanini. Feløg, sum eru við í eini umskipan, sambært § 3, stk. 4, skulu lata TAKS upplýsingar um útlutan av vinningsbýti og eina uppgerð yvir avroknaðan skatt fyri hvønn parteigara sær. TAKS kann, tá ið serligar grundir eru til tess, leingja freistina fyri at lata inn upplýsingar.
+Stk. 2. [^1] Verður fullfíggjað sjálvuppgáva av inntøku ikki latin TAKS rættstundis, ella sjálvuppgávan ikki kemur inn, verður sekt áløgd við í minsta lagi kr. 1.000 og í mesta lagi kr. 5.000. Verður latið inn minni enn 7 dagar ov seint, verður samanlagdi serskatturin hækkaður við 2%. Verður latið inn 7 dagar ov seint ella seinni, verður samanlagdi serskatturin harumframt hækkaður við 5%.
+Stk. 3. [^1] Verður sjálvuppgáva ikki rættstundis send til TAKS, hevur TAKS heimild at áseta skattskyldugu inntøkuna eftir ætli.
+Stk. 4. [^1] Skattur, álíknaður sambært hesi løgtingslóg, skal gjaldast til landskassan í seinasta lagi 60 dagar eftir, at freistin fyri innlating av sjálvuppgávu er farin.
+Stk. 5. [^1] Verður skattur eftir stk. 2 ikki goldin rættstundis, verður renta roknað við 0,3% fyri hvønn byrjaðan mánað frá gjaldsdegnum at rokna.
+Stk. 6. [^1] Landsstýrismaðurin kann áseta nærri reglur fyri sjálvuppgávu og inngjalding av skatti.
