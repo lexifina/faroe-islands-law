@@ -1,0 +1,2 @@
+§ 8. Persónar, ið útinna tænastu sambært hesi lóg, skulu boða kommununum frá, tá hesi í yrki sínum fáa kunnleika um viðurskifti, ið geva gruna um, at tørvur er á persónligari hjálp, røkt ella stuðli, ella tá borgarin á annan hátt livir undir ónøktandi korum.
+Stk. 2. Læknar skulu boða kommununum frá, tá teir í yrki sínum fáa kunnleika um viðurskifti hjá borgara, ið geva gruna um, at viðkomandi hevur tørv á hjálp ella stuðli sambært hesi lóg.
