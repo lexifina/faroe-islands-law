@@ -1,0 +1,3 @@
+§ 3 h. [^2] Landsstýrismaðurin kann leggja sínar heimildir sbrt. § 3 b, stk. 3, § 3 d, § 3 e, stk. 1 og 2 og § 3 f til ein annan myndugleika ella almennan stovn. Ger landsstýrismaðurin tað, kann hesin myndugleikin ella stovnurin krevja gjald fyri sínar tænastur.
+Stk. 2. Ger landsstýrismaðurin av at leggja heimildir sínar sambært hesi løgtingslóg til eina annan myndugleika ella stovn, kann landsstýrismaðurin áseta reglur um kærur um avgerðir, tiknar av hesum myndugleika ella stovni, undir hesum áseta kærufreist uppá 4 vikur, og avgera, at ávíst slag av avgerðum ikki kann kærast til hægri fyrisitingarligan myndugleika.
+Stk. 3. [^4] Landsstýrismaðurin kann eisini leggja sín kærumyndugleika til Føroya Kærustovn, hvørs avgerðir eru endaligar innan fyrisitingina.

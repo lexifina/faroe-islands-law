@@ -1,0 +1,1 @@
+§ 3 c. [^2] Landstýrismaðurin ásetur í kunngerð nærri reglur um vápnaprógv, herundir krøvini til at fáa vápnaprógv, útvegan av revsiváttan, skráseting av vápnaprógvi, møguleikan at taka vápnaprógv aftur og reglur um títtleikan at endurtaka vápnatrygdarskeiðið.

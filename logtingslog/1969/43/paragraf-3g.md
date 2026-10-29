@@ -1,0 +1,1 @@
+§ 3 g. [^2] Persónar, ið hava staðið vápnatrygdarskeið uttanlands ella sum liður í útbúgving, kunnu fáa føroyskt vápnaprógv, um tað lokna vápnatrygdarskeiðið verður mett at vera á minst sama støði sum tað føroyska.
