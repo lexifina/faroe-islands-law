@@ -1,0 +1,3 @@
+§ 5. [^1] Landsstýrismaðurin velur fimm limir í sjúklingaráðið eftir uppskoti frá sjúklingafeløgum, sum umboða sjúklingar, ið vanliga verða viðgjørdir á sjúkrahúsunum. Feløgini kunnu í mesta lagi hvør sær skjóta upp fimm umboð.
+Stk. 2. [^1] Landsstýrismaðurin velur limirnar soleiðis, at samansetingin av ráðnum verður so breið sum gjørligt. Miðað skal verða ímóti, at umboðini í ráðnum eru av báðum kynum, sbr. § 8 í løgtingslóg um javnstøðu millum kvinnur og menn, og av ymsum landafrøðiligum økjum í Føroyum.
+Stk. 3. Sjúklingaráðið verður tilnevnt eftir hvørt løgtingsval. Limirnir í sjúklingaráðnum verða sitandi í ráðnum, til nýggir limir eru tilnevndir.
