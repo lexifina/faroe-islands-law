@@ -1,0 +1,4 @@
+§ 30. Persónar, ið søkja stuðul til fyriskipan sambært hesi lóg, hava skyldu at virka fyri at upplýsa málið, herímillum at vera við í neyðugum læknakanningum ella viðgerðum.
+Stk. 2. [^2] Um persónur ikki virkar fyri at upplýsa málið, ella sýtir fyri at geva samtykki til, at Almannaverkið kann biðja um upplýsingar, skal Almannaverkið viðgera málið út frá verandi upplýsingum í málinum.
+Stk. 3. [^2] Persónar hava skyldu at upplýsa Almannaverkinum um allar broytingar í fyriskipanartíðarskeiðnum, ið kunnu hava ávirkan á rættindi sambært hesi lóg. Arbeiðsgevarar hava somuleiðis í sambandi við fyriskipan sbrt. § 9, stk. 1, nr. 2, 3, 5 og sbrt. § 21 skyldu at boða Almannaverkinum frá um broytingar í starvsviðurskiftunum, ið kunnu hava týdning fyri rættin til lønarískoyti.
+Stk. 4. [^2] Almannaverkið skal skriftliga kunna viðkomandi persón og arbeiðsgevara um, hvørjar broytingar kunnu hava ávirkan á rættindi sambært hesi lóg.

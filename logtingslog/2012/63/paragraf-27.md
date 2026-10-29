@@ -1,0 +1,2 @@
+§ 27. [^6] [^1] Um persónur, ið hevur fingið stuðulsveiting sambært § 12, ikki hevur arbeiði eftir lokna fyriskipan sbrt. § 9, stk. 1, nr. 1 og 2, fær viðkomandi í eitt tíðarskeið á í mesta lagi tríggjar mánaðir veiting sbrt. § 11, sbr. § 12, í løgtingslóg um almannatrygd og tænastur, uttan mun til ogn, roknað frá síðsta degi í tí mánaði, fyriskipanin endaði.
+Stk. 2. [^6] Kvinnur, sum vegna barnsburð fara í farloyvi frá fyriskipan sbrt. § 9, stk. 1 kunnu fáa framhaldandi veiting sbrt. § 12 ella 13 a í mesta lagi í 12 mánaðir.

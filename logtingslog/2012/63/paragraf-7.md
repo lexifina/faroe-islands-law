@@ -1,0 +1,3 @@
+§ 7. [^1] Persónur, ið luttekur í virknisvenjing, fær framhaldandi stuðulsveiting sbrt. § 11, sbr. § 12, í løgtingslóg um almannatrygd og tænastur ella sbrt. løgtingslóg um dagpening vegna sjúku v.m. Persónur í virknisvenjing sbrt. § 5, stk. 1, nr. 1 fær harumframt eina virknisviðbót í tíðarskeiðinum fyri virknisvenjingina. Virknisviðbót kann tó ikki latast, um samlaði stuðulin hervið verður hægri enn veiting sbrt. § 12.
+Stk. 2. Virknisviðbótin lækkar ella fellur burtur við ógrundaðari fráveru.
+Stk. 3. Landsstýrismaðurin ásetur í kunngerð nærri reglur um virknisvenjing, tímatal, upphædd fyri virknisviðbót og lækking av virknisviðbót.

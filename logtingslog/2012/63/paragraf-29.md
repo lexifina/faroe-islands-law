@@ -1,0 +1,2 @@
+§ 29. [^2] Almannaverkið kann við samtykki borgarans krevja almennar myndugleikar, útbúgvingarstovnar, sjúkrahús, heilsustarvsfólk, arbeiðsloysisskipanina, tryggingarfeløg, arbeiðsgevarar, privat, ið útinna uppgávur fyri tað almenna, o.o. eftir upplýsingum, undir hesum upplýsingar um heilt privat viðurskifti og aðrar trúnaðarupplýsingar, ið hava týdning fyri viðgerð av máli sambært hesi lóg.
+Stk. 2. [^2] Almannaverkið kann í málum um afturgjald av stuðli sbrt. § 32 innheinta upplýsingar sbrt. stk. 1 uttan samtykki.

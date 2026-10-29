@@ -1,0 +1,2 @@
+§ 17. [^4] Um persónur, ið fær stuðulsveiting sbrt. § 12 ella § 13 a, stk. 1, verður sjúkur og fyribils ikki kann fylgja fyriskipanarætlanini, kann stuðul sbrt. § 12 ella § 13 a, stk. 1 halda fram upp til 6 mánaðir, um útlit eru fyri, at fyriskipanin kann halda fram óbroytt aftaná sjúkraskeiðið hjá viðkomandi.
+Stk. 2. Um viðurskifti sbrt. stk. 1 gera seg galdandi fyri persón, ið fær lønarískoyti sbrt. § 14, verður lønarískoytið afturhildið, og veiting sbrt. § 12 veitt í staðin í tíðarskeiði sbrt. stk. 1.
