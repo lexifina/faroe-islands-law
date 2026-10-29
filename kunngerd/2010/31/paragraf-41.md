@@ -1,0 +1,2 @@
+§ 41. [^2] [^1] Grundað á eina tímauppgerð sendir Tryggingareftirlitið árliga uppgerð yvir kostnaðin av eftirliti sambært § 39 til landsstýrismannin.
+Stk. 2. [^2] [^1] Ein upphædd at nýta til eftirlit skal hvørt ár verða avtalað frammanundan við landsstýrismannin. Metir Tryggingareftirlitið í árinum, at avtalaða upphæddin ikki kemur at røkka, skal Tryggingareftirlitið sum skjótast boða landsstýrismanninum frá hesum.

@@ -1,0 +1,1 @@
+§ 5. Lánsbrøv kunnu ikki keypast fyri ein prís, sum fer upp um áljóðandi virðið. Lánsbrøv, sum verða útdrigin við einum ískoyti upp á eitt ávíst prosenttal av áljóðandi virðinum, kunnu tó keypast fyri ein prís, sum ikki fer upp um útdragingarupphæddina.

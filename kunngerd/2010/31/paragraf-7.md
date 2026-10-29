@@ -1,0 +1,5 @@
+§ 7. [^1] Setast kan í partar av íløgufeløgum ella deildir hjá slíkum, um hesar koma undir “lov om investeringsforeninger og specialforeninger samt andre kollektive investeringsordninger m.v.” ella samsvarandi ES/EØS-lóggávu. Tað er ein treyt, at tað í viðtøkunum hjá íløgufelagnum ikki er áseting um
+1) at felagið kann geva árligan stuðul av ognini til humaniterar ella almenngagnligar felagsskapir,
+2) at felagið kann luta út av síni ogn tey ár, tá vinningurin av íløgum ikki samsvarar við tørvin fyri inntøku, ella
+3) at útloysing ikki kann vera gjørd í einum frammanundan ásettum tíðarskeiði.
+Stk. 2. Øll ogn kann, uttan mun til markið í § 6, verða sett í partar av íløgufeløgum ella deildir hjá slíkum, um felagið ella deildin sambært viðtøkum sínum einans kann gera íløgur í lánsbrøv, sum lúka krøvini í § 4, stk. 1 og 2, og um tað sambært viðtøkunum í mesta lagi kann setast 50 prosent í vinnulánsbrøv, og um tað ikki kann verða sett í premiulánsbrøv og konvertibul lánsbrøv. Tað er eisini ein treyt, at viðtøkurnar hjá íløgufelagnum ikki hava ásetingar, som nevnt í stk. 1, 2. pkt., nr. 1-3.

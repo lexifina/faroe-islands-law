@@ -1,0 +1,1 @@
+§ 27. Umsitingardeildin skal ansa eftir, at setan aftur (“genanbringelse”) verður gjørd samsvarandi § 3 í løgtingslóg um umsiting av ogn hjá ómyndugum og persónum undir verju o.a. og kapittul 2 í hesi kunngerð.

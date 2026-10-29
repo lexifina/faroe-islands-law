@@ -1,0 +1,2 @@
+§ 32. Atkvøðurættin sambært umsitnum ognum hevur verjin, um ikki annað er avgjørt. Umsitingardeildin skal taka sær atkvøðurættin, um umsitingardeildin gerst varug við, at tað er neyðugt fyri at varðveita ognina ella fyri at tryggja framtíðar vinning av ognini.
+Stk. 2. Fellur vinningurin til ein annan enn kapitaleigaran, fellur atkvøðurætturin altíð til umsitingardeildina, um ikki annað er avgjørt.

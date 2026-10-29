@@ -1,0 +1,1 @@
+§ 17. [^3] Verjin umsitur ogn, sum ikki sambært løgtingslógini um umsiting av ogn hjá ómyndugum og persónum undir verju o.a. § 2, stk. 1, skal umsitast í eini umsitingardeild. Familjufyrisitingin kann tó, um serligar grundir eru fyri hesum, gera av, at ognin, sum verður umsitin av verjanum, skal umsitast í eini umsitingardeild.

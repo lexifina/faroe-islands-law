@@ -1,0 +1,2 @@
+§ 34. [^3] [^1] Umsitingardeildin skal ansa eftir, at útgjalding av ogn ella partar av henni einans verður gjørd við góðkenning frá Familjufyrisitingini, sbr. § 39 í anordning om ikrafttræden for Færøerne af værgemålsloven.
+Stk. 2. [^3] Letur verjin inn umsókn til umsitingardeildina um frígeving av ogn, skal umsitingardeildin senda umsóknina víðari til Familjufyrisitingina við upplýsing um stødd og samanseting av ognini og møguligar aðrar upplýsingar.

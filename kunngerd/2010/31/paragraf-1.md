@@ -1,0 +1,1 @@
+§ 1. [^1] Hendan kunngerðin er galdandi fyri verjumál fyri ómyndug og fyri fíggjarlig viðurskifti fevnd av øðrum verjumáli fyri vaksin eftir kapittul 1 og 2 í anordning om ikrafttræden for Færøerne af værgemålsloven.

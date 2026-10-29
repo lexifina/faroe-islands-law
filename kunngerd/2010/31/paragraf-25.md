@@ -1,0 +1,2 @@
+§ 25. Umsitur umsitingardeildin ogn, skal deildin gera ta skráseting, notering og tinglýsing, sum er nevnd í § 4 í Bekendtgørelse for Færøerne om værgemål, fyri ta ogn, sum verður umsitin í umsitingardeildini við tilskilan um, at ognin er undir umsiting v.m. hjá umsitingardeildini.
+Stk. 2. Fyri hvørt verjumál sær skal umsitingardeildin árliga gera eitt yvirlit yvir ognirnar, sum deildin umsitur. Yvirlitið skal eisini vísa tilgongd og frágongd í árinum. Yvirlitið skal fylgja álmanakkaárinum.

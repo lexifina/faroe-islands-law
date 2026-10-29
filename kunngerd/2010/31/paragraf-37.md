@@ -1,0 +1,1 @@
+§ 37. Tá verjumálið heldur uppat, skal ognin uttan uppsøgn vera tøk hjá tí, sum var undir verju, ella deyðsbúgvi hansara. Bundin ogn verður framhaldandi umsitin í samsvari við ásetingarnar í testamenti, gávubrævi o.l.

@@ -1,0 +1,2 @@
+§ 12. Við keyp av ogn verður útrokningin av mørkunum í § 6 og § 10, stk. 2 gjørd grundað á kursvirðið á teimum ognum, sum verða umsitnar av eini umsitingardeild um tað mundið, tá fleiri ognir verða fingnar. Um ongin almenn kursáseting er, verður skjalprógvaða handilsvirðið lagt til grund.
+Stk. 2. Umsitur verjin ogn eftir § 2, stk. 2, nr. 2 í løgtingslóg um umsiting av ogn hjá ómyndugum og persónum undir verju o.a., verður virðið av hesum ognum um tað mundið, tá fleiri ognir verða fingnar, lagt til grund fyri útrokningini eftir stk. 1.

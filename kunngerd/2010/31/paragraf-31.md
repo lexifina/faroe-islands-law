@@ -1,0 +1,1 @@
+§ 31. Umsitingardeildin skal í umsitingini av veðbrøvum og øðrum virðisbrøvum, sum eru útgivin sambært “bekendtgørelse om ydelse af henstand med udbetaling af umyndige livsarvingers arv” ansa eftir, at treytir í virðisbrævinum um rindan av rentu og aðrar serligar treytir verða hildnar.

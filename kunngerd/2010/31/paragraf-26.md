@@ -1,0 +1,4 @@
+## Umsiting hjá umsitingardeildini
+§ 26. Umsitingardeildin skal innseta reiðan pening á uppsøgn til hægstu vanligu innlánsrentu ella eftir áheitan frá verjanum setast á anfordring. Tá ein upphædd verður fingin við útdraging, innfrían ella á annan hátt, skal umsitingardeildin boða verjanum frá hesum við umbøn um at upplýsa, hvussu ognin skal setast, um tað ikki er gjørd serlig avtala um hetta.
+Stk. 2. Fer upphæddin, sum stendur á anfordring, upp um 75.000 kr., skal umsitingardeildin skrivliga kunna verjan um hetta og biðja verjan avgera, hvussu upphæddin skal setast. Verjin skal samstundis fáa fráboðan um, at um umsitingardeildin ikki innan 2 mánaðir hevur fingið áheitan um ávísa setan, so verður innistandandi reiðupeningurin settur á uppsøgn til hægstu vanligu innlánsrentu.
+Stk. 3. Reglurnar í stk. 2 verða ikki brúktar, um umsitingardeildin veit, at upphæddin um stutta tíð aftur fer niður um 75.000 kr.

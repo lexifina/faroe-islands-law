@@ -1,0 +1,3 @@
+## Latan av ogn til eina umsitingardeild
+§ 20. [^3] Almennir myndugleikar, tryggingarfeløg, pensjónskassar og peningastovnar, sum gjalda út framhaldandi veitingar til verjan, skulu boða frá hesum. Fráboðan skal altíð gevast Familjufyrisitingini. Fráboðanin skal eisini gevast til umsitingardeildina, um hendan umsitur ogn fyri tann, sum er undir verju. Fráboðanin skal upplýsa navn og bústað hjá verjanum, og navn, bústað og p-tal hjá tí, sum er undir verju, umframt støddina á mánaðarligu bruttoveitingini um tað mundið, tá boðað verður frá.
+Stk. 2. [^1] Tað skal ikki gevast fráboðan um pensjónsveitingar, sum verða útgoldnar sambært løgtingslóg um almannapensjónir o.a.

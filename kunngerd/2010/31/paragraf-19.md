@@ -1,0 +1,2 @@
+§ 19. Av inntøkunum kann verjin, uttan mun til um ein møgulig ogn verður umsitin av verjanum ella av eini umsitingardeild, lata eina upphædd upp á í mesta lagi 20.000 kr., ella tað, sum harumframt má roknast at vera neyðugt til framhaldandi útreiðslur, standa á eini serligari kontu í einum peningastovni hjá tí, sum er undir verju. Verjin skal geva kontuni átekning um, at hon er fevnd av umsiting verjans.
+Stk. 2. Verjin kan harafturat, hóast reglurnar í kapittul 2, hava hjá sær reiðan pening upp til 1.500 kr, um hetta má roknast at vera neyðugt.
