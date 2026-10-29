@@ -1,0 +1,3 @@
+§ 1. [^1] [^2] [^3] Landsstýrisfólkinum verður heimilað at skipa fyri, at partar av skúlabygningunum á Frælsinum verða høvuðsumvældir og umbygdir. Byggiútreiðslurnar kunnu í mesta lagi vera 39 mió. kr. íroknað prosjektering, ráðgeving og innbúgv, umframt útreiðslur til at gera eina heildarætlan fyri skúlabygningarnar á Frælsinum.
+Stk. 2. [^2] [^3] Landsstýrisfólkinum verður eisini heimilað at prosjektera heildarætlanina fyri skúlabygningarnar á Frælsinum fyri í mesta lagi 7,3 mió. kr.
+Stk. 3. [^3] Landsstýrisfólkinum verður eisini heimilað at halda útreiðslur til víðari at prosjektera næsta byggistig í skúlabygningunum á Frælsinum fram til útboð. Útreiðslurnar kunnu í mesta lagi verða 14,5 mió. kr.
