@@ -1,0 +1,1 @@
+§ 1. Heimilað verður landsstýrinum av játtan á løgtingsfíggjarlógini at útgjalda stuðul til rakstur og/ella veðhalda fyri parti av útgerðarláni, tó í mesta lagi ta til eina og hvørja tíð játtaðu upphædd á løgtingsfíggjarlógini, til tess at varðveita fjølbroyttan fiskiflota og at gjalda fyri eygleiðaraskipanir uttanfyri føroysku landleiðirnar.

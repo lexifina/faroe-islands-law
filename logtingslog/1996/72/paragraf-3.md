@@ -1,0 +1,1 @@
+§ 3. Á fiskileiðum uttanfyri føroysku landleiðirnar, har Føroyar sambært millumlanda avtalum ella øðrum avtalum hava skyldu at hava eftirlit við fiskiskapi, kann landsstýrið gjalda kostnaðin av tílíkum skipanum eftir hesi lóg.
