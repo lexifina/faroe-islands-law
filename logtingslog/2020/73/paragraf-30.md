@@ -1,0 +1,7 @@
+## Kærumøguleiki
+§ 30. [^1] Avgerð, tikin av Føroya Kærustovni sambært hesi løgtingslóg, kann ikki kærast til annan fyrisitingarligan myndugleika, og tað hevur ikki steðgandi virknað, um avgerðin verður løgd fyri Føroya Rætt. Føroya Kærustovnur skal eftir áheitan frá persóninum, advokati hansara ella avvarðandi skjótast gjørligt leggja avgerð, ið Føroya Kærustovnur hevur tikið sambært § 10 og §§ 13-20, fyri Føroya Rætt.
+Stk. 2. [^1] Inntriv, framt av leiðslu ella starvsfólki, ið ikki er sambært góðkendum tilmæli sambært § 24, kann innan 4 vikur eftir, at inntrivið er framt, leggjast fyri Føroya Kærustovn. Føroya Kærustovnur kann víkja frá hesi freist, um serlig orsøk er til tað. Føroya Kærustovnur skal taka avgerð skjótast gjørligt eftir, at kæran er móttikin.
+Stk. 3. [^1] Inntriv, framt av leiðslu ella starvsfólki, ið er eftir góðkendum tilmæli sambært § 24, kann í gildistíðini leggjast fyri Føroya Kærustovn av nýggjum, um mett verður, at inntrivið ikki lýkur treytirnar í § 3, samanber § 29, stk. 2. Føroya Kærustovnur skal taka avgerð skjótast gjørligt.
+Stk. 4. [^1] Avgerð sambært § 24, stk. 4 kann innan 4 vikur kærast til Føroya Kærustovn. Føroya Kærustovnur kann víkja frá hesi freist, um serlig orsøk er til tað.
+Stk. 5. Persónur, ið hevur verið fyri inntrivi, ið er 15 ár og eldri, advokatur hansara og avvarðandi hava kærurætt sambært stk. 2-4.
+Stk. 6. Kæruvegleiðing skal skjótast gjørligt gevast teimum, ið hava kærurætt sambært stk. 5.
