@@ -1,0 +1,5 @@
+## Heildarkvotur og býti av kvotunum
+§ 2. Fiskifør undir føroyskum flaggi kunnu í 2026 fiska 3.034 tons av toski, 1.172 tons av hýsu, 425 tons av upsa og 400 tons av øðrum botnfiski í norskum sjógvi norðan fyri 62°N.
+Stk. 2. Av heildarkvotunum sambært stk. 1 verða 2.879 tons av toski, 1.136 tons av hýsu, 408 tons av upsa og 390 tons av øðrum botnfiski latin teimum, sum í 2025 høvdu rætt til egna árskvotu av botnfiski í norskum sjógvi norðan fyri 62°N, undantikin kvota keypt á uppboði, ella teimum, sum hesin rættur er fluttur til. Fiskiskapurin verður skipaður við egnari árskvotu.
+Stk. 3. Av heildarkvotunum sambært stk. 1 verða 84 tons av toski, 20 tons av hýsu, 9 tons av upsa og 4 tons av øðrum botnfiski, sum eru áður seld uppboðssølurættindi, har gildistíðin er runnin, útlutað rættindahavarum sum egnar árskvotur til egið fiskifar við veiðiloyvi.
+Stk. 4. Av heildarkvotunum sambært stk. 1 verða 71 tons av toski, 17 tons av hýsu, 8 tons av upsa og 6 tons av øðrum botnfiski sett av til áður seld 8 ára rættindi á uppboði.

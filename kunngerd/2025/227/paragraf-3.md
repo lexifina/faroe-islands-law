@@ -1,0 +1,2 @@
+## Fiskiloyvi
+§ 3. Fiskiskapur eftir botnfiski í norskum sjógvi norðan fyri 62°N kann bert fara fram við fiskifari, sum eftir skrivligari umsókn hevur fingið fiskiloyvi frá Vørn til slíkan fiskiskap, og sum Vørn hevur váttað er á lista yvir fiskifør, ið norskir myndugleikar hava givið loyvi at fiska í norskum sjógvi. Til fiskiskap eftir kvotum sambært § 2, stk. 2 og 3 krevst veiðiloyvi fyri at fáa fiskiloyvi.

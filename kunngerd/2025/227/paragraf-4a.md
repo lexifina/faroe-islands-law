@@ -1,0 +1,4 @@
+## Atgongd at fiska í norskum sjógvi [^1]
+§ 4 a. [^1] Fiskifør undir føroyskum flaggi hava í 2026 atgongd at fiska 6.306 tons av toski, 1.484 tons av hýsu og 553 tons av øðrum botnfiski sum hjáveiðu í norskum sjógvi norðan fyri 62°N burtur av kvotunum, sum føroysk fiskifør hava rætt at fiska í russiskum sjógvi í Barentshavinum í 2026 sambært kunngerð um veiðu eftir botnfiski við fiskiførum undir føroyskum flaggi í russiskum sjógvi í 2026.
+Stk. 2. Atgongdin at fiska kvotuna sambært stk. 1 verður latin teimum, sum í 2025 høvdu rætt til egna árskvotu av botnfiski í norskum sjógvi norðan fyri 62°N, undantikin kvota keypt á uppboði, ella teimum, sum hesin rættur er fluttur til, í sama lutfalli sum egna árskvotan av botnfiski í russiskum sjógvi.
+Stk. 3. Fiskiskapur burtur av atgongd sambært stk. 1 kann bert fara fram við fiskifari, sum eftir skrivligari umsókn hevur fingið fiskiloyvi frá Vørn til slíkan fiskiskap.
