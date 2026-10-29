@@ -1,0 +1,10 @@
+§ 5. Í sambandi við arbeiðsávísing hevur tann arbeiðsleysi skyldu til at átaka sær eitt og hvørt arbeiði í Føroyum.
+Stk. 2. Arbeiðstilboð til tann arbeiðsleysa kann verða givið av bæði ALS ella arbeiðsgevara.
+Stk. 3. Arbeiðstilboð skal í fyrsta umfari ávísast so nær bústaðnum hjá tí arbeiðsleysa sum møguligt.
+Stk. 4. Undantak frá stk. 1 kann verða givið, um tann arbeiðsleysi hevur heilt serligar orsøkir til ikki at taka av tí ávísta arbeiðstilboðnum. Serligar orsøkir kunnu eitt nú vera:
+1) at lønin fyri ávísta arbeiðið er lægri enn sáttmálalønin fyri slíkt arbeiði,
+2) at daglig ferðing til og frá arbeiði ikki er møgulig, og bústaðarviðurskiftini á staðnum, har arbeiðið er, eru sera vánalig, ella
+3) um talan er um sera vánaligar ferðamøguleikar til og frá arbeiði, og viðkomandi stendur einsamallur við ábyrgdini av børnum í og undir skúlaaldur.
+Stk. 5. Arbeiðsleysur, sum uttan serliga orsøk noktar at taka á seg arbeiði, ávíst av arbeiðsávísingini, missir rættin til arbeiðsloysisstuðul. Fyrstu ferð tann arbeiðsleysi noktar, sum nevnt í pkt. 1, missir hann rættin til arbeiðsloysisstuðul í 4 vikur, aðru ferð í 8 vikur, triðju ferð í 12 vikur og fjórðu ferð í 6 mánaðir at rokna frá degnum eftir, at fráboðanin um arbeiðstilboðið má roknast við at vera móttikin av tí arbeiðsleysa.
+Stk. 6. Um arbeiðsleysur uttan serliga orsøk ikki møtir upp til skeiðstilboð, sum hann hevur fingið bjóðað frá Arbeiðsloysisskipanini og hevur tikið av, hevur viðkomandi skyldu at endurrinda Arbeiðsloysisskipanini útreiðslurnar, sum Arbeiðsloysisskipanin hevur havt til skeiðið. Í tann mun tað ber til, er heimilað Arbeiðsloysisskipanini at mótrokna hesar útreiðslur í arbeiðsloysisstuðuli til viðkomandi.
+Stk. 7. Arbeiðsleysur, sum uttan serliga orsøk aðru ferð ikki møtir upp til skeiðstilboð, sum viðkomandi hevur fingið bjóðað frá Arbeiðsloysisskipanini og hevur tikið av, missir, umframt at endurrinda Arbeiðsloysisskipanini skeiðskostnaðin sambært stk. 1, rættin til arbeiðsloysisstuðul í fýra vikur at rokna frá degnum eftir, at Arbeiðsloysisskipanin fær kunnleika til, at viðkomandi ikki møtti upp.

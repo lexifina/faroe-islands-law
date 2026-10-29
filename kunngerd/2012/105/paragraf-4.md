@@ -1,0 +1,2 @@
+§ 4. Arbeiðsførur er tann, sum uttan avmarkingar kann átaka sær eitt og hvørt fulltíðarstarv, sum viðkomandi hevur fakligan førleika til. Avgerð um fakligan førleika verður tikin av Arbeiðsloysisskipanini ella tí arbeiðsgevara, sum gevur arbeiðstilboðið.
+Stk. 2. Arbeiðsleys kunnu fáa arbeiðsloysisstuðul uttan at vera arbeiðsfør sambært stk. 1, um avmarkingin í arbeiðsførleikanum verður staðfest við læknaváttan, ið lýkur treytirnar, sum Arbeiðsloysisskipanin ásetur.

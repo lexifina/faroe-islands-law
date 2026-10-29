@@ -1,0 +1,2 @@
+§ 6. Arbeiðsleys kunnu við loyvi frá Arbeiðsloysisskipanini, í styttri tíðarskeið upp til 3 mánaðir í hvørjum álmanakkaári, luttaka í førleikagevandi tiltøkum ella líknandi uttan at vera tøk á arbeiðsmarknaðinum, sbr. § 3 og samstundis fáa arbeiðsloysisstuðul.
+Stk. 2. Loyvi sambært stk. 1 er treytað av, at útbúgvingarskeið ella líknandi er góðkent av ALS og styrkir møguleikar hins arbeiðsleysa at koma út aftur á arbeiðsmarknaðin, tí kunnleika- og førleikastøði hjá viðkomandi verður ment.
