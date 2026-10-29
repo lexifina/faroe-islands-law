@@ -1,0 +1,6 @@
+§ 4. Stuðulin eftir hesi løgtingslóg kann í stuðulstíðarskeiðinum í mesta lagi vera 10 mió. kr. til hvørja ferðavinnufyritøku.
+Stk. 2. Er ferðavinnufyritøkan partur í einum samtaki, kann stuðulin í stuðulstíðarskeiðinum í mesta lagi vera 10 mió. kr. samlað fyri fyritøkurnar í samtakinum. Samtøk, fevnd av § 1, stk. 2, nr. 5, sum reka sjóvegis ferðafólkaflutning millum Føroyar og útheimin og samstundis hava virksemi, fevnt av § 1, stk. 2, nr. 1, 2, 3 ella 4, kunnu fáa stuðul sum tvey sjálvstøðug samtøk eftir reglum sbrt. stk. 1.
+Stk. 3. Stuðulin fyri fastar útreiðslur kann ikki verða størri enn áljóðandi nominella afturgongdin í umsetinginum hjá fyritøkuni frá tilvísingartíðarskeiðinum til stuðulstíðarskeiðið.
+Stk. 4. Hevur fyritøkan fingið stuðul eftir løgtingslóg um stuðulsskipan til fyritøkur til fastar útreiðslur orsakað av COVID-19, verður hesin stuðul mótroknaður í stuðli eftir hesi løgtingslóg.
+Stk. 5. Stuðul til lønarútreiðslur til kjarnustarvsfólk sambært § 2, stk. 1, kann í mesta lagi vera fyri 10 starvsfólk í hvørjari fyritøku og í mesta lagi 27.000 kr. fyri hvørt starvsfólkið um mánaðin, og verður stk. 2 nýtt samsvarandi.
+Stk. 6. Landsstýrismaðurin ásetur nærri reglur um samtøkur eftir stk. 2, mótrokning eftir stk. 4 og lønarútreiðslur til kjarnustarvsfólk eftir stk. 5.
