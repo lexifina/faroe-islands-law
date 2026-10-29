@@ -1,0 +1,1 @@
+§ 85. [^3] Um ikki harðari revsing er uppiborin eftir løgtingslóg um aling av fiski v.m. ella aðrari lóggávu, verður við sekt ella fongsli í upp í 1 ár revsaður tann, sum tilætlað ella av grovum ósketni brýtur ásetingarnar í § 23, stk. 3, nr. 4 og stk. 6, § 38, § 41, § 69, stk. 1, ella ikki fylgir boðum og forboðum.

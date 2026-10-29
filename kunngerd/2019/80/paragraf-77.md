@@ -1,0 +1,4 @@
+§ 77. Tað almenna letur ikki endurgjald fyri útreiðslur, sum alibrúk, áir ella vøtn at sleppa í, ella virksemi, sum hevur við aling at gera, kann fáa í sambandi við hesa kunngerð sbrt. løgtingslóg um djórasjúkur.
+Stk. 2. Loyvishavarin rindar fyri góðkenning og eftirlit og tílíkt, sum verður gjørt av Heilsufrøðiligu starvsstovuni og fyri tøku og kanning av royndum eftir galdandi takstum.
+Stk. 3. Loyvishavarin rindar fyri eftirlit og tílíkt hjá djóralæknanum eftir djóralæknans taksti.
+Stk. 4. Tænastur, sum Heilsufrøðiliga starvsstovan veitir frítíðarfeløgum, sum hava loyvi til alibrúk, og við góðkenning eftir hesi kunngerð sbrt løgtingslóg um djórasjúkur, sleppa fiski í áir ella vøtn, ella sum hava annað virksemi, ið hevur við lívfisk at gera, og sum ikki framleiða alifisk við vinningi fyri eyga, verða veittar ókeypis.

@@ -1,0 +1,3 @@
+## Klæðir
+§ 36. Starvsfólk, tænastuveitarar og onnur á alibrúki skulu verða í reinum klæðum og fótbúnaði. Tá farið verður inn í framleiðsluhøli ella framleiðsluøki, skal verða farið um slúsurúm, sbr. § 15, stk. 2, har skiftast skal í serligan arbeiðsbúna og fótbúna. Hendurnar skulu vaskast og sóttreinsast. Útgerð hjá tænastuveitarum skal somuleiðis um slúsurúmið, og um neyðugt vaskast og sóttreinsast.
+Stk. 2. Kavarar, sum veita alibrúkum tænastur, skulu góðkennast og vera undir eftirliti av Heilsufrøðiligu starvsstovuni, og hava eina góðkenda starvsskipan fyri vasking og sóttreinsing av búnum og útgerð.

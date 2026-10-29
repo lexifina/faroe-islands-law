@@ -1,0 +1,1 @@
+§ 64. Um so er, at alibrúk hevur fingið álagt burturbeining ella slátur vegna smittandi sjúku, kann landsdjóralæknin áleggja, at reingerð og sóttreinsing skal byrja beinanvegin, tá alibrúkið ella rakstrareindin er tømd fyri fisk, og áseta freist, nær hetta skal verða liðugt.

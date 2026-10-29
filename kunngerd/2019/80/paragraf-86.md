@@ -1,0 +1,1 @@
+§ 86. [^3] Um ikki harðari revsing kann áleggjast eftir djóravælferðarlógini ella aðrari lóg, kann tann, sum brýtur § 4, stk. 5-10, § 7, §§ 10-12, §§ 14, 15 og 19, §§ 21-24, §§ 32-34, §§ 37 og 38, § 40, stk. 2 og 3, §§ 41 og 42, § 57, stk. 2-4, §§ 61, 66, 70, 72 og 73 í hesi kunngerð ella ikki fylgir boðum og forboðum, givin sbrt. nevndu ásetingum, verða revsaður við sekt.
