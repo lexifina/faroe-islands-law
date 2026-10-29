@@ -1,0 +1,1 @@
+§ 9. Eigari skipsins, skiparin ella eftir umstøðunum skipasmiðjan, har uppmáling verður útint, hava skyldu at geva uppmálingarmyndugleikanum ótarnaða atgongd til skipið og yvirhøvur at vera tí til handa undir uppmálingini og tað serliga til ruddingar av skipinum.

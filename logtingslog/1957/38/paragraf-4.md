@@ -1,0 +1,1 @@
+§ 4. Uppmálingin verður útint, meðan skipið er tómt, við upptøku av málum innan (hin fullfíggjaði uppmálingarháttur "regla I"). Har viðurskiftini bráðfongis hindra upptøku av málum innan, kann uppmálingin tó fremjast eftir øðrum góðkendum hátti við upptøku av málum uttan (hin legnaði uppmálingarháttur, "regla II").
