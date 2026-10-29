@@ -1,0 +1,3 @@
+§ 9. Nýtsla av stuðli skal kunna skjalprógvast. Um stuðulin ikki verður nýttur til játtaða endamálið, kann hann krevjast afturgoldin.
+Stk. 2. Roknskapur fyri stuðul, sum ikki eru fevndur av stk. 1, verður váttaður við grannskoðanarátekning sambært §§ 3-8 í kunngerð um grannskoðaraváttanir o.a., sbr. tó stk. 3.
+Stk. 3. [^1] Er talan um stuðul, sum er minni enn 500.000 kr., kann við roknskapi, sum er fevndur av stk. 2, verða latin váttan um víðkaða gjøgnumgongd sambært §§ 9-11 í kunngerð um grannskoðaraváttanir o.a. Er talan um stuðul, sum er minni enn 100.000 kr., verður krav ikki sett um váttan frá góðkendum grannskoðara.
