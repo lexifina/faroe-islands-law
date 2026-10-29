@@ -1,0 +1,1 @@
+§ 1. Landsstýrinum verður heimilað landsins vegna at taka við ognarrættinum til matr. nr. 618, Tórshavnar bý, Havnar Skansa, at gera neyðturviligar fyriskipanir at rudda og bøta um økið og at fáa skansahúsini aftur í fornan stíl.
