@@ -1,0 +1,2 @@
+§ 8. Jarðfeingi kann í loyvi, sum er fingið eftir §§ 2-5, áseta, at vatnið javnan skal kannast, so vissa fæst fyri, at vatnið er egnað til ætlaðu nýtsluna, eins og Jarðfeingi kann krevja aðrar kanningar til tess at tryggja, at gagnnýtslan ikki hevur negativar avleiðingar fyri náttúru, umhvørvi og aðra gagnnýtslu av grundvatni.
+Stk. 2. Loyvi, sum er fingið eftir §§ 2-5, sleppur ikki loyvishava undan at fáa til vegar onnur kravd loyvi.

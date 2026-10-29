@@ -1,0 +1,1 @@
+§ 9. Tann, sum eftir §§ 2, 4 ella 5 hevur fingið loyvi at gagnnýta grundvatn, skal eina ferð um árið lata Jarðfeingi frágreiðing um framleiðsluna, undir hesum eisini upplýsingar um ta brúktu vatnmongdina, um framdar góðskukanningar, um javnvágina í grundvatnsgoymsluni (um vatn verður pumpað úr goymsluni) og um møguligt avlopsvatn.
