@@ -1,0 +1,1 @@
+§ 2. [^2] Ískoyti verður bert veitt til neyðuga og heilsuliga væl grundaða veiting eftir ávísing frá lækna, sum starvast á Heilsumiðstøð, ella serlækna í pædiatri, sum starvast í føroyska sjúkrahúsverkinum.

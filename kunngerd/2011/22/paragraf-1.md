@@ -1,0 +1,1 @@
+§ 1. Ískoyti til ergoterapiveiting frá privatstarvandi ergoterapeuti kann verða veitt persónum, yngri enn 18 ár, sum hava likamligt ella sálarligt brek ella varandi sjúku, ið hava við sær munandi avleiðingar í gerandisdegnum.
