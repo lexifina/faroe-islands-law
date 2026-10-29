@@ -1,0 +1,2 @@
+§ 8. Hann, sum er partur í einum máli, kann til eina og hvørja tíð, tá málið verður viðgjørt, lata seg umboða av øðrum ella fáa hjálp frá øðrum. Myndugleikin kann tó krevja, at parturin perónliga er við, tá tað er av týdningi fyri avgerðina í málinum.
+Stk. 2. Ásetingin í stk. 1, 1. pkt. er ikki galdandi, um so er, at áhugi partanna í at lata seg umboða ella vera hjálptur má metast at eiga at víkja fyri munandi umhugsni fyri almennum ella privatum áhugamálum, ella har annað er ásett við lóg.

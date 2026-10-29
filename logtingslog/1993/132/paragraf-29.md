@@ -1,0 +1,1 @@
+§ 29. Trúnaðarupplýsingar, sum einans eru fingnar fyri at gera hagfrøðiligar úrdráttir ella sum liður í eini vísindaligari kanning, kunnu ikki latast víðari til ein fyrisitingarmyndugleika til aðra nýtslu.

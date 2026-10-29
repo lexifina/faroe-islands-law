@@ -1,0 +1,2 @@
+§ 30. Í tann mun ein fyrisitingarmyndugleiki hevur rætt til at lata eina upplýsing víðari, skal myndugleikin eftir áheitan frá einum øðrum fyrisitingarmyndugleika lata upplýsingina víðari, um hon hevur týdning fyri virksemið hjá myndugleikanum ella fyri eina avgerð, sum myndugleikin skal taka.
+Stk. 2. Ásetingin í stk. 1 er ikki galdandi, um hetta hevur við sær meirarbeiði fyri myndugleikan, ið er munandi størri enn áhugin hjá hinum myndugleikanum í, at fáa upplýsingarnar.

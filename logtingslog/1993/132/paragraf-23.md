@@ -1,0 +1,3 @@
+§ 23. Ein grundgeving fyri eini avgerð, skal hava eina tilvísing til tær rættarreglur, sum avgerðin er grundað á. Í tann mun, avgerðin eftir hesum reglum hvílir á eini fyrisitingarligari meting, skal grundgevingin eisini tilskila tey høvuðsfyrilit, ið hava verið avgerandi fyri útinningina av metingini.
+Stk. 2. Grundgevingin skal eisini um neyðugt hava eina stutta frágreiðing viðvíkjandi teimum veruligu umstøðunum, sum hava havt stóran týdning fyri avgerðina.
+Stk. 3. Grundgevingin kann verða avmarkað í tann mun áhugi partanna í at kunna nýta kunnleika til hesa til røkjan av sínum tørvi má metast at eiga at víkja fyri avgerandi umhugsni fyri honum sjálvum ella øðrum privatum ella almennum áhugamálum, jbr § 15.
