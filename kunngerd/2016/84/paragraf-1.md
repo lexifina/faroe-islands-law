@@ -1,0 +1,2 @@
+§ 1. Ósemja millum felagsskap sambært § 39, stk. 2 í løgtingslógini og brúkara um nýtslu av vardum verkum, og ósemja um viðurlag og treytir sambært avtalu við felagsskapin verður loyst við einum óheftum semingsmanni, sum landsstýrismaðurin setir, sbr. § 44, stk. 2 í løgtingslógini.
+Stk. 2. Semingsuppskot hjá semingsmanni er avmarkað til mál fevnd av § 13, stk. 5, § 14, stk. 3, § 16, stk. 2, § 17, stk. 3, § 18, stk. 1, § 25, stk. 2, § 31, stk. 5, § 35, stk. 7, § 41, stk. 6 og § 46 a, stk. 2 í løgtingslógini.

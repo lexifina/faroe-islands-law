@@ -1,0 +1,2 @@
+§ 8. Semingsmaður kann ikki taka avgerð, fyrr enn hann hevur gjørt allar partar kunnugar við allar týðandi upplýsingar og øll týðandi skjøl í málinum, og partarnir hava fingið rímiligt høvi til at koma við ummæli.
+Stk. 2. Um so er, at semja fæst í lag, kunnu partarnir skrivliga avtala, at fíggjarlig krøv, sum ósemjan snúði seg um, kunnu fremjast sambært § 478, stk. 1, nr. 4 í rættargangslógini fyri Føroyar.

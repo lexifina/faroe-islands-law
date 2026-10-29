@@ -1,0 +1,3 @@
+## Fundarbók
+§ 9. Semingsmaðurin førir fundarbók, sum partarnir og landsstýrismaðurin fáa hvør sítt avrit av, tá ið partarnir eru blivnir samdir, ella semingsroyndin er endað uttan úrslit.
+Stk. 2. Øll viðurskifti av týdningi verða tikin við í fundarbókina. Serligur dentur verður lagdur á tey viðurskifti, ið elvdu til ósemjuna, hvørji páhald partarnir hava havt, og hvørjar grundgevingar partarnir hava havt. Viðurskifti, ið kunnu vekja iva um óheftnið hjá semingsmanninum, skulu við í fundarbókina uttan mun til, um tey verða mett hava týdning fyri viðgerðina av ósemjuni. Hava partarnir umboð við sær, ella lata seg umboða av øðrum, skal hetta førast í fundarbókina.
