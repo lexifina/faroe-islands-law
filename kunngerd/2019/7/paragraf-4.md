@@ -1,0 +1,4 @@
+§ 4. Menningarkvota, sambært § 2, kann játtast til vinnuligar menningarætlanir fyri 1 ár, 2 ár, 3 ár ella 4 ár. Av samlaðu nøgdini fyri hvørt fiskaslag skulu í minsta lagi ¼ av tonsunum latast fyri 1 ár.
+Stk. 2. Menningarkvota, ið verður játtað fyri 2, 3 ella 4 ár, verður seinnu árini lutað í sama lutfalli, prosentparti, av samlaðu føroysku kvotuni av ávísa fiskaslagnum, sum kvotan hevði fyrsta árið.
+Stk. 3. Menningarætlanir, ið kvota er játtað til fyri 2, 3 ella 4 ár, skulu eftirmetast við ársbyrjan árið, ella árini, eftir, hon er játtað. Latast skal ein ávegis frágreiðing, ið lýsir, hvussu kvotan er nýtt sambært menningarætlanini og treytunum fyri játtanini.
+Stk. 4. Um avgerandi treytir fyri játtanini til menningarkvotu sambært menningarætlanini ikki eru hildnar, ella um kvota als ikki er nýtt undanfarna ár, samstundis sum ongi ella lítil útlit eru fyri, at kvotan verður nýtt, kann landsstýrismaðurin nokta at endurnýggja ella lutvíst endurnýggja kvotuna.
