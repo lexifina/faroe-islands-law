@@ -1,0 +1,2 @@
+§ 5. Verður koyrt við breiðum akfari ella farmi á smølum vegi, skal serstakt varsemi og fyrilit havast fyri ferðsluni yvirhøvur. Tílíkt breitt akfar skal halda so langt til høgru sum gjørligt og steðga um neyðugt, til tess at lata annað akfar sleppa fram við.
+Stk. 2. Verður koyrt við amboði, sum er breiðari enn 2,55 m sbrt. § 2, skal tann síðan á amboðnum, sum er nærri vegmiðjuni, hava týðuligt merki, sum stingur upp í 1 metra hædd, um so er, at hesin parturin á amboðnum er minni enn 1 m høgur.

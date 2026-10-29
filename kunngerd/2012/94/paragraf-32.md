@@ -1,0 +1,5 @@
+## Altjóða ferðsla
+§ 32. Við altjóða ferðslu er í hesi kunngerð at skilja ein flutningur, ið fer fram í Føroyum, og í einum øðrum landi sbrt. § 4 í kunngerð um motorakfør og viðfestivognar uppá 12.000 kg totalvekt ella yvir, ið verða skrásett til uttanlandsflutning. Eitt leguvognrað er tó í altjóða ferðslu, um bert leguvognurin er tað.
+Stk. 2. Bilur í altjóða ferðslu kann hava eitt ástrýst á trekkásinum sum í mesta lagi er 11.500 kg, hóast ásetingarnar í § 13, stk. 2, um dupult ásett dekk og fjaðring ið fer væl við vegnum, ikki vera fylgdar.
+Stk. 3. Bilur í altjóða ferðslu kann hava eitt samlað ástrýst, í einum ásbólki við 2 ásum, á í mesta lagi 18.000 kg, um so er, at frástøðan millum báðar ásirnar er minni enn 2,00 m, men í minsta lagi 1,30 m, hóast ásbólkurin ikki lýkur ásetingarnar í § 13, stk. 3, nr. 1.
+Stk. 4. Bilur við trimum ásum, burtursæð frá liðbussi, kann í altjóða ferðslu hava eina veruliga heildarvekt upp til 25.000 kg. hóast ásetingarnar í § 21, stk. 2, nr. 2, um dupultásett dekk, fjaðring, ið fer væl við vegnum, ella ástrýst ikki verða fylgdar.

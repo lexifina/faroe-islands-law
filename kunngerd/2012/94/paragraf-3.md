@@ -1,0 +1,2 @@
+§ 3. Bilur ella vognrað, har dragandi akfarið er bilur, skal kunna venda innan fyri vendisirkul, við ytra radius uppá 12,50 m og innara radius uppá 5,30 m, sbr. tó § 37, stk. 1.
+Stk. 2. Fyri bil ella vognrað, har dragandi akfarið er ein bilur, er harumframt galdandi, at tá ið koyrt verður inn í tann í stk. 1 nevnda sirkul, skal ongin partur av akfarinum fara út um ytra sirkulin við meira enn 0,60 m.

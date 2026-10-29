@@ -1,0 +1,1 @@
+§ 19. Løgreglan kann í samráði við avvarðandi vegmyndugleika loyva frávík frá reglunum um mest loyvda ástrýst, um so er, at viðkomandi flutningur ikki rímiliga kann krevjast framdur á annan hátt. Loyvið frá løgregluni skal havast við, meðan flutningurin fer fram.

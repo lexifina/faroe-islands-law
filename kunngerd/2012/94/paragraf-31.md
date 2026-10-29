@@ -1,0 +1,1 @@
+§ 31. [^1] Løgreglan kann eisini í samráði við vegmyndugleikar ella brúgvamyndugleikar loyva bjargingarfeløgum og líknandi at víkja frá reglunum um mest loyvdu heildarvekt, tá ið skadd akfør verða beind av vegnum.

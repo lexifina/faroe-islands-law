@@ -1,0 +1,1 @@
+§ 28. [^1] Akfar, sum hevur slættar ringar, valsar, má hvørki við ella uttan farmi, koyra á almennum vegi, um so er, at veruliga heildarvektin á akfarinum ella vognraðnum fer upp um 15.000 kg, við ískoyti uppá 250 kg fyri hvørjar heilar 0,20 m við hvørjum frástøðan millum fyrsta og síðsta ás á akfarinum ella vognraðnum er størri enn 2,50 m.

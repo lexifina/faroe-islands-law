@@ -1,0 +1,1 @@
+§ 27. Í vognraði við ikki skrásetingarskyldigum viðfestiamboði, har dragandi akfarið er ein bilur við loyvdari heildarvekt uppá meira enn 3.500 kg, kann vektin á viðfestiamboðnum, fyri viðfestiamboð við stívum dragiarmi, samlaða ástrýstið, ikki fara upp um veruligu heildarvektina á dragandi akfarinum, um ikki viðfestiamboðið hevur økubremsu.

@@ -1,0 +1,2 @@
+§ 23. Á skrásetingarskyldugum viðfestiakfari, sum verður drigið av bili við loyvdari heildarvekt, ið er omanfyri 3.500 kg, má veruliga heildarvektin, fyri leguvognar og viðfestiakfar við stívum dragiarmi, tó samlaða veruliga ástrýstið, ikki fara upp um 1,5 ferðir loyvdu heildarvektina á bilinum.
+Stk. 2. Í minsta lagi 20 % av loyvdu heildarvektini á øllum vognraðnum skal liggja á drívhjólunum á bilinum.

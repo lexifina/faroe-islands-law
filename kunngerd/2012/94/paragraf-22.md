@@ -1,0 +1,4 @@
+§ 22. Fyri viðfestiakfar, sum verður drigið av bili við loyvdari heildarvekt, sum ikki er størri enn 3.500 kg, má veruliga heildarvektin, fyri leguvogn og viðfestiakfar við stívum dragiarmi, tó samlaða veruliga ástrýstið, ikki vera størri enn:
+1) loyvdu heildarvektina á dragandi bilinum, um viðfestiakfarið er útgjørt við økubremsu, og
+2) 50 % av tænastuvektini á dragandi bilinum, um viðfestiakfarið ikki er útgjørt við økubremsu.
+Stk. 2. [^2] Á viðfestiakfari, sum er útgjørt við økubremsu og verður drigið av lendisfarandi bili, sambært allýsing í stakfyriskipanunum, er hægst loyvda heildarvektin sbr. stk. 1, nr. 1, tó 1,5 ferðir loyvdu heildarvektina á dragandi bilinum. Sama er galdandi fyri lendisakfar. Loyvda heildarvektin á viðfestiakfarinum, fyri leguvogn og viðfestiakfar við stívum dragiarmi, tó samlaða ástrýstið, má ikki fara upp um 3.500 kg.

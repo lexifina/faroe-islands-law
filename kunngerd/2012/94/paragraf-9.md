@@ -1,0 +1,12 @@
+§ 9. Vognrað, sum ikki er sett saman av bili og leguvogni, skal hvørki við ella uttan farmi vera longri enn 18,75 m.
+Stk. 2. [^1] Fyri vognrað, sum er sett saman av lastbili og viðfestivogni, er galdandi:
+1) Størsta frástøðan mátað javnt við longdarásin á vognraðnum frá framkanti á lastini aftan fyri førarahúsið til afturkant á viðfestivogninum skal ikki vera longri enn 16,40 m, sbr. tó § 37, stk. 1.
+2) Størsta frástøðan mátað javnt við longdarásin á vognraðnum frá framkanti á lastini aftan fyri førarahúsið til afturkant á viðfestivogninum minus frástøðuna millum afturkantin á bilinum og framkantin á viðfestivogninum skal ikki vera longri enn 15,65 m, sbr. tó § 37, stk. 1. Hetta er tó ikki galdandi fyri vognrað, ið er serliga tilgjørt til bilaflutning.
+3) Frástøðan millum aftasta ásin á bilinum og fremsta ásin á viðfestivogninum skal ikki vera styttri enn 3,00 m, sbr. tó § 37, stk. 1.
+Stk. 3. El-innleggjarafyritøkur, framleiðarar og sølufyritøkur av mastrum og flaggstengrum kunnu á bili við viðfestum vogni lata flyta mastrar ella flaggstengur, sum eru so høgar, at vognraðið við farmi verður upp til 22,00 m langt.
+Stk. 4. [^1] Vognrað, sum er sett saman av lastbili og viðfestum vogni, og sum serliga er bygt til flutning av akførum, bilaflutningur, kann hava eina longd sum í mesta lagi er 20,75 m, tá ið tað er lastað, treytað av at:
+1) tað einans verður nýtt til flutning av akførum,
+2) flutningurin aftan er skermaður ímóti undirkoyring við eini skerming sum í mesta lagi er 0,55 m yvir vegbreytini, og í mesta lagi er 0,40 m frammanfyri aftasta punktið á flutninginum, og
+3) til skermingina verður nýtt eitt av teimum akførum, ið standa á vognraðnum, ella onnur skerming, sum í minsta lagi er 0,10 m høg.
+Stk. 5. Fyri vognrað, sum er traktorur og ein ella tveir viðfestivognar, skal longdin ikki fara upp um 22,00 m. Longdin kann tó einans fara upp um 18,75 m, tá ið koyrt verður millum bø og búnaðarbygning, millum ognir, sum í felag eiga amboðið, ella millum amboðsstøð og viðskiftafólk, og um lastarlongdin ikki fer upp um 15,65 m.
+Stk. 6. Fyri vognrað, sum er sett saman av traktori ella motoramboði og einum viðfestiakfari, skal longdin ikki fara upp um 22,00 m. Longdin kann tó einans fara upp um 18,75 m, tá ið koyrt verður millum bø og búnaðarbygning, millum ognir, sum í felag eiga amboðið, ella millum amboðsstøð og viðskiftafólk, og um flutt verður eitt arbeiðsamboð, ið hevur tilknýti til nýtsluna hjá dragandi akfarinum.
