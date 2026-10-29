@@ -1,0 +1,1 @@
+§ 1. Persónur, sum fær endurgjald á annan hátt fyri rentuútreiðslur, hevur ikki samstundis rætt til rentustuðul eftir løgtingslóg um stuðul til rentuútreiðslur av lánum, samanber við § 8, stk. 1 í lógini.
