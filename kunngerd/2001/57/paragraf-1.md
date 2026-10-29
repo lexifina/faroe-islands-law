@@ -1,0 +1,1 @@
+§ 1. Kommunustýrir kunnu ikki geva byggiloyvi ella nýtsluloyvi, fyrr enn tað er staðfest, at tað sum søkt verður um, eisini kann góðkennast av øðrum myndugleikum, ið sambært aðrari lóggávu hava heimild at seta krøv til byggingar.
