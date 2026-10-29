@@ -1,0 +1,1 @@
+§ 11. Arbeiðs- og brunaeftirlitið kann til eina og hvørja tíð fremja eftirlit við tí løggilda og møguliga arbeiðsgevara hansara, undir hesum at eftirkanna útint arbeiði og sýna verkstað, arbeiðsamboð og skjøl, sum viðvíkja løggilta arbeiðinum.

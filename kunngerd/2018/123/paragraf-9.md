@@ -1,0 +1,2 @@
+## Striking av løggildingarlistanum
+§ 9. Tá ið 5 ára løggildingartíðarskeiðið er runnið, uttan at søkt er um endurnýggjan, verður tann løggildi uttan aðra ávaring strikaður av løggildingarlistanum, og kann hann eftir hetta ikki longur gera løggilt arbeiði við ábyrgd mótvegis Arbeiðs- og brunaeftirlitinum. Sama er galdandi, um løggildingin verður tikin aftur av Arbeiðs- og brunaeftirlitinum sambært § 8.

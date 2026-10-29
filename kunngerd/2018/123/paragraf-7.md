@@ -1,0 +1,4 @@
+## Gildistíð og endurnýggjan
+§ 7. Ein løggilding er galdandi í 5 ár at rokna frá dagfestingini á løggildingarbrævinum, men kann eftir skrivligari umsókn verða endurnýggjað av Arbeiðs- og brunaeftirlitinum í eitt nýtt 5 ára skeið.
+Stk. 2. Tann løggildi skal í seinasta lagi 1 mánað, áðrenn verandi løggilding gongur út skrivliga søkja Arbeiðs- og brunaeftirlitið um endurnýggjan av løggildingini. Arbeiðs- og brunaeftirlitið kann í sambandi við umsókn um endurnýggjan krevja skjalprógv fyri møguligum eftirútbúgvingum/skeiðum og arbeiðsroyndum, síðani seinasta løggilding varð givin. Arbeiðs- og brunaeftirlitið kann treyta eina endurnýggjan av, at umsøkjarin útvegar sær nýggjari tól og útgerð til tess at fremja løggilta arbeiðið.
+Stk. 3. Arbeiðs- og brunaeftirlitið kann í serligum førum áseta gildistíðina á løggildingini styttri enn 5 ár.

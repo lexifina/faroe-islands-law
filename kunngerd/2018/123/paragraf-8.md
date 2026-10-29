@@ -1,0 +1,2 @@
+## Afturtøka av løggildingini
+§ 8. Arbeiðs- og brunaeftirlitið kann taka løggildingina aftur, um tann løggildi misrøkir treytirnar fyri løggildingini, t.d. ikki ger løggilta arbeiðið til lítar ella ikki útvegar sær tey amboð, sum Arbeiðs- og brunaeftirlitið metir neyðug fyri at útinna løggilta arbeiðið. Løggildingin verður eisini tikin aftur, um ein løggilt fyritøka ikki longur hevur fólk í starvi við kravdu førleikunum til at røkja løggilta arbeiðið.

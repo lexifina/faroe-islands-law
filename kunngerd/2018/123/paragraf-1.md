@@ -1,0 +1,4 @@
+## Endamál og allýsingar
+§ 1. Endamálið við hesi kunngerð er at tryggja, at einans fyritøkur og einstaklingar við neyðuga fakliga førleikanum útinna løggilt arbeiði mótvegis Arbeiðs- og brunaeftirlitinum.
+Stk. 2. [^1] Løggilding sambært hesi kunngerð merkir: Ein eftir umsókn givin formlig góðkenning frá Arbeiðs- og brunaeftirlitinum sambært hesi kunngerð til at útinna arbeiði á einum løggildingarøki, ið er nevnt í skjølunum 2-10. Arbeiði fevnt av einum løggildingarøki í skjølunum 2-10 má ikki útinnast, uttan at nevnda løggilding fyriliggur.
+Stk. 3. Løggilt arbeiði sambært hesi kunngerð merkir: Við ábyrgd mótvegis Arbeiðs- og brunaeftirlitinum at seta upp, royna, kanna, umvæla, góðkenna og hava eftirlit við útgerð samsvarandi givnu løggildingini og teirri til eina og hvørja tíð galdandi lóggávu, vegleiðingum og mannagongdum á økinum.
