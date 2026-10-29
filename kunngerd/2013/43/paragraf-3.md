@@ -1,0 +1,1 @@
+§ 3. Í sambandi við eina og hvørja broyting av teimum í § 2, stk. 2, nr. 1-12 nevndu viðurskiftum skal gerast ein nýggj skrivlig starvsavtala ella eitt ískoyti til starvsavtaluna við tann starvssetta. Hetta er ikki galdandi, um orsøkin til broytingina eru broytingar í lógum, kunngerðum ella kollektivum sáttmálum, ið eru galdandi fyri starvsviðurskiftini.

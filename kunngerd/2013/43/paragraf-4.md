@@ -1,0 +1,1 @@
+§ 4. Viðvíkjandi upplýsingunum í § 2, stk. 2, nr. 6-12 verður skyldan sambært § 2, stk. 2 at gera eina skrivliga starvsavtalu mett at vera hildin, um tað í starvsavtaluni verður víst til lógir, fyrisitingarligar reglur og ásetingar í viðtøkum ella kollektivum sáttmála, ið eru galdandi fyri viðkomandi viðurskifti.
