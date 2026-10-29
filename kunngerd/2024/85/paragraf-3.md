@@ -1,0 +1,1 @@
+§ 3. Heilsustýrið ásetir harumframt gjald, sambært galdandi sáttmálum, fyri rindan av útreiðslum, sum standast av tænastunum, t.d. løn til lækna, sjúkrarøktarfrøðing, læknaskrivara o.tíl. í sambandi við at greina sjúklingar og kontrollar og at leggja upplýsingar úr Diagnosuskránni og Ættarbandsskránni inn í Progeny skipanina til einstøku verkætlanirnar.
