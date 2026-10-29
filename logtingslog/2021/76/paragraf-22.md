@@ -1,0 +1,1 @@
+§ 22. Ein netfyritøka skal boða Elnevndini frá, um staðfest verður, at brot er framt á reglur í hesi løgtingslógini ella reglur, ásettar sambært hesi løgtingslógini, at órøkjuskapur er framdur í sambandi við útinning av arbeiðinum, ella at tann løggilda fyritøkan hevur virkað á ein hátt, sum kann hava við sær, at løggildingin verður tikin aftur sambært § 16, stk. 1.

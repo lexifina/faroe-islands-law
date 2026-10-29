@@ -1,0 +1,1 @@
+§ 21. Í sambandi við fráboðanir, sum eru kravdar sambært løgtingslóg um elektriskan útbúnað, elektriskar innleggingar og elektriskt tilfar (Eltrygdarlógin) ella reglum, ásettar sambært eltrygdarlógini, skulu netfeløg kanna eftir, um arbeiðið er gjørt av fyritøkum, sum eftir reglunum í hesi løgtingslógini ella reglum, ásettar sambært hesi løgtingslógini, hava heimild at gera tað.
