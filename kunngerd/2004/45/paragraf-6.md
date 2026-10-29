@@ -1,0 +1,1 @@
+§ 6. Skiparin skal syrgja fyri, at støðug lurtivakt er á altjóða neyð- og kallifrekvensum (VHF, MF, DSC), og um útgerð er tøk á fylgisveinagrundaðum samskiftismøguleikum frá landi til skip soleiðis, at Fiskiveiðieftirlitið kann boða fiskifarinum frá, um brek er í eindini ella støðini.

@@ -1,0 +1,2 @@
+## Rakstur av fylgisveinaeftirlitseind og fylgisveinaeftirlitsstøð
+§ 4. Skipari á fiskifari skal tryggja, at fylgisveinaeftirlitseindin til eina og hvørja tíð er virkin og sendir knattstøður. Eisini skal hann tryggja, at tað ikki henda tøknilig inntriv/atgerðir í fylgisveinaeftirlitseindina ella ytri ávirkan sum t.d., at breitt verður útyvir antennuna ella, at sløkt verður fyri orkukelduni til fylgisveinaeftirlitseindina.
