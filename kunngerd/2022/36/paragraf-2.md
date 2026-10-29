@@ -1,0 +1,1 @@
+§ 2. Duty cycle verður skilgreinað í hesari kunngerð, sum viðurskifti lýst í prosentum millum Σ (Ton/Tobs), har Ton er ein einkul virkin tíð hjá einari sendiútgerð og Tobs er kanningartíðarskeiði. Ton verður máta í einum kanningarfrekvensbandið (Fobs). Um ikki annað er upplýst, er Tobs eitt støðugt tíðarskeið á 1 tíma, og Fobs er viðkomandi frekvensband.
