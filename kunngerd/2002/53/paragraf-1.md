@@ -1,0 +1,1 @@
+§ 1. Kunngerðin er galdandi fyri feløg og persónar, sum ikki koma undir §§ 1 og 2 í skattalógini, og sum hava inntøkur í samband við vinnuligt virksemi, ið koma undir Kolvetnisskattalógina. Inntøkur eftir kapittul 2 og 2a í Kolvetnisskattalógini verða ikki viðgjørdar eftir hesi kunngerð.

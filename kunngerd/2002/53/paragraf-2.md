@@ -1,0 +1,8 @@
+§ 2. Serligt roknskaparúrtak, ið Toll- og Skattstova Føroya letur gera, skal nýtast av teimum, ið eru umfatað av hesari kunngerð. Hin roknskaparskyldugi skal leggja roknskaparhald sítt til rættis soleiðis, at krøvini í roknskaparúrtakinum kunnu uppfyllast.
+Stk. 2. Fylgjandi krøv skulu uppfyllast:
+nr. 1. Allar skrásetingar skulu kunna fylgjast fram til roknskaparúrtakið. Tølini í roknskaparúrtakinum skulu kunnu loysast uppí tær skrásetingar, sum tey eru samansett av.
+nr. 2 Inntøkurnar skulu kunna sundurliðast fyri hvønn sáttmála, jbr. § 7 í Kolvetnis-skattafyrisitingarlógini. Tað skal vera møguligt at eftirkanna, at tílík inntøka er tikin við í roknskaparúrtakið.
+nr. 3. Beinleiðis útreiðslur skulu tilskilast eftir útreiðsluslagi, jbr. roknskaparúrtakið.
+nr. 4. Um óbeinleiðis útreiðslur verða býttar, skal í einum yvirliti verða víst, hvørjar útreiðslur eru við í býtinum, umframt hvørjir býtislyklar eru nýttir. Tølini, ið eru við í býtinum, skulu vera váttaði av einum óheftum grannskoðara, um tey ikki kunnu skjalprógvast á annan hátt, ið skattamyndugleikarnir halda vera nøktandi. Saman við yvirlitinum skal fylgja ein frágreiðing um nýttu býtislyklarnar, umframt ein lýsing av hvussu skuldskrivingar/góðskrivingar eru býttar út á einstøku felagseindirnar ella onnur feløg. Um talan er um skyld (assosiera) feløg, systurfeløg ella dótturfeløg, skal hetta upplýsast.
+nr. 5. Støðisfæ, sum verður avskrivað sambært avskrivingarlógina, skal sundurliðast soleiðis, at avskrivingargrundarlagið kann eftiransast, jbr. roknskparúrtakið.
+Stk. 3. Allar búskaparligar transaktiónir millum tann roknaskaparskylduga og feløg, hesin er skyldur við, skulu vísast týðuliga og soleiðis, at allar transaktiónir skulu vísast hvør sær og samlað.
