@@ -1,0 +1,1 @@
+§ 1. Verður reglulig sjóvegis farleið hjá Strandfaraskipum Landsins í innanlands sigling løgd niður til/frá kommunalari havn ella bryggju, og verður leiðin ikki samstundis flutt til aðra kommunala havn ella bryggju í somu kommunu, rindar landið viðkomandi kommunu endurgjald í sambandi við, at leiðin verður løgd niður.

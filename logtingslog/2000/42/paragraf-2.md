@@ -1,0 +1,2 @@
+§ 2. Endurgoldið verður fyri tann inntøkumiss, sum kommunan hevur av, at skipa- og vørugjøld fyri Strandfaraskip Landsins í regluligari innanlands sigling detta burtur í sambandi við at farleiðin verður niðurløgd..
+Stk. 2. Endurgjaldið verður ásett sum ein roknað upphædd, svarandi til samlaðu inntøkurnar hjá kommununi av skipa- og vørugjøldum fyri Strandfaraskip Landsins seinastu 3 árini undan niðurleggingini býtt við trý faldað við fimm.
