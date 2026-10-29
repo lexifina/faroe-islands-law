@@ -1,0 +1,1 @@
+§ 10. Innflutningur av hóvdjórum úr triðjalondum, má bert fara fram úr triðjalondum, ella økjum í triðjalondum, sum eru góðkend til útflutning av hóvdjórum til ES lond, og sum eru á triðjalandsyvirlitinum hjá ES, sbr. fylgiskjal 15.

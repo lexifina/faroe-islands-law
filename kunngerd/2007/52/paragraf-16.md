@@ -1,0 +1,1 @@
+§ 16. Skrásett ross, sum vera endurinnflutt úr triðjalondum eftir at hava luttikið í kappingum, mentanarligum tiltøkum, frítíðarvirksemi og líknandi, í minni enn ávikavist 30, 60 og 90 dagar, skulu hava eina heilsuváttan í fylgi, sum er gjørd eftir reglunum í fylgiskjali 6.

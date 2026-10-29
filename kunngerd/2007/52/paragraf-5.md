@@ -1,0 +1,18 @@
+§ 5. Í samhandli skulu hóvdjórini lúka tær heilsuligu treytirnar í stk. 2-10, sbr. fylgiskjal 2.
+Stk. 2. Fyri African horse sickness eru hesar treytir galdandi:
+1) Hóvdjórini skulu stava frá einum landi ella øki, sum ikki hevur AHS.
+2) Um hóvdjórini koma frá einum landi ella øki, sum hevur AHS, skulu tey lúka hesar treytir:
+a) Hóvdjórini skulu vera í karantenu í 40 dagar uttan samband við onnur hóvdjór, sum eru undir illgruna, ella eru smittað við AHS,
+b) útflutningurin má bert henda ta tíðina av árinum, tá vektorarnir fyri AHS ikki eru virknir,
+c) undir sóttarhaldi og flutningi skulu hóvdjórini verða vard móti vektorum fyri AHS,
+d) hóvdjórini mugu ikki vísa klinisk sjúkueyðkenni uppá AHS,
+e) um hóvdjórini ikki eru koppsett móti AHS, skulu tey vísa neilig úrslit í tveimum serologiskum royndum, sbr. fylgiskjal D í Direktiv 90/426/EØF (fylgiskjal 2), sum verða gjørdar við millum 21 og 30 daga millumrúmi, har tann síðsta royndin í fyrsta lagi skal gerast 10 dagar áðrenn útflutning ella
+f) um hóvdjórini eru koppsett móti AHS, má hetta ikki vera farið fram innan fyri teir seinastu tveir mánaðirnar áðrenn útflutningin, og úrslitini mugu ikki vísa nakra hækking í andevnismongdini í tveimum serologiskum royndum, sbr. fylgiskjal D í Direktiv 90/426/EØF (fylgiskjal 2), tiknar í tíðarbilunum nevnd í litra e).
+Stk. 3. Hóvdjórini mugu ikki hava klinisk sjúkueyðkenni av dourine ella hava verið í sambandi við onnur hóvdjór, sum eru undir illgruna fyri at vera, ella eru smittað við dourine, í teimum seks seinastu mánaðunum áðrenn útflutningin. Greðingar skulu verða geldir, um teir hava verið í sambandi við hóvdjór, sum hava verið undir illgruna, ella eru smittað við dourine.
+Stk. 4. Hóvdjórini mugu ikki hava klinisk sjúkueyðkenni av glanders (sniv) ella hava verið í sambandi við djór, sum eru undir illgruna fyri at vera, ella eru smittað við glanders, í seks teimum seinastu mánaðunum áðrenn útflutningin.
+Stk. 5. Hóvdjórini mugu ikki hava klinisk sjúkueyðkenni av equine encephalomyelitis, ella hava verið í sambandi við onnur hóvdjór, sum eru undir illgruna fyri at vera ella eru smittað við equine encephalomyelitis í seks teimum seinastu mánaðunum áðrenn útflutningin.
+Stk. 6. Hóvdjórini mugu ikki hava klinisk sjúkueyðkenni av equine infectious anaemia ella hava verið í sambandi við onnur hóvdjór, sum eru undir illgruna fyri at vera, ella eru smittað við infectious anaemia, í seks teimum seinastu mánaðunum áðrenn útflutningin. Hóvdjór, sum hava verið í sambandi við onnur hóvdjór, sum eru undir illgruna fyri at vera ella eru smittað við infectious anaemia, skulu hava negativa reaktión uppá tvær Coggins royndir, sum er gjørdar 6 mánaðar eftir síðsta samband. Tær báðar royndirnar skulu vera gjørdar við einum millumbili uppá tríggjar mánaðar.
+Stk. 7. Hóvdjórini mugu ikki hava klinisk sjúkueyðkenni av vesicular stomatitis, ella hava verið í sambandi við onnur djór, sum eru undir illgruna fyri at hava, ella eru smittað við vesicular stomatitis, innan fyri teir seinastu seks mánaðirnar áðrenn útflutningin.
+Stk. 8. Hóvdjórini mugu ikki hava klinisk sjúkueyðkenni av rabies (hundaøði), ella hava verið í sambandi við onnur djór, sum eru undir illgruna fyri at hava, ella eru smittað við rabies, innan fyri tann síðsta mánaðin áðrenn útflutningin.
+Stk. 9. Hóvdjórini mugu ikki hava klinisk sjúkueyðkenni av anthrax , ella hava verið í sambandi við onnur djór, sum eru undir illgruna fyri at hava, ella eru smittað við anthrax innan fyri teir seinastu 15 dagarnar áðrenn útflutningin.
+Stk. 10. Um øll djór, sum eru móttøkubúgvin mótvegis teimum í stk. 2-9 nevndu sjúkum, eru blivin slaktað, og garðurin er blivin sóttreinsaður, kunnu hóvdjór útflytast av garðinum 30 dagar seinni, fyri anthrax tó 15 dagar seinni.

@@ -1,0 +1,1 @@
+§ 15. Skrásett ross, sum verða innflutt fyribils úr triðjalondum, í sambandi við luttøku í kappingum, mentanarligum tiltøkum, frítíðarvirksemi og líknandi, í minni enn 90 dagar, skulu hava eina heilsuváttan í fylgi, sum er gjørd sambært reglunum í fylgiskjali 5.

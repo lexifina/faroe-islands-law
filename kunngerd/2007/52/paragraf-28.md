@@ -1,0 +1,3 @@
+## Revsi- og gildiskomuásetingar
+§ 28. Um ikki harðari revsing kann áleggjast eftir aðrari lóggávu, verður tann revsaður við bót, sum brýtur ásetingarnar í §§ 3- 23, stk. 1, § 24, artikkul 4(1)-(5), 5(3), 7(1), 8(1), 11(1), 12(1), 13, 14, 15, 16, 18(1) í fyriskipan 90/426/EØF, sbr. fylgiskjal 2; artikkul 1 í fyriskipan 93/196/EØF, sbr. fylgiskjali 7; artikkul 6-8 í avgerð 2004/211/EF, sbr. fylgiskjal 15; artikkul 1 og 4, annar partur í fyriskipan (ES) Nr. 282/2004, sbr. fylgiskjal 16; gevur rangar upplýsingar í fyrsta parti av CVED skjalinum, í Annex I.
+Stk. 2. Feløg o.a. (løgfrøðiligir persónar) kunnu revsast eftir kapittul 5 í revsilógini.

@@ -1,0 +1,2 @@
+§ 19. Hóvdjór til sláturs, sum verða innflutt úr einum triðjalandi, skulu hava eina heilsuváttan í fylgi, sum er gjørd sambært reglunum í fylgiskjali 7.
+Stk. 2. Hóvdjór til sláturs, skulu beint sum tey eru komin til landið, verða førd til eitt góðkent sláturhús og slaktað innan fimm dagar. Slátur av hóvdjórum, sum hava verið ávegis á sjónum í meira enn átta dagar, kann útsetast í mesta lagi 21 dagar eftir komuna.
