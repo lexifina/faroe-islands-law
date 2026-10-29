@@ -1,0 +1,3 @@
+8. mai 2026 Nr. 35
+# Kunngerð um tíðaravmarkaða serskipan fyri veiðu eftir botnfiski á Føroyabanka í 2026, sum broytt við kunngerð nr. 87 frá 16. oktober 2026
+[^1] Við heimild í § 22, stk. 2, § 30, stk. 4, § 34, stk. 1, nr. 1 og 3, stk. 2, nr. 2, 4, 5, 7 og 10, § 38, stk. 3, § 42 og § 64, stk. 2 í løgtingslóg nr. 152 frá 23. desember 2019 um sjófeingi (Sjófeingislógin), sum broytt við løgtingslóg nr. 106 frá 29. juni 2020, løgtingslóg nr. 185 frá 18. desember 2020, løgtingslóg nr. 170 frá 21. desember 2021, løgtingslóg nr. 155 frá 20. desember 2023 og løgtingslóg nr. 49 frá 29. mai 2026, verður ásett:

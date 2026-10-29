@@ -1,0 +1,1 @@
+§ 4. Eigarar av fiskiførum, sum í 2026 hava rætt til fiskiloyvi í bólki 4, sambært § 18, stk. 1, nr. 3 í løgtingslógini, kunnu royna við línu, snellu, snøri ella tráðu á Føroyabanka í samanlagt 135 fiskidagar í 2026. Fiskidagatalið verður býtt javnt millum talið av veiðiloyvum í bólkinum.

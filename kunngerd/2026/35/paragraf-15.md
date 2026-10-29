@@ -1,0 +1,1 @@
+§ 15. Bátar við fiskiloyvi sambært § 5 skulu hava fylgisveinaútgerð umborð, sum er góðkend av Vørn, og sum til einhvørja tíð kann upplýsa um knattstøðuna hjá bátinum. Farið verður fram eftir somu mannagongd og treytum, sum ásett í kunngerð um eftirlit við fiskiførum um fylgisvein.
