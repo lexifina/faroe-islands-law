@@ -1,0 +1,10 @@
+## C. Vognar viðfestir traktorum o. a.
+§ 30. Um viðfestan vogn hjá traktori, ið nýttur verður til aðra koyring enn umrøtt er í § 12 í ferðslulógini, geldur hetta:
+1. Í mesta lagi ein viðfestur vognur kann verða nýttur.
+2. Traktorur og viðfestur vognur skulu vera so tilgjørdir, at í minsta lagi 20% av loyvdu totalvekt vognraðsins liggur á drívhjólunum.
+3. Í minsta lagi 50% av loyvdu totalvekt vognraðsins skal liggja á hjólunum, ið bremsað verða.
+4. Koplingaramboðini skulu vera útbúgvin sum fyriskipað í § 24.
+5. Hevur viðfesti vognurin bremsur, skulu tær kunna virka av sær sjálvum meðan koyrt verður, ella skal akstjórin kunna nýta tær, uttan av tí at verða nervaður í at geva gætur eftir akbreytini, og tær skulu vera so útbúnar, at til ber at bremsa nóg væl og skjótt og so at tær fáast at halda sær í spenni, meðan vognurin stendur í brekku. Slíkur munur skal vera á tyngd traktorsins og tyngd viðfesta vognsins, at traktorurin kann fáa møguligu atkomubremsur viðfesta vognsins at virka nóg væl.
+6. Viðfestur vognur skal aftan hava tríkantað reyð refleksvæl samsvarandi krøvunum í § 26, stk. 2, og útgjørdur við baklyktum, spjaldraljósum og steðglyktum, ið lúka krøvini í § 4, stk. 3, 4, 5 og 7 og í § 7. Vognur viðfestur traktori, ið sambært § 20, stk. 4, skal hava leiðvísarar, skal hava leiðvísaraglampuljós, ið lúka krøvini í § 6. Hetta geldur kortini ikki, um traktorurin hevur leiðvísaraveingir, uttan so at viðfesti vognurin er breiðari enn traktorurin. Er viðfesti vognurin konstrueraður so, at akstjórin sæst ikki aftanífrá, skal hann hava leiðvísara glampaljós, um enn traktorurin ikki nýtist at hava leiðvísarar.
+7. Úrkoplaður viðfestur vognur skal, tá ið hann í lyktatendringstíð er steðgaður ella parkeraður á akbreyt, ið ikki liggur í nóg góðum ljósi, umframt við reyðum ljósi aftureftir vera merktur við tveimum hvítum ljósum frameftir. Tey skulu lúka krøvini í § 4, stk. 1, c, og stk. 2, 1. og 2. pkt.
+8. Fyriskipanirnar í §§ 9, 13 og 15 um verjur, hongsl o. tl. og reklamumyndir og frámerki verða á líkan hátt nýttar. Sama geldur fyriskipanirnar um hjólklæðing í VII. tátti.

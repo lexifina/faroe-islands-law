@@ -1,0 +1,1 @@
+§ 40. Hondvognur skal, tá hann í lyktatendringartíðini verður nýttur til koyring á støðum, har ongi gøtuljós eru, í vinstru síðu hava eina klárt lýsandi lykt við hvítum ella gulum ljósi, ið sæst nóg langt burtur bæði frammanífrá og frá síðunum og aftanífrá.

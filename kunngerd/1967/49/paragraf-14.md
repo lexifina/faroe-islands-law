@@ -1,0 +1,2 @@
+§ 14. Motorvognur skal hava hjólklæðing samsvarandi fyrisetingunum í VII tátti.
+§ 14a.2) Persónbilar til í mesta lagi 9 persónar og vøru- og lastvognar, hvørs loyvda totalvekt ikki er yvir 3.500 kg, skulu verða útgjørdir við trygdarselum til hvørt sitipláss. Selarnir skulu vera DS-, E- ella e-merktir trípunktsselar. Har tað er trupult ella ógjørligt at festa tílíkar selar, kunnu hesir vera mjadnarselar. Festini til trygdarselarnar skulu í styrki samsvara við eginleikarnar hjá trygdarselunum.

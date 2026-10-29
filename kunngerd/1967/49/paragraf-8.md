@@ -1,0 +1,6 @@
+§ 8. Motorvognur skal vera so útbúgvin, at akstjórin hevur nóg mikið útsýni frameftir og til viks. Stólpar og sprotar framman og til viks fyri akstjóranum skulu vera høviliga smalir.
+Stk. 2. Vindskjólið skal vera úr sterkum og lýtaleysum tilfari, so at lutir, ið síggjast ígjøgnum tað, verða ikki avskeplaðir. Um tað brotnar, mugu ikki kunna koma hvøss og vandamikil petti av tí.
+Stk. 3. Er akstjóraplássið skýlt við síðurnar, skulu tær hava gjøgnumsjónligan, kláran rút av glasi, træningi ella tl. við tílíkari stødd og settan á slíkan hátt, at akstjórin hevur nóg gott útsýni til viks.
+Stk. 4. Vindskjólið skal hava vindskjólstrúkar, ið virka nóg víða bæði vinstru og høgru megin á vindskjólinum og eru sjálvvirkandi. í
+Stk. 5. Motorvognur skal hava í minsta lagi ein økuspegil, nóg stóran og so skipaðan, at akstjórin úr sessi sínum sær vegin fyri aftan akfarið, og ein síðuspegil í vinstru síðu uttanfyri yvirbyggingina. Á last- og vøruvogni og persónmotorvogni útbúnum til meir enn 9 fólk skal vera 1 spegil hvørju megin uttan fyri stýrihúsið.
+Stk. 6.1) Lokaður vøruvognur skal í millum førarasessin og vørukassan hava verju millum loft og gólv. Verjan skal vera væl og virðiliga fest og ivaleysa haldgóð fyri at hindra farmi í at glíða fram á føraran

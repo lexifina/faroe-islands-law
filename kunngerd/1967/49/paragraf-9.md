@@ -1,0 +1,1 @@
+§ 9. Motorvognur skal hava verjur el. tl., ið verjir onnur vegfarandi móti slettum frá koyringini. Henda fyriskipan geldur ikki slíkar lastmotorvognar, ið eru soleiðis konstrueraðir og verða soleiðis nýttir, at tað veldur stórvegis trupulleikar at seta slettverju á.

@@ -1,0 +1,4 @@
+§ 26. Viðfestur vognur og leguvognur skulu fyri aftan hava baklykt, spjaldraljós og steðglykt, ið lúka krøvini í § 4, stk. 4, 5 og 7 og § 7.
+Stk. 2. Viðfestur vognur og leguvognur skulu fyri aftan hava tvey reyð refleksvæl av góðkendum slag, tríkantað við oddi uppeftir, lúkandi krøvini í X. tátti, og skipað sum baklyktum er fyriskipað, kortini ikki meir enn 75 cm yvir vegnum. Síður tríkantsins skulu vera í minsta lagi 15 cm langar.
+Stk. 3. Viðfestur vognur og leguvognur til motorvogn, ið ikki hevur leiðvísaraveingir, skulu fyri aftan hava glampaljós, ið lúka krøvini í § 6.
+Stk. 4. Úrkoplaður viðfestur vognur ella leguvognur skal, tá ið hann í lyktatendringartíðini er steðgaður ella parkeraður á akbreyt, ið ikki liggur í nóg góðum ljósi, umframt reytt ljós aftureftir vera merktur við tveimum hvítum ljósum frameftir. Tey skulu lúka krøvini í § 4, stk. 1, c, og stk. 2, 1. og 2. pkt.

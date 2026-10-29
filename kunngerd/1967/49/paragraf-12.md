@@ -1,0 +1,2 @@
+§ 12. Hitatól í motorvogni má ikki vera so útbúgvið, at koloxyd kann koma út innan í yvirbyggingini. Pípuleiðingar og hitaflatar á hitatilbúninginum mugu ikki fáast heitari enn 100° Celsius, og teir partar hitatilbúningsins, ið kunnu verða heitari enn 70° Celsius, skulu vera vardir móti, at nakar nertur við teir.
+Stk. 2. Hitaluftin má ikki verða hitað við fráblásturgassi motorsins, og pípur við fráblásturgassi mugu ikki vera ígjøgnum yvirbyggingina innan.

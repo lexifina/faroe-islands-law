@@ -1,0 +1,13 @@
+§ 6. Motorvognur skal hava báknar.
+Stk. 2. Báknarnir skulu vera útbúnir eftir aðrari av hesum skipanum:
+A. Bákniveingir. Teir skulu vera settir ein hvørju megin á akfarinum út fyri ella framman fyri akstjóraplássið og hava snið av veingi ella ørvi, ið kann verða útsligin. Teir skulu vera í minsta lagi 90 cm yvir vegbreytini, so at teir útslignir síggjast framman og aftanífrá frá einum stað, ið er javnlagt frá miðflatu vognsins og vonginum, og javnhøgt honum, so at í minsta lagi 10 cm síggjast av honum. Veingirnir skulu útslignir vera sjálvlýsandi í reyðum ella reyðgulum liti, men mugu ikki glampa. Eru teir settir á armar, ið skara út úr yvirbyggingini, mugu armarnir ikki vera málaðir í reyðum ella reyðgulum liti.
+B. Bákniglampaljós.
+1. Tey skulu vera glampandi ljós, sett framman og aftanfyri á vogninum á báðum síðum. Um fremru glampaljósini ikki síggjast aftanífrá, skulu umframt vera glampaljós hvørjumegin akfarið út fyri ella framman fyri akstjóraplássið, so at tey aftanífrá eru sjónsk uttan fyri yvirbygging ella last. Eru síðuglampaljósini sett á armar, ið skara út úr yvirbyggingini, mugu teir ikki vera málaðir í reyðum ella reyðgulum liti.
+2. Fremstu og aftastu glampaljós skulu mitt fyri ávikavist framenda og afturenda vognsins 1 m uppi síggjast 2 m frá vogninum. Fráleikin frá glampaljósinum til ytsta kant akfarsins má ikki vera meir enn 40 cm.
+3. Glampaljósini skulu vera sjónsk eisini í sól, men mugu ikki vera blindandi. Víddin á fremstu og aftastu glampaljósum skal vera í minsta lagi 12 cm2.
+4. Glampaljósini skulu frameftir sýna hvítt, gult ella reyðgult ljós og aftureftir reytt ella reyðgult.
+5. Síðuglampaljósini skulu tendrast við somu kontakt, sum fremstu og aftastu glampaljósini og virka samtíðis sum tey.
+6. Títtføri glampaljósins skal vera í minsta lagi 60 og í mesta lagi 120 um minuttin, og ljós- og myrkabil skulu vera um leið eins long.
+7. Fremstu glampaljósini kunnu verða tilbúgvin í støðulyktunum, um tær ikki eru sambygdar við aðrar forlyktir, og tey aftastu í steðg- ella baklyktunum. Wattnýtslan til hvørt glampaljósið skal so vera í minsta lagi 4 ferðir so stór sum wattnýtslan til ávikavist støðulyktina og baklyktina. Er glampaljósið í sambandi við steðgljósið, má nýtsla tess ikki seta glampaljósið úr virki.
+Stk. 3. Eru báknaveingir settir so, at teir síggjast ikki beinleiðis frá akstjóraplássinum, ella verður nýtt bákniglampaljós, skal motorvognurin hava ansaljós ella ljóðtekin, ið skal síggjast ella hoyrast frá akstjóraplássinum og fara at virka samtíðis sum báknarin.
+Stk. 4. Í staðin fyri síðuglampaljós er loyvt at nýta bákniveingir í sambandi við glampaljós framman og aftan á motorvogninum. Veingirnir skulu tendrast við somu kontakt, sum glampaljósini og virka samtíðis sum tey, men mugu ikki glampa.

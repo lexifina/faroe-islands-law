@@ -1,0 +1,1 @@
+§ 3. Motorvognur skal hava økubremsu, so altíð ber til at bremsa akfarinum nóg væl, álítandi og skjótt í øllum laðviðurskiftum, og somuleiðis eina frá hesi sjálvstøðuga parkeringsbremsu, ið eisini skal kunna steðga akfarinum væl og álítandi og skal kunna halda sær í spenni.
