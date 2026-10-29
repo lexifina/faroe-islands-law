@@ -1,0 +1,1 @@
+§ 7. Í øllum endurgjaldsmálum skal nevndin taka afturat sær serkøna hjálp, ið skal vera við í øllum samráðingum, um tey endurgjøldsmál, ið liggja fyri og leiðbeina nevndina í øllum tekniskum spurningum, ið koma fyri í málinum, men atkvøðurætt eiga teir ongan. Landsstýrið skjýtur upp 4 serfrøðingar at velja ímillum.

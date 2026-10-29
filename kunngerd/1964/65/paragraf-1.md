@@ -1,0 +1,1 @@
+§ 1. Metingarnevndin setir støddina av endurgjaldinum, sum ognarmaður ella annar rættindahavari eigur orsakað av ognartøku ella avhending eftir løgtingslóg nr. 13 frá 21. mei 1954 um býarskipanir og byggisamtyktir og tekur tær avgerðir, ið serliga eru nevndar í lógini.
