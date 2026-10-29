@@ -1,0 +1,2 @@
+§ 9 a. [^1] Fyri veiðu av makreli, norðhavssild og svartkjafti, ið er landað frá 1. august 2022 til og við 31. juli 2023, er veiðigjaldið tað í skjali 1, talvu 1-3 ásetta prosentið av miðal avreiðingarvirðinum fyri hvørt kilo í rundari vekt fyri hvørt fiskaslag sær.
+Stk. 2. Fyri veiðu av botnfiski í Barentshavinum, ið er landað frá 1. januar 2022 til og við 31. desember 2023, er veiðigjaldið tað í skjali 1, talvu 4 ásetta prosentið av miðal avreiðingarvirðinum fyri hvørt kilo í rundari vekt.

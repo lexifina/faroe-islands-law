@@ -1,0 +1,2 @@
+## Upplýsingarskylda
+§ 10. Tann, sum rekur almenna uppboðssølu av fiski í Føroyum, skal í seinasta lagi 5. desember á hvørjum ári lata Vørn upplýsingar um prís og nøgd av toski, sum er seldur á uppboðssølu frá 1. desember árið fyri til og við 30. november. Vørn letur landsstýrismanninum upplýsingarnar um tosk seldan um almenna uppboðssølu og umroknað til miðal avreiðingarvirði í rundari vekt. Fiskur og fiskavøra skal umroknast til runda vekt eftir ásetingunum um umrokningarfaktorar, ásettir við heimild í løgtingslóg um sjófeingi.

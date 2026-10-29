@@ -1,0 +1,1 @@
+§ 13. Veiðigjald, umframt renta og møguligur innheintingarkostnaður, kann verða innheintað við panting. TAKS fremur panting eftir reglunum um innheinting av skattum, tó er § 7, stk. 1 í lov for Færøerne om inddrivelse af skatter og afgifter til det offentlige m.m. ikki galdandi.

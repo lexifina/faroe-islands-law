@@ -1,0 +1,3 @@
+[^1]: Broytt við løgtingslóg nr. 76 frá 1. juni 2023, har § 2 ljóðar soleiðis: “Henda løgtingslóg kemur í gildi dagin eftir, at hon er kunngjørd. Stk. 2. § 12 a kemur í gildi 1. januar 2024.”
+[^2]: Broytt við løgtingslóg nr. 41 frá 25. mars 2025, har § 2 ljóðar soleiðis: “Stk. 1. Henda løgtingslóg kemur í gildi dagin eftir, at hon er kunngjørd og hevur virknað frá framløgudegnum. Stk. 2. § 1, nr. 3 kemur í gildi 31. desember 2025. Stk. 3. § 1, nr. 4 fer úr gildi 31. desember 2025.”
+[^3]: Broytt við løgtingslóg nr. 216 frá 22. desember 2025, har § 2 ljóðar soleiðis: “Henda løgtingslóg kemur í gildi 1. januar 2026.”

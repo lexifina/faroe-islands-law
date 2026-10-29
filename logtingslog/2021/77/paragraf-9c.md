@@ -1,0 +1,2 @@
+§ 9 c. [^1] Fyri veiðu av makreli, sild, lodnu og svartkjafti, ið er landað frá 1. august 2026, er veiðigjaldið tað í skjali 1B, talvu 1 og 2 ásetta prosentið av miðal avreiðingarvirðinum fyri hvørt kilo í rundari vekt fyri hvørt fiskaslag sær.
+Stk. 2. Fyri veiðu av botnfiski í Barentshavinum, ið er landað frá 1. januar 2026, er veiðigjaldið tað í skjali 1B, talvu 3 ásetta prosentið av miðal avreiðingarvirðinum fyri hvørt kilo í rundari vekt.

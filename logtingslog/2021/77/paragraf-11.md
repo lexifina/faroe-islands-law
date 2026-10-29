@@ -1,0 +1,1 @@
+§ 11. [^1] Vørn skal í seinasta lagi 5. juli á hvørjum ári lata landsstýrismanninum upplýsingar um prís og nøgd í rundari vekt av makreli, sild, lodnu og svartkjafti, sum fiskifør undir føroyskum flaggi hava landað feskt óvirkað, og sum er avreidd og fráboðað Vørn 1. juli árið frammanundan til og við 30. juni.
