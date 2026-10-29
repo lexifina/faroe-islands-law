@@ -1,0 +1,2 @@
+§ 32. Eru toll- og avgjaldsskyldugar vørur umborð á flutningsførum, ið eru komin til tolløkið, ið ikki eru upptiknar í farmaskjølini, og sum ikki eru fráboðaðar fyri tollvaldinum, eru vørurnar at rokna sum innsmuglaðar av ánaranum, uttan so at tað verður prógvað, at talan ikki hevur verið um roynd at smugla.
+2. stk. Verður komið fram á far undir 120 tons netto innan fyri tolløkið við vørum umbroð, ið hava toll- og avgjaldsupphædd, ið er í minsta lagi 200 kr., er talan um roynd at smugla, uttan so at tað verður prógvað, at farið ikki siglir við smugling í hyggju.

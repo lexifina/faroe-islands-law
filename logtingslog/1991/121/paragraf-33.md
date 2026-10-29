@@ -1,0 +1,1 @@
+§ 33. [^11] Persónlig nýtsla av vørum á fríøki ella frígoymslu, ið eru fluttar toll- og avgjaldsfrítt higar, ella móti frítøku fyri toll og avgjøld, er, undantikin loyvdari nýtslu av provianti í skipum, bannað. Keyp, móttøka, søla ella avhendan av teimum omanfyri nevndu vørum til persónliga nýtslu á einum fríøki ella frígoymslu er somuleiðis bannað.

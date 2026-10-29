@@ -1,0 +1,4 @@
+§ 30. Tollvaldið hevur rætt til at eftirkanna persónar, ið ferðast til ella frá tolløkinum, sum eru ella hava verið umborð á skipum ella flogførum, ella sum ferðast fram við strondunum, í havnum, á flogvøllum ella atløguplássum.
+2. stk. Eftirkanning av persóni skal fara fram so varliga sum gjørligt og ikki longur enn endamálið krevur tað.
+3. stk. [^2] Eftirkanning, ið ikki bert avmarkast til uttanáklæðini, má bert gerast, tá ið nóg góðar grundir eru til at halda, at viðkomandi hevur nakrar ólógligar vørur uppi á sær v.m. Tann, ið eftirkannaður verður, kann krevja sær vitni at vera hjá undir eftirkanningini. Til eftirkanningina krevst, at tann, ið kannar ella hjástaddur er, skal vera av sama kyni, sum tann, ið eftirkannaður er.
+Stk. 4. [^6] Eftirlit kann við samtykki frá tí ferðandi gerast við røntgen ella aðrari gjøgnumlýsing.

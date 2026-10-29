@@ -1,0 +1,1 @@
+§ 28 a. [^7] [^2] Landsstýrismaðurin ásetir reglur um, í hvønn mun og undir hvørjum treytum skip og flogfør kunnu taka við og proviantera toll- og avgjaldsfrían proviant og aðrar neyðsynjarvørur at nýta umborð ella at selja til ferðafólk.

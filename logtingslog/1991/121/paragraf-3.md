@@ -1,0 +1,2 @@
+§ 3. Avgerandi fyri tollsatsir og tarifering er toll- og vøruskráin fyri inn- og útflutning sett upp grundað á nomenklatur tollsamvinnuráðsins , “Harmonized Commodity Description and Coding System” (Tillagaða Skipanin) og tær í toll- og vøruskránni vanligu tariferingsreglur viðvíkjandi Tillagaðu skipanini.
+2. stk.[^2] Landsstýrismanninum verður heimilað at seta nærri reglur um nýtslu av vøruskránni í sambandi við fyrisitingina av hesari lóg.

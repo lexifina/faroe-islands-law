@@ -1,0 +1,1 @@
+§ 37 a. [^9] Tað kann áleggjast ánaranum av einum virki sekt fyri eitt av teimum í hesum kapitli umrøddu lógarbrotum, sjálvt um brotsverkið ikki kann roknast ánaranum sum tilætlað ella ósketni. Er eitt av teimum í hesum kapitli umrøddu lógarbrotum framt av einum partafelag, lutafelag ella tílíkum, kann sektarábyrgd verða áløgd felagnum sum so.

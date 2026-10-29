@@ -1,0 +1,1 @@
+§ 20. Ein og hvør, ið regluliga flytur inn vørur, kann biðja tollvaldið um at taka avgerð um, hvar vøran skal flokkast smb. vøruskránna. Umbønin, ið skal vera skriftlig, skal vera hjáløgd allar upplýsingar sbr. § 16, 1. stk. Avgerð tollvaldsins um vøruflokking er bindandi í 2 ár, frá tí hon er tikin.
