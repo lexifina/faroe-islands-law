@@ -1,0 +1,2 @@
+§ 6. Rættindi leigarans sambært hesi lóg, eru galdandi mótvegis øllum, uttan at avtalan er tinglýst. Sama er galdandi fyri avtalur um leigu, ið verður rindað í forskoti, innskot og depositum tá hesar upphæddir tilsamans ikki eru størri enn tað, sum svarar til 6 mánaða leigu,
+Stk. 2. [^2] Leigari skal við rættarmáli gera krav sítt sambært stk. 1 galdandi innan eitt ár eftir, at leiguavtalan er endað.

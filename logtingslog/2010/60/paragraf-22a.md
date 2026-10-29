@@ -1,0 +1,4 @@
+§ 22 a. [^2] Er leigumálið felags bústaður í hjúnabandi ella parlagi, kunnu partarnir avtala, hvør teirra heldur áfram í leigumálinum.
+Stk. 2. Semjast partarnir í hjúnabandi ikki um, hvør kann halda áfram í leigumálinum, kann í sambandi við dómin um hjúnaskilnað ella ógilding av hjúnabandinum ella í sambandi við loyvið um sundurlesing avgerast, hvør av pørtunum hevur rætt at halda áfram í leigumálinum.
+Stk. 3. Semjast partarnir í parlagi ikki um, hvør kann halda áfram í leigumálinum kann, tá serlig atlit tala fyri hesum, eitt nú atlit til børn undir 18 ár, avgerð takast við dómi um, hvør av pørtunum hevur rætt at halda áfram í leigumálinum.
+Stk. 4. Er treyt fyri leiguavtalu, at leigari er limur í bústaðafelagi, skal tann, ið heldur áfram í leigumálinum sbrt. § 22 og § 22 a somuleiðis gerast limur í bústaðafelagnum.

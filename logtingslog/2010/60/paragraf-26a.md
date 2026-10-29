@@ -1,0 +1,1 @@
+§ 26 a. [^2] Leigunevndin kann við samtykki frá leigara taka mál upp av sínum eintingum, tá ið leigunevndin í sambandi við viðgerð av kærum sambært § 26 kemur fram á viðurskifti, ið benda á, at leigumálið ikki lýkur lógarásett krøv til bústað, sambært § 9.
