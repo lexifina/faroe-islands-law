@@ -1,0 +1,1 @@
+§ 2. Reglurnar í hesi kunngerð galda ikki í førum, tá útlátið er neyðugt fyri at bjarga mannalívum á sjónum ella fyri trygd skipsins ella í førum, har skaði á skip ella útgerð eru atvoldin til útlátið, og øll hóskilig tiltøk eru sett í verk at fyribyrgja og minka um útlátið.
