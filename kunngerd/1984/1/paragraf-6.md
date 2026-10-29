@@ -1,0 +1,1 @@
+§ 6. Ávísingarskyldugur, sum bókar A-inntøku, ikki skattskyldugar veitingar og mótkrøv í sínum vanliga bókhaldi, skal goyma roknskaparbøkur, leysbløð, kontokort e.l. og annars skjølini til bókhaldið í 5 ár aftaná at roknskaparárið er at enda.

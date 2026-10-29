@@ -1,0 +1,3 @@
+§ 3. Ávísingarskyldugur, ið annars eisini hevur bókhald, kann velja, um hann ger eina serstaka konto fyri A-inntøku í bókhaldinum. Velur hann hetta, verður farið fram á henda hátt: Hvør ávísing av A-inntøku eftir § 6o í samtíðarskattalógini verður bókað á serstaka konto nevnd: “Konto fyri A-inntøku”.
+2. stk. Kemur tað fyri, at ikki skattskyldugar veitingar verða latnar samb. § 29, stk. 7 í skattalógini, ella at ávísingarskyldugi mótroknar egin krøv, skal hetta bókast á serstakar konti í bókhaldinum.
+3. stk. Á teimum í stk. 1 og 2 nevndu konti mugu bert bókast upphæddir av tí slagi, sum har eru nevndar. Møguligar rættingar av fyrr bókaðum upphæddum mugu bert gerast sum mótbókingar ella við at strika út.
