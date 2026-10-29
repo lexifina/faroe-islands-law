@@ -1,0 +1,1 @@
+§ 2. Galdandi lógir á økinum verða verandi í gildi, til tær verða settar úr gildi við løgtingslóg. Har danski staturin, ella danskur ráðharri er nevndur í lógunum, liggur heimildin framyvir hjá heimastýrinum ella landsstýrismanninum, í tann mun málsøkið sambart hesi lóg er flutt.

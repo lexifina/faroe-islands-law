@@ -1,0 +1,1 @@
+§ 1. Við heimild í § 2 í heimastýrislógini, yvirtekur heimastýrið seinasta partin av málsøkinum Telegraf- og Telefonmál í Føroyum, sum nevnt á lista A, pkt. 12, soleiðis at eisini telegraf- og telefonmál millum Føroyar og umheimin verður føroyskt málsøki.
