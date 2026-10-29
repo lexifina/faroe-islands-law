@@ -1,0 +1,1 @@
+§ 1. Skjøl til skrásetingar verða latin inn millum kl. 9.00 og 12.00 teir dagar, Skipaskrásetingin hevur opið. Skjøl, sum koma inn í avgreiðslutíð, verða førd í dagbókina sama dag, meðan skjøl, sum koma inn aftaná avgreiðslutíð, verða førd inn í dagbókina næsta avgreiðsludag, sbr. §§ 9 og 40 í løgtingslóg um skráseting av skipum.
