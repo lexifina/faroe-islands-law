@@ -1,0 +1,1 @@
+§ 5. Við fyriskipan av nýggjum ella broytingum av verandi arbeiðsplássum, arbeiðsgongdum og arbeiðshættum, nýtsla av nýggjari tøkniligari útgerð, keyp av nýggjum tøkniligum hjálpartólum, persónligari verndarútgerð og evni og tilfar, skal tað tryggjast, at arbeiðsumhvørvið er sambæriligt við tey almennu og serligu krøvini í arbeiðsumhvørvislógini.

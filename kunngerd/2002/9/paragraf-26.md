@@ -1,0 +1,6 @@
+§ 26. Arbeiðsgevarin skal syrgja fyri:
+1) at tað verða tilevnaðar arbeiðsforskriftir fyri reingerð, umvæling og viðlíkahald í tann mun tað er neyðugt fyri, at arbeiðið kann útinnast trygdarliga og heilsuliga fult forsvarligt,
+2) at neyðug tilbúgving verður framd á virkinum viðvíkjandi fyrstuhjálp, eldsløkking og burturflyting av starvsfólkunum við atliti at slagnum av arbeiði og virkisins stødd. Um neyðugt skal virkið fáa sær hjálp frá sakkønum.
+3) at seta í verk eina tilbúgvingar-, burturflytingar- og venjingarskipan, um so er, at serligur vandi er fyri leka av heilsuskaðiligum evnum, ella um tað er serligur vandi fyri eldi, spreinging, vanlukkum v.m.
+Stk. 2. Arbeiðsgevarin útnevnir teir persónar, sum skulu taka sær av fremjingini av tiltøkunum og ætlanum eftir stk. 1, nr. 2 og nr. 3 og skulu teir hava neyðuga upplæring og vera nóg nógvir í tali og ráða yvir hóskandi útgerð í mun til slagi av arbeiði og støddina á virkinum. Starvsfólkini á virkinum skulu kunnast um innihaldið av nevndu tiltøkum og ætlanum.
+Stk. 3. Tað skal førast eitt munadygt eftirlit við, at forskriftir, tiltøk og ætlanir, sum eru nevnd í stk. 1, verða hildin. Eftirlitið skal førast av persónum við tí neyðuga innlitinum innan tað ávísa arbeiðsøkið.

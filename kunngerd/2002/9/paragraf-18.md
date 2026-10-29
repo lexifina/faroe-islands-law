@@ -1,0 +1,1 @@
+§ 18. Óneyðug ávirkan av geislingum skal sleppast undan. Ávirkan av geislingum undir arbeiði skal tí vera so lág sum gjørligt og rímiligt er við atliti at tí tøkniligu menningini, og ásettir geislingarnormar skulu haldast.

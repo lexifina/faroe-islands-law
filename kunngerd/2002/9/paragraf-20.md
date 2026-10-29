@@ -1,0 +1,1 @@
+§ 20. Óneyðug likamlig last og óhóskandi arbeiðsstøður og -rørslur skulu sleppast undan. Arbeiðslastin undir arbeiði skal tí verða so lág sum gjørligt og rímiligt við atliti at tí tøkniligu menningini og ásett mørk skulu haldast.

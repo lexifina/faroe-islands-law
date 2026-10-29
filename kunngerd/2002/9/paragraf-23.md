@@ -1,0 +1,1 @@
+§ 23. Arbeiðsgevarin skal tryggja sær, at starvsfólk frá øðrum virki, sum útinna arbeiði á hansara virki, fáa hóskandi leiðbeining um trygdar- og heilsuviðurskiftir, sum kunnu hava týdning fyri teirra arbeiði.

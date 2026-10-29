@@ -1,0 +1,1 @@
+§ 19. Óneyðug ávirkan av evnum og tilfari skal sleppast undan. Ávirkan av evnum og tilfari undir arbeiði skal tí vera so lágt sum gjørligt og rímiligt við atliti at tí tøkniligu menningini, og ásett markvirðir skulu haldast.

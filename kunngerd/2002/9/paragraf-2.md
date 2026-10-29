@@ -1,0 +1,1 @@
+§ 2. Skyldurnar sambært hesi kunngerð liggja á arbeiðsgevarum, virkisleiðarum, arbeiðsleiðarum og arbeiðsfólkum annars, útvegarum, projekterandi, umvælarum v.fl. eftir almennu ásetingunum í arbeiðsumhvørvislógini.
