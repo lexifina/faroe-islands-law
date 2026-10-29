@@ -1,0 +1,1 @@
+§ 10. Orðingar í heimildarlógini skulu sum meginregla svara til játtanarslagið. Er talan um lógarbundna játtan, eigur málberingin “Landsstýrið rindar” ella “Landsstýrið heldur útreiðslurnar” at verða nýtt, meðan er talan um stuðulsjáttan eigur málberingin “Landsstýrið kann” ella “Landsstýrið fær heimild til” at verða nýtt.

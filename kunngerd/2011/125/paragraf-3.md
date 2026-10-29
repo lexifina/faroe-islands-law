@@ -1,0 +1,2 @@
+§ 3. Stuðulsjáttan verður brúkt til stuðul, sum ikki er lógarbundin, til lán og útreiðslur fyri veðhald, sbrt. § 24, stk. 1 í lógini. Stuðulsjáttan verður eisini brúkt til afturrindan av stuðli, láni og innloystum veðhaldi, sbrt. § 24, stk. 2 í lógini.
+Stk. 2. Inntøkur og útreiðslur, sum ikki verða mettar at vera fevndar av øðrum játtanarsløgum, verða tiknar við undir stuðulsjáttan, sbrt. § 14, stk. 3 í lógini.
