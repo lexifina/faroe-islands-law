@@ -1,0 +1,2 @@
+§ 6. Børn, sum eru farin í forskúla, og børn og ung í undirvísingarskyldugum aldri skulu fáa tilboð um fyribyrgjandi og heilsufremjandi heilsukanningar hjá heilsufrøðingi. Heilsufrøðingurin skal bjóða vegleiðing um heilsu, menning og trivnað. Harumframt skal heilsufrøðingurin eygleiða heilsuviðurskiftini hjá einstaka barninum eins og almennu umstøðurnar fyri hesum.
+Stk. 2. Virksemið hjá heilsufrøðinginum sambært stk. 1 fer vanliga fram á skúlunum.
