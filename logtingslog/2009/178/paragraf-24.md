@@ -1,0 +1,6 @@
+## Gjald til Heilsutrygd [^4] [^10]
+§ 24. [^4] [^11] [^1] [^8] [^6] Øll, sum hava fylt 18 ár og sum eru fevnd av hesi løgtingslóg, gjalda 175 kr. um mánaðin, umframt 0,70% av skattskyldugu inntøku sínari til Heilsutrygd.
+Stk. 2. [^10] Persónar, sum eru fevndir av stk. 1, men sum rinda heilsutrygdargjald í øðrum Norðanlandi vísandi til Nordisk Konvention om social sikring, og sum ikki kunnu draga gjaldið frá, vísandi til skattalógina, kunnu eftir umsókn verða undantiknir gjaldskyldu sambært stk. 1. Tá ið umsøkjarin ikki longur rindar heilsutrygdargjald í øðrum Norðanlandi, hevur hann skyldu at boða Heilsutrygd frá hesum.
+Stk. 3. [^10] TAKS krevur gjaldið inn fyri Heilsutrygd. Heilsutrygd rindar kostnaðin av hesum.
+Stk. 4. [^4] [^10] Rindar ein persónur, ið er umfataður av lógini, ikki gjaldið innan ásettu freist, verður rentutilskriving framd. Rentutilskrivingin er 0,7 % fyri hvønn byrjaðan mánað. Sama er galdandi fyri skuldskrivaða rentu. Lønareftirhald og panting kann eisini fara fram sambært reglunum í skattalógini.
+Stk. 5. [^10] Landsstýrisfólkið kann áseta nærri reglur um viðurskifti viðvíkjandi umsókn, um hvat ár og nær frá umsóknin skal vera galdandi fyri og fráboðanarskyldu sambært stk. 2.

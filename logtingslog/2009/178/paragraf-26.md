@@ -1,0 +1,4 @@
+## Upplýsingar
+§ 26. [^10] Heilsutrygd kann krevja inn allar upplýsingar, ið eru neyðugar fyri at umsita lógina, m.a. hagtøl frá sjúkrahúsum, kommunum, klinikkum, læknum, tannlæknum v.m. Til nýtslu í sambandi við umsókn um gjaldsundantøku sambært § 24, stk. 2, kann Heilsutrygd útvega sær upplýsingar frá øðrum viðkomandi myndugleikum, undir hesum TAKS.
+Stk. 2. [^10] Hevur persónur givið Heilsutrygd skeivar upplýsingar ella tagt um umstøður, sum hava týdning fyri gjaldsundantøku sambært § 24, stk. 2, kann Heilsutrygd eftirfylgjandi krevja inn gjaldið, ið viðkomandi av órøttum ikki hevur goldið.
+Stk. 3. [^10] Rindar ein persónur, ið er fevndur av løgtingslógini, ikki gjaldið smbrt. stk. 2 innan ásettu freist, verður rentutilskriving framd. Rentutilskrivingin er 0,7% fyri hvønn byrjaðan mánað. Sama er galdandi fyri skuldskrivaða rentu.
