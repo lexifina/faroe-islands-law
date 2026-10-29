@@ -1,0 +1,4 @@
+## Loyvisbrøv til leiguskrásett skip
+§ 12. Fyri skip, ið eru skrásett í føroysku skipaskránni, men eru leiguskrásett undir fremmandum flaggi, kann Sjóvinnustýrið útskriva loyvisbræv samsvarandi krøvunum í §§ 1-6.
+Stk. 2. Um skipið er leiguskrásett í einum landi, ið hevur tikið undir við Nairobi International Convention on the Removal of Wrecks verður loyvisbræv góðkent, ið málføri myndugleikin í hesum landinum hevur givið út. Loyvisbrævið skal tó vera í samsvari við krøvini í grein 12 í Nairobi International Convention on the Removal of Wrecks.
+Stk. 3. Um skipið er leiguskrásett í einum landi, ið ikki hevur tikið undir við Nairobi International Convention on the Removal of Wrecks, verður loyvisbrævið góðkent, ið málføri myndugleikin í einum landi, sum hevur tikið undir við sáttmálanum, hevur givið út. Loyvisbrævið skal tó vera í samsvari við krøvini í grein 12 í Nairobi International Convention on the Removal of Wrecks.

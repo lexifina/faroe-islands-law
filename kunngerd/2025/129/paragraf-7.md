@@ -1,0 +1,1 @@
+§ 7. Fyri skip, ið eru fevnd av § 1, og sum landið eigur, og har landið hevur átikið sær váðan, skal avvarðandi stovnur ella ráð lata inn eina váttan um, at landið hevur átikið sær váðan. Váttanin skal goymast umborð og vísast myndugleikunum eftir áheitan. Sjóvinnustýrið útskrivar loyvisbræv til skip á 300 BT ella meira, sum eru fevnd av slíkum váttanum.

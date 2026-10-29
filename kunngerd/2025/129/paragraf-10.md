@@ -1,0 +1,2 @@
+§ 10. Útlendsk skip, sum eru úr einum landi, ið ikki hevur tikið undir við Nairobi International Convention on the Removal of Wrecks, og sum ikki hava galdandi loyvisbræv sambært § 9, skulu senda Sjóvinnustýrinum umsókn um loyvisbræv. Ásetingarnar í §§ 4-6 verða nýttar samsvarandi.
+Stk. 2. Umsóknin skal verða send Sjóvinnustýrinum í seinasta lagi 14 dagar áðrenn skipið kemur í føroyska havn ella annað lastingarstað ella lossingarstað í Føroyum ella í føroyskum sjóøki innan fyri 200 fjórðingar úr grundlinjunum, ella byrjar at sigla regluliga í føroyskum sjóøki.
