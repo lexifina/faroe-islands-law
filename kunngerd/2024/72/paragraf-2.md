@@ -1,0 +1,3 @@
+§ 2. Landsstýrisfólkið fráboðar kommununum í seinasta lagi 31. mars á hvørjum ári, hvussu ætlanin er at býta játtanina, ið eftir ætlan verður sett av til stuðul til menning av fólkabókasavnstænastum, fyri komandi árið, sbr. tó § 4, stk. 2.
+Stk. 2. Stuðulin kann verða latin til bókakeyp og talgildar tænastur, ella til skipan av samstarvi millum kommunur um fólkabókasavnstænastur, sbr. stk. 3.
+Stk. 3. Stuðul til skipan av samstarvi millum kommunur um fólkabókasavnstænastur verður bert latin eftir avtalu við kommunur, ið hava fólkabókasøvn við starvsfólki við hægri bókasavnsfakligari útbúgving ella bókavarðaútbúgving í starvi.
