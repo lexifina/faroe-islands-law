@@ -1,0 +1,2 @@
+§ 7. Um so er, at Mentamálaráðið út frá einari heildarmeting kemur til ta niðurstøðu, at ein veitari ikki lýkur treytirnar fyri góðkenning sambært § 3, stk. 2, og ikki fylgir álegging frá Mentamálaráðnum um innan ávísa freist at fáa viðurskifti í rættlag sambært § 6, stk. 7, verður góðkenningin tikin aftur.
+Stk. 2. Um so er, at Mentamálaráðið staðfestir, at veitari tilvitað fremur brot á reglurnar um góðkenning, verður góðkenningin tikin aftur uttan aðra fráboðan.

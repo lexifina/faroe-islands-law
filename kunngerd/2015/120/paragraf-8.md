@@ -1,0 +1,2 @@
+§ 8. Mentamálaráðið kann góðkenna ein veitara av útbúgvingum í samsvari við standardin hjá Mentamálaráðnum fyri góðskustýring av teimum maritimu útbúgvingunum, hóast viðkomandi útbúgvingarstovnur ikki veitir útbúgving sambært § 2 í løgtingslógini.
+Stk. 2. Góðkenning av veitarum, sum verða góðkendir eftir stk. 1, skal gerast sambært § 3, stk. 2, nr. 2. Ásetingarnar í §§ 4-7 verða eisini nýttar fyri hesum.
