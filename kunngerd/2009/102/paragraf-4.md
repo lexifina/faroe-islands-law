@@ -1,0 +1,1 @@
+§ 4. Ein umsøkjari, ið verður tikin inn á ein góðkendan kavaraskúla, ella luttekur á kavaraskeiði, sum veitir góðkenda kavaraútbúgving, skal hava heilsuváttan frá læknakanning fyri kavarar, sum ikki er eldri enn 3 mánaðir, tá søkt verður.

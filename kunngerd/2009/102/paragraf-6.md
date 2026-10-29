@@ -1,0 +1,3 @@
+§ 6. Tá læknin kannar kavara ella umsøkjara sbr. § 3 og 4, skal metast um likamliga og sálarliga heilsustøðan er soleiðis, at tann kannaði er egnaður at útinna vinnuligt kavaraarbeiði sbrt. kanning læknans. Leiðreglar nevndar í § 11 kunnu nýtast í sambandi við kanningina.
+Stk. 2. Um tað í sambandi við læknakanningina vísir seg, at tann kannaði hevur eina ella fleiri av teimum sjúkum, sum eru nevndar í leiðreglunum sbr. § 11 ger viðkomandi lækni eina meting, um tann kannaði er skikkaður til viðkomandi kavaraarbeiði, ella um arbeiðsøkið skal avmarkast í mun til tað, tann kannaði er skikkaður til.
+Stk. 3. Um tað í leiðreglunum greitt er tilskilað, at sjúkan ger tann kannaða ikki skikkaðan at útinna kavaraarbeiðið, kann læknin meta tann kannaða at vera ikki skikkaðan.

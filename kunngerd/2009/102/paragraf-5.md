@@ -1,0 +1,1 @@
+§ 5. Er ivi um, at kavari, sum hevur kavarabræv, vegna heilsustøðuna framhaldandi er skikkaður til at útinna kavaraarbeiði, kann Arbeiðseftirlitið krevja, at viðkomandi skal lata seg kanna av nýggjum hjá lækna, um hann lýkur heilsustøðuna.
