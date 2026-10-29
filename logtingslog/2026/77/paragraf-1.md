@@ -1,0 +1,1 @@
+§ 1. 750 fiskidagar verða tillutaðir ikki fult riknum útróðrarbátum, sum hava rætt til B-loyvi sambært kunngerðini um treytir fyri fiskiloyvi 5 A og 5 B og reglur um býtið av fiskidagatalinum hjá bólki 5, útróðrarbátar undir 15 tons. Dagarnir verða tillutaðir sum felags fiskidagar.
