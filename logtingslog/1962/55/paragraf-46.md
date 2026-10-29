@@ -1,0 +1,1 @@
+§ 46. Eitt skjal verður roknað fyri tinglýst, tá tað er ført inn í persónbókina. Rættarfylgja tinglýsingarinnar verður roknað frá tí degi, tá ið skjalið verður meldað til tinglýsingar. Skjøl, sum meldað verða til tinglýsingar sama dag, eru javnbjóðis.

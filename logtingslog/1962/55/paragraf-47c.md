@@ -1,0 +1,2 @@
+§ 47 c. [^11] Hóast reglurnar í § 37 og § 47b í hesi lóg kunnu tey, ið reka alivinnu við loyvi frá landsstýrinum, geva undirveð í alifiski og smolti fyri skuld, sum stavar frá rakstri av alistøð ella smoltstøð.
+Stk. 2. Veðbrøv, sum geva undirveð í alifiski ella smolti, verða strikað, tá ið 3 ár eru liðin síðani tinglýsing pantibrævsins, og tað ikki innanfyri hesa freist er meldað tinglýsing av nýggjum.

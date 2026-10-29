@@ -1,0 +1,1 @@
+§ 5. Góðvari í hesi lóg er at skilja, at rættindahavarin ikki veit av tí ótinglýsta rættinum og ei heldur av grovum ósketni er sekur í sínum ókunnleika. Góðvari má vera, tá ið avtalan verður meldað til tinglýsingar, og við avhending av pantibrævi, tá ið avhendingin fer fram.

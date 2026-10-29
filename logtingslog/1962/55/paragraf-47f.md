@@ -1,0 +1,4 @@
+§ 47 f. [^4] Virkisveð, sbrt. § 47 d, ella kravsveð, sbrt. § 47 e, stovnað til fyrimuns fyri tann ella tey, ið eru nærskyld skuldaranum ella veðsetaranum, sbrt. § 2 í lovbekendtgørelse om konkurs, er uttan rættarvirknað. Verður veðhavari nærskyldur við skuldara ella veðsetara, kann veðið ikki verða sett sum veðhald fyri skuld, stovnað eftir henda dag, og ikki fevna um ogn, sum ánari hevur ognað sær eftir henda dag. 2 pkt. er somuleiðis galdandi, um nærskyld skuldaranum ella veðsetaranum taka við veðrættinum.
+Stk. 2. Virkisveð, sbrt. § 47 d, og kravsveð, sbrt. § 47 e, kunnu ongantíð samstundis verða tinglýst á blað veðsetarans í persónsbókini.
+Stk. 3. Tinglýsingardagurin er avgerandi fyri forrættarstøðuna millum veðrætt, sbrt. § 47 b, stk. 2, og virkisveð, sbrt. § 47 d, uttan mun til, nær ognin verður mett at verða fevnd av veðrættinum.
+Stk. 4. Ásetingin í § 42 e, stk. 2 er somuleiðis galdandi fyri ognarveðbrøv sbrt. § 47 d, stk. 1 og § 47 e, stk. 1.

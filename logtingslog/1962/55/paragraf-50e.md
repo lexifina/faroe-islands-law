@@ -1,0 +1,1 @@
+§ 50 e. [^2] Við bót verður hann revsaður, ið nýtir eina upplýsing ímóti regluni í § 50c, stk. 7. Fyri brot, ið verða framd av partafeløgum, smápartafeløgum ella líknandi, kann bót verða áløgd felagnum sum slíkum.

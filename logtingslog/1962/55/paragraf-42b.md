@@ -1,0 +1,3 @@
+§ 42 b. [^4] Ognarfyrivarni og undirveð í teimum í § 42 a nevndu akførum skulu tinglýsast fyri at fáa verju ímóti avtalum, sum í góðvari verða gjørdar um akfarið, og ímóti rættarsókn. Tað sama er galdandi fyri rættarsókn í slíkum akførum, um skuldarin ikki hevur mist ræðisrættindini yvir akfarinum.
+Stk. 2. Hóast ásetingarnar í stk. 1 skulu ognarfyrivarni í teimum í § 42 a nevndu akførum ikki tinglýsast fyri at fáa verju ímóti rættarsókn, um akfarið hvørki er, ella áður hevur verið, skrásett í akfarsskránni hjá Akstovuni. Hetta er tó ikki galdandi, um akfarið er frítikið fyri skráseting.
+Stk. 3. Tá tey í stk. 1 nevndu rættindi eru tinglýst, tørvar avhending ella onnur flyting av rættindunum ikki tinglýsing.

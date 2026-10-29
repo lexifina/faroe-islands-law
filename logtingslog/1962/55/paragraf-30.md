@@ -1,0 +1,1 @@
+§ 30. [^3] Í teim í §§ 31, 32, 34 og 35 nevndu førum verður endurgjald latið, sum landskassin rindar. Endurgjaldið verður ásett av dómstólunum. Sakarmál verður reist við Føroya Rætt móti Tinglýsingarstovuni vegna tað almenna.

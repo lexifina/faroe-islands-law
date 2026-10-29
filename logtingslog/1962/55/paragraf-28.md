@@ -1,0 +1,1 @@
+§ 28. Hann, sum hevur tinglýst pantibræv í hendi og eigur tað í forminum heimilt, hevur ikki skyldu at geva tað frá sær til hansara, ið mist tað hevur, uttan so tað verður prógvað, at hann, tá hann fekk tað, hevur gjørt seg sekan í ósketni.

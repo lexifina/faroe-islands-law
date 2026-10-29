@@ -1,0 +1,3 @@
+§ 42 c. [^4] Tinglýsing av teimum í § 42 b nevndu rættindum verður gjørd í akfarsbókini, ið verður førd av tinglýsingarmyndugleikanum.
+Stk. 2. Sum tinglýsingargrundarlag krevst eitt skjal, ið meldað verður til tinglýsingarmyndugleikan til tinglýsingar. Skjalið skal eftir sínum innihaldi fastseta, stovna, broyta ella taka av rættindi í einum ávísum akfari. § 9, stk. 4 og 5 og § 10, stk. 3 hava samsvarandi nýtslu.
+Stk. 3. Viðvíkjandi skjølum um ognarfyrivarni og veðbrøv hevur § 10, stk. 2 samsvarandi nýtslu. Harafturat hevur § 11, stk. 2 eisini samsvarandi nýtslu viðvíkjandi veðbrøvum. Við tinglýsing av rættarsókn skal váttan frá tí valdi, sum tikið hevur avgerðina, leggjast fram, ella váttað útskrift úr tess bókum.

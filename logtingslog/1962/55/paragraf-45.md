@@ -1,0 +1,1 @@
+§ 45. Her umrøddu skjøl verða kunngjørd í tinglýsingarlistanum. Av pantibrøvum verða í honum at tilskila nøvn partanna og størv umframt bústaður skuldarans. Av hjúnasáttmálum tilskilast nøvn partanna, størv og bústaður.

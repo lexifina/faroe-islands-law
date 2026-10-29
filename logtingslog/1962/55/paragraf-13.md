@@ -1,0 +1,3 @@
+§ 13. [^3] Tá ið søla ella yvirtøka av eigindómi á almennari tvingsilssølu er farin fram, skal fútin, og tá ið gjaldtrot og alment skifti er, sum fevnir um fastan eigindóm, skiftirætturin (ella eksekutor testamenti) beinan vegin lata Tinglýsingarstovan fáa frásøgn um hetta til tinglýsingar.
+Stk. 2. [^5] Somu frásagnarskyldu hevur verjin, tá ið rættarligi myndugleikin verður frátikin eftir verjumálslógini § 6.
+Stk. 3. [^5] Tá ið ómyndugur fær eigindóm sum arv, ella viðkomandi á annan hátt ognast fastan eigindóm, skal verjin tinglýsa ómyndugleikan. Fyri ómynding av aldri skal føðingardagur hansara upplýsast.

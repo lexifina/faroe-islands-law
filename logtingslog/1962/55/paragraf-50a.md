@@ -1,0 +1,1 @@
+§ 50 a. [^2] Endamálið við edv-skráseting eftir § 50, stk. 3, er at fáa til vega eina arbeiðsskrá fyri tinglýsingarverkið og eitt grundarlag fyri formidling av tinglýsingarupplýsingum til almenningin og gerð av hagtølum.

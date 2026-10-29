@@ -1,0 +1,3 @@
+§ 50 f. [^2] Pantibrøv, ið verða fráboðað til tinglýsingar, skulu vera skrivað á oyðubløð, ið eru góðkend av landsstýrinum.
+Stk. 2. Landsstýrismaðurin kann áseta, at onnur skjøl, ið verða fráboðað til tinglýsing, skulu vera skrivað á oyðubløð, ið eru góðkend av landsstýrismanninum.
+Stk. 3. Landsstýrismaðurin kann, hóast reglurnar í § 50 c, stk. 3-5, áseta reglur um royndir við tinglýsing við støði í elektroniskari flytan av upplýsingum og um royndir við elektroniskari latan av upplýsingum til ein realkreditstovn. Í hesum reglum kann verða ásett, at tinglýsing av elektroniskum skjølum skal hava somu rættarfylgju sum tinglýsing av øðrum skjølum.

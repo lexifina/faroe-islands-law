@@ -1,0 +1,5 @@
+§ 12. Til tinglýsing av úttøku, dómi og aðrari almennari rættaravgerð skal váttan frá tí valdi, sum tikið hevur avgerðina, leggjast fram, ella váttað útskrift úr tess bókum, og avgerðin skal viðvíkja tí persóni, sum eftir tingbókini hevur heimild at ráða yvir eigindóminum.
+Stk. 2. Til tinglýsingar av hevd krevst annaðhvørt váttan frá honum, sum hevd er fingin ímóti, at hann góðkennir hevdina, ella dómur fyri, at hevd er fingin.
+Stk. 3. Er heimaskifti ella hjúnafelagi situr við óskiftum búgvi, verður tinglýst skiftiútskrift ella váttan frá skiftirættinum, at arvingarnir hava tikið búgvið til heimaskiftis, ella at búgvið er latið hjúnafelaga sum óskift. Tílík útskrift ella váttan er tá nógmikið grundarlag hjá viðkomandi til tinglýsingar av skjølum eigindóminum viðvíkjandi.
+Stk. 4. Í sakarmálum um fastan eigindóm kann saksøkjarin krevja váttað endurrit av stevningini tinglýst, tá ið tann rættur, har málið er tingfest, hevur tikið avgerð um tað.
+Stk. 5. Dettur málið burtur uttan dóm, ella gongur dómurin saksøkjaranum ímóti, og kærufrestin er farin uttan kæru, kann saksøkti krevja stevningina avlýsta.

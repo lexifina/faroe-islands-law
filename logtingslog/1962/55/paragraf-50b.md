@@ -1,0 +1,1 @@
+§ 50 b. [^2] Einans er loyvt at skráseta upplýsingar, ið hava týdning fyri at kunna røkja tinglýsingaruppgávurnar, og upplýsingar, ið hava stóran týdning fyri nýtsluna av tinglýsingarupplýsingum, hjá brúkarunum.

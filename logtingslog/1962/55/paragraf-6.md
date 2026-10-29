@@ -1,0 +1,1 @@
+§ 6. Sum skeyti er at skilja hvørt tað skjal, ið flytur eigindómsrættin til ein tilskilaðan fastan eigindóm ella part av tílíkum, treytaleyst ella treytað av rinding av keypspeninginum ella øðrum. Eigindómsavhending kann fara fram við flutningi á skeytið.

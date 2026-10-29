@@ -1,0 +1,2 @@
+§ 19. [^2] Er hann, ið eigur bygning, ikki hin sami, sum eigur grundina, fær bygningurin egið eigindómsblað – við tørvandi tilskiling til og frá eigindómsblaðnum fyri grundina – og kemur yvirhøvur undir somu reglur eftir hesi lóg sum sjálvstøðugur fastur eigindómur. Somuleiðis við bygningum, sum settir eru í fjøruni ella út í sjógvin, uttan fyri matrikulerað lendi, tá ið bygningurin er ætlaður at verða standandi á staðnum.
+Stk. 2. Um so er at rættindi verða tinglýst sum fevnandi um fleiri eigindómar hjá sama eigara, verður víst frá hvørjum eigindómsblaði til hini.

@@ -1,0 +1,7 @@
+§ 22. [^2] [^3] Áðrenn eitt sundurbýti verður endaliga framt við tinglýsing av skeytum til teir nýggju eigindómarnar, skal váttan fyriliggja frá Tinglýsingarstovuni, um teir servituttir, ið tinglýstir eru á eigindóminum, liggja á øllum eigindóminum ella bert summum av teimum nýggju eigindómunum, sum ætlað er at býta hann í, og tá hvørjum. Sum grundarlag fyri hesi váttan kann Tinglýsingarstovan krevja álit frá matrikulstovuni um nevndu spurningar.
+Stk. 2. [^3] Tinglýsingarstovan skal annars vera teim, sum býta sundur, til hjálpar at nýta mannagongdina eftir § 20 í hesi lóg til tílíkar heftingar og tyngsl á megineigindóminum, sum búgvin eru til strikingar eftir nevndu reglu.
+Stk. 3. [^3] Kemur fráboðan um sundurbýti ella matrikulering eftir teimum reglum, sum galdandi eru um hetta, stovnar Tinglýsingarstovan beinanvegin eigindómsbløð fyri teir nýggju eigindómarnar. Sundurbýti verður viðmerkt á blaðið hjá tí sundurbýtta eigindóminum.
+Stk. 4. Á tey nýggju eigindómsbløðini verður í heimildar-, byrðu- og heftingarteiginum sett ein stutt tilvísing til blaðið hjá høvuðseigindóminum.
+Stk. 5. Í seinasta lagi við fyrstu tinglýsing av skjeyti verða viðmerktar tær byrðar og heftingar, ið liggja á tí einstaka eigindóminum. Er tann nýggi eigindómurin ikki loystur undan nevndu heftingum, ið liggja á høvuðseigindóminum, verða hesar samstundis tilskilaðar.
+Stk. 6. Reglan í § 23, stk. 2, verður eisini at nýta í hesum førum.
+Stk. 7. Reglurnar í stk. 1-6 verða at nýta samsvarandi við uppbýti í eigaraíbúðir.
