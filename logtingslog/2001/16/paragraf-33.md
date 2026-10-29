@@ -1,0 +1,1 @@
+§ 33. Landsstýrismaðurin kann áseta reglur um ella forboð móti innflutningi, goymslu, sølu og nýtslu av evnum, heruppií hormonum og hormonlíkum evnum, ið stýra verpingar- og mjólkarevnunum, vøkstrinum ella nøringini hjá djórum.

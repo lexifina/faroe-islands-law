@@ -1,0 +1,1 @@
+§ 44. Tað áliggur virkjum, ið taka ímóti djóraúrdráttum frá landbúnaðar- og alibrúkum eftir áheitan at lata upplýsingar um tað djórahald, sum úrdráttirnir koma frá. Upplýsingarnar skulu fevna um navn eigarans og bústað, eyðmerking av ognini, og slag og samanseting av djórahaldinum.

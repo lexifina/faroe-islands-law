@@ -1,0 +1,1 @@
+§ 30. Landsstýrismaðurin ásetir reglur um løggilding av virkjum, ið framleiða, innflyta ella útflyta djórafóður, beinmjøl, fiskamjøl, fiskalýsi o.l., ella sum innflyta ella útflyta rávøru og hjálparevni til framleiðslu av hesum vørum, og um djóralæknaeftirlit.

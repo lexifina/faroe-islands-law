@@ -1,0 +1,1 @@
+§ 37. Landsstýrismaðurin kann áseta reglur um útsetan, nýtslu, sølu, innflutning og útflutning av djórum, ið eru ílegutøkniliga framleidd, heruppií djórum, ið eru tillagað við organismum, ið eru framleiddar við ílegutøkni, og um fráboðan ella góðkenning frammanundan.

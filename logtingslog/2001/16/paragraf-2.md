@@ -1,0 +1,3 @@
+§ 2. Lógin fevnir um allar smittandi sjúkur, zoonosur, arvaligar sjúkur, fóðringstreytaðar og umhvørvistreytaðar sjúkur, heruppií tær sjúkur, sum eru tilskilaðar í skjali 1 og 2 til hesa lóg. Við sjúku í hesi lóg er eisini at skilja eitran og dálking av djórum.
+Stk. 2. Við zoonosur er at skilja sjúkur og smitta, ið natúrliga verða fluttar frá djórum til menniskju. Við zoonotisk smittuevni eru at skilja smittuevni, ið kunnu elva til zoonosur.
+Stk. 3. Landsstýrismaðurin kann í serligum førum gera broytingar í teimum í stk. 1 nevndu skjølum, soleiðis at skjølini eisini koma at fevna um arðar sjúkur, ella at sjúkur verða fluttar frá einum skjalið ella bólki til annað skjal ella bólk.

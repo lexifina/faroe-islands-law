@@ -1,0 +1,3 @@
+§ 46. [^2] [^3] Leggur landsstýrismaðurin sínar heimildir eftir lógini til ein myndugleika undir honum, kann hann áseta, at avgerðir, tiknar av myndugleikanum, kunnu kærast til Føroya Kærustovn.
+Stk. 2. [^2] [^3] Eftir samráðing við avvarðandi landsstýrismann, kann landsstýrismaðurin áseta reglur um, at aðrir almennir myndugleikar ella stovnar skulu vera við til at røkja uppgávur eftir lógini. Landsstýrismaðurin kann áseta, at avgerðir hjá hesum stovnum ella myndugleikum kunnu kærast til Føroya Kærustovn.
+Stk. 3. [^2] [^3] Landsstýrismaðurin kann áseta reglur um, at privatir stovnar skulu vera við til at røkja uppgávur sambært lógini ella reglum við heimild í lógini, og um kæru um avgerðirnar til Føroya Kærustovn.

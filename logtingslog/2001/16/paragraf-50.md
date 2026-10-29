@@ -1,0 +1,3 @@
+§ 50. Verður mett, at eitt brot ikki fer at hava við sær hægri revsing enn bót, kann landsstýrismaðurin boða frá, at málið kann verða gjørt av uttan rættarsókn, um hann, sum hevur framt brotið, játtar seg sekan í brotinum og váttar innan eina nærri ásetta freist, ið eftir umbøn kann verða longd, at rinda eina í fráboðanini ásetta bót.
+Stk. 2. [^4] Í teimum í stk. 1 nevndu málum verður § 771 í rættargangslógini at nýta samsvarandi. Fyri ta í stk. 1 nevndu fráboðan verða ásetingarnar í § 878, stk. 2, at nýta samsvarandi.
+Stk. 3. Verður bótin rindað rættstundis, ella verður hon eftir váttanina heintað inn ella rindað, fellur onnur rættarsókn burtur.

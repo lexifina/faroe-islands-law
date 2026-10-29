@@ -1,0 +1,3 @@
+§ 45. Um neyðugt, hevur landsstýrismaðurin, ella hann, sum landsstýrismaðurin hevur heimilað til tess, nær tað skal vera, við hóskandi lógváttan og uttan rættarúrskurð atgongd til almenna og privata ogn og øki fyri at útinna tær heimildir, ið givnar eru í lógini ella reglum við heimild í lógini.
+Stk. 2. Um neyðugt veitir løgreglan hjálp. Landsstýrismaðurin kann eftir samráðing við avvarðandi myndugleika áseta nærri reglur um hetta.
+Stk. 3. Eftirlitsfólk frá Evropeiska Samveldinum hava rætt at gera eftirlit við tí endamáli at kanna, um Føroyar útinna sínar skyldur sambært reglunum í teim fyriskipanum, Føroyar hava bundið seg til at seta í verk. Eftirlitið skal verða gjørt í samstarvi við føroyskar myndugleikar.

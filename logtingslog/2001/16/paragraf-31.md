@@ -1,0 +1,1 @@
+§ 31. Landsstýrismaðurin kann áseta reglur um skráseting og rakstur av fyritøkum, ið selja og flyta fóður til djór, herímillum reglur fyri lastbilar, skip og onnur før, ið verða brúkt til flutning av fóðri.

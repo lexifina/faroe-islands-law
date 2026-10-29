@@ -1,0 +1,3 @@
+§ 20. Landsstýrismaðurin kann áseta reglur um heilsulig krøv til djór, ið skulu nýtast til aling, og til sáð, egg ella embryonir, ið eru ætlað til gjørdan gitnað, ísáing, egg- ella embryoflutning.
+Stk. 2. Landsstýrismaðurin kann áseta reglur um merking av djórum, ið verða nýtt sum gevarar og móttakarar av sáð, eggum ella embryonum, eins og av tí avkomi, sum verður.
+Stk. 3. Landsstýrismaðurin kann áseta reglur um, at djór og sáð, egg ella embryonir frá djórum, sum skulu nýtast til gjørdan sáð- ella eggflutning í djór hjá øðrum, einans kunnu verða havd ella goymd á virkjum, sum eru góðkend til hetta.

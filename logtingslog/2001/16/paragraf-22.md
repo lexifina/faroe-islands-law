@@ -1,0 +1,1 @@
+§ 22. Gjørdur flutningur av sáð, eggum ella embryonum í djór ella tøka av eggum ella embryonum úr djórum kunnu einans verða gjørd av løggildum djóralækna ella av persónum, sum eru løggildir ella góðkendir sambært §§ 2-7 í løgtingslóg nr. 40 frá 23. apríl 1999 um djóralæknavirksemi v.m.

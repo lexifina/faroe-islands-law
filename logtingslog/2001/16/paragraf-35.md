@@ -1,0 +1,1 @@
+§ 35. Landsstýrismaðurin kann áseta reglur um nýtslu av sóttreinsanarevnum, øðrum vørum og hættum, ið kunnu nýtast til fyribyrging og burturbeining av sjúkuelvandi viðurskiftum í umhvørvinum hjá djórum.

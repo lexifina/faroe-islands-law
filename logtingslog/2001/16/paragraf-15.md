@@ -1,0 +1,2 @@
+§ 15. Landsstýrismaðurin kann áseta reglur um, at einans djór, ið koma frá djórahaldum, ið eru við í einari heilsuskipan, jbr. § 10, kunnu sleppast leys, verða flutt, seld, ella latin til slaktingar.
+Stk. 2. Í reglunum kann vera ásett, at onnur djór enn tey, ið eru nevnd í stk. 1, kunnu sleppast leys, verða flutt, seld, ella latin til slaktingar, tá ein djóralækni frammanundan hevur staðfest, at djórini ella upprunaliga djórahaldið eingi sjúkueyðkenni hava.
