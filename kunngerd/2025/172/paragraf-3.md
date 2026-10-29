@@ -1,0 +1,1 @@
+§ 3. Tá kommunurnar byggja, umbyggja ella útbyggja eina heilsumiðstøð skal atlit takast til, at heilsumiðstøðin sum frálíður skal kunna hýsa støðugt fleiri tilboðum um heilsutænastur í nærumhvørvinum.
