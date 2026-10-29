@@ -1,0 +1,1 @@
+§ 1. Fyri sendingar, sum koma til tolløkið, skal tænastugjald á kr. 30,00 rindast til TAKS fyri skráseting í post- og innflutningsskipanini. Fyri sendingar, sum eru avgjaldsfríar, skal tó einki tænastugjald rindast.
