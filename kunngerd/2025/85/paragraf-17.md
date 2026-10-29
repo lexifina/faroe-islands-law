@@ -1,0 +1,1 @@
+§ 17. Umhvørvisstovan kann afturkalla eitt loyvi eftir § 14, um treytirnar í §§ 15 og 16 ikki longur eru loknar. Áðrenn Umhvørvisstovan afturkallar eitt loyvi, skal loyvishavarin hava høvi at greiða frá áskoðan sínari um hetta.

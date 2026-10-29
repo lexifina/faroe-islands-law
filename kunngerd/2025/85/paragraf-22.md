@@ -1,0 +1,1 @@
+§ 22. Viðgerð av upplýsingum kann einans fremjast til dagføringar av upplýsingum í skipanini umframt viðgerð við tí í hyggju at framleiða upplýsingar, sum sambært løgtingslóg um tinglýsing ella øðrum tinglýsingarforskriftum skulu veitast av tinglýsingarskipanini.

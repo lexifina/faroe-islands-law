@@ -1,0 +1,3 @@
+§ 21. Upplýsingar í tinglýsingarskipanini kunnu bert fáast til vegar við grundarlagi í fráboðaðum skjølum til tinglýsingar ella har tað annars sambært løgtingslóg um tinglýsing ella øðrum tinglýsingarforskriftum er heimild at føra upplýsingar í skipanina, sbr. tó stk. 2.
+Stk. 2. Upplýsingar í tinglýsingarskipanini kunnu haraftrat fáast til vegar við elektroniskari flyting av upplýsingum frá skránni hjá Landsfólkayvirlitinum, adressuskránni, akfarsskránni og virkisskránni.
+Stk. 3. Eftir áheitan frá tinglýsingarskipanini verða upplýsingar, fevndar av stk. 2, fluttar beinleiðis umvegis Heldina til tinglýsingarskipanina.

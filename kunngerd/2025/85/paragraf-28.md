@@ -1,0 +1,2 @@
+§ 28. Allar skrásetingar, sum verða gjørdar í tinglýsingarskipanini, skulu loggast. Loggurin skal innihalda upplýsingar um tíð, brúkara, slag av nýtslu og tilskilan av ogn, persóni ella akfari, sum upplýsingarnar viðvíkja. Skrásetingin skal goymast í minsta lagi í seks mánaðir.
+Stk. 2. Umhvørvisstovan og avvarðandi aðalráð kann til eina og hvørja tíð krevja logupplýsingar fyri skipanina frá veitaranum.
