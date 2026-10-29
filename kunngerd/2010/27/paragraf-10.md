@@ -1,0 +1,1 @@
+§ 10. Viðvíkjandi eftirmeting í einari støðisútbúgving ella øðrum útbúgvingum, sum kunnu geva frítøku fyri skúlaundirvísingini ella stytting av lærutíðini, eru ásetingarnar um eftirmeting í viðkomandi útbúgvingarkunngerðum galdandi.
