@@ -1,0 +1,2 @@
+§ 5. Umsókn sum fakligur ábyrgdari í fyritøku við hjávinnuløggilding verður latin inn samstundis sum umsókn um hjávinnuløggilding, og verður givin samstundis sum hjávinnuløggildingin verður givin.
+Stk. 2. Í góðkenning sum fakligur ábyrgdari í fyritøkum við hjávinnuløggildingum, skal verða sett krav um, at fakligur ábyrgdari heldur fakliga førleikan við líka og í góðkenningi kann verða sett krav til skeiðsluttøku.
