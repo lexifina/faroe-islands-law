@@ -1,0 +1,2 @@
+## Miðlaráðið
+§ 4. Landsstýrismaðurin velur 5 limir í Miðlaráðið. Landsstýrismaðurin velur 2 limir, harav annar er formaður ráðsins. Landsstýrismaðurin setir hinar 3 limirnar eftir tilmæli frá Felagnum Føroyskir Sálarfrøðingar, Føroya Pedagogfelag og Føroya Lærarafelag í felag og Felagnum Heim og Skúli. Fyri hvønn ráðslim verður tilnevndur ein tiltakslimur. Starvstíðin hjá ráðslimum og tiltakslimum er 5 ár.
