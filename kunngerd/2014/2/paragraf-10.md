@@ -1,0 +1,1 @@
+§ 10. Løgmansskrivstovan skal syrgja fyri, at hvør árgangur av Kunngerðablaðnum verður goymdur í prentaðari pappírsútgávu í 3 ymiskum støðum, so sum á Føroya Landsskjalasavni, á Landsbókasavninum og Løgmansskrivstovuni.
