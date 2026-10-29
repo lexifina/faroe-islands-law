@@ -1,0 +1,2 @@
+[^1]: Broytt við kunngerð nr. 144 frá 14. august 2025, har § 2 ljóðar soleiðis: “Stk. 1. Henda kunngerð kemur í gildi dagin eftir, at hon er kunngjørd. Stk. 2. Veitarar av drekkivatni skulu í seinasta lagi 12. januar 2027 lúka markvirðini, ið eru ásett í hesi kunngerð. Stk. 3. Undantikin frá freistini í stk. 2 eru markvirðini fyri blýggj og krom, sum skulu vera lokin í seinasta lagi 12. januar 2036.”
+[^2]: Broytt við kunngerð nr. 103 frá 9. juni 2019.

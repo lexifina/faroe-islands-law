@@ -1,0 +1,2 @@
+§ 9. Umsókn um løggilding av eini vatnveitingarskipan skal sendast Heilsufrøðiligu starvsstovuni, sum ásetur krøv um tær upplýsingar, sum umsóknin skal innihalda, og sum m.a. eru navn á umsøkjara, lýsing av vatnveitingarskipanini og innaneftirlitsskipanini umframt skrásetingarskjøl.
+Stk. 2. [^2] Upplýsingar eftir stk. 1 fevna eisini um eina sýnistøku- og kanningarætlan, sum lýkur krøvini í skjali 3 og 4. Sýnistøku- og kanningarætlanin skal nøkta tørvin fyri eyka kanningum, sum vandamálsgreiningin av veitingarskipanini vísir.

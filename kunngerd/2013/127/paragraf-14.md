@@ -1,0 +1,5 @@
+§ 14. Evnavørur, sum skulu nýtast at viðgera drekkivatn við, skulu vera góðkendar av Heilsufrøðiligu starvsstovuni, sum eisini skal listaføra góðkendu evnavørurnar. Heilsufrøðiliga starvsstovan kann vísa til lista við góðkendum evnavørum, sum verður nýttur í grannalondum okkara. Góðkenningin er galdandi í 10 ár, ella til Heilsufrøðiliga starvsstovan metir tað vera neyðugt at endurskoða góðkenningina.
+Stk. 2. Tær í stk. 1 nevndu evnavørur skulu vera eiturevnafrøðiliga kannaðar og skulu vera mettar egnaðar til nýtsluna.
+Stk. 3. Nýtslan av evnavørum til viðgerð av drekkivatni skal góðkennast í hvørjum einstøkum føri í sambandi við løggilding eftir § 8.
+Stk. 4. Vatnveitarar, sum nýta evnavørur, skulu tryggja, at ikki meira av evnavøru verður latið í vatnið enn neyðugt er, til tess at røkka endamálinum við hesum.
+Stk. 5. Vatnveitarar, sum nýta evnavørur, skulu tryggja, at evnini, sum verða latin í, og evni, sum stava frá hesum evnum, ikki finnast í drekkivatninum í nøgdum, sum beinleiðis ella óbeinleiðis kunnu skaða heilsu móttakarans ella fara út um ásetingarnar í § 11.
