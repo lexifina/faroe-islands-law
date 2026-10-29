@@ -1,0 +1,2 @@
+§ 5. Ársgjaldið fellur til gjaldingar á hvørjum árið tann 1. februar, og fevnir um tíðarskeiðið til og við 31. januar árið eftir. Tann, sum er skrásettur eigari tann 1. januar, hevur skyldu til at rinda árliga gjaldið fyri alt árið.
+Stk. 2. Fyri árið 2015 fellur ársgjaldið til gjaldingar tann 1. september, og fevnir um tíðarskeiðið til og við 31. januar árið eftir. Tann, sum er skrásettur eigari tann 1. juli 2015, hevur skyldu til at rinda ársgjaldið.

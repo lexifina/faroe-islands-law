@@ -1,0 +1,1 @@
+§ 3. Skip, ið sbrt. leigusáttmála eftir kunngerð um leiguskráseting av skipum eru skrásett í útlendskari skipaskrá, og fyribils hava annað flagg enn føroyskt, eru ikki fevnd av ásetingunum í §§ 1 og 2.
