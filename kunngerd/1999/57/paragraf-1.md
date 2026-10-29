@@ -1,0 +1,6 @@
+## Vinnuvirki rikið í felag
+§ 1. Til uppbýtið av skattskyldugu inntøkunum krevst, at sáttmáli er gjørdur millum hjúnafelagarnar við neyvari útgreining av býti og ábyrgd. Galdandi lóggáva um skráseting og útvegan av loyvisbrævi skal verða lokin.
+Stk. 2. Sáttmálin skal góðkennast av Toll- og Skattstovu Føroya, áðrenn hann fær gildi fyri býti av inntøkuni millum hjúnafelagarnar. Sáttmálin skal galda frá álmanakkaárs byrjan ella frá tí degi felags vinnuvirkið verður byrjað og kann ikki broytast í álmanakkaárinum. Broytingar í sáttmálanum skulu góðkennast av Toll- og Skattstovu Føroya, og kunnu bert fáa gildi frá einum 1. januar.
+Stk. 3. Treytin fyri býti av skattskyldugu inntøkuni í samband við at hjún reka vinnuvirkið í felag er somuleiðis, at veruligur felags rakstur er til staðar og at báðir hjúnafelagarnir luttaka í rakstrinum av virkinum.
+Stk. 4. Verða reglurnar í stk. 1-3 ikki loknar, kann uppbýtið av inntøkuni av sjálvstøðugum vinnuvirki hjá hjúnum ikki góðkennast í uppgerðini av skattskyldugu inntøkunum, og verður tann av hjúnafeløgunum, sum ber høvuðsábyrgdina av rakstrinum, settur í skatt av samlaðu inntøkuni í virkinum.
+Stk. 5. Festibøndur kunnu ikki nýta reglurnar í hesi grein.
