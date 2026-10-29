@@ -1,0 +1,6 @@
+§ 11. Hevur fiskimaður ella reiðari givið Trygdargrunni fiskivinnunnar skeivar upplýsingar, ella tagt um umstøður, sum hava havt týdning fyri inntøkutrygd ella forskoti, ella annars móti betri vitandi móttikið inntøkutrygd ella forskot, uttan at hava rætt til tess, kunnu upphæddir, sum av órøttum eru útgoldnar, verða kravdar afturgoldnar frá viðkomandi.
+Stk. 2. Hevur reiðari medábyrgd av, at skeivar upplýsingar eru givnar, ella at tagt er um umstøður, sum hava havt týdning fyri inntøkutrygdina ella forskot, liggur afturgjaldskyldan eisini á honum.
+Stk. 3. Afturgjalding av skuld eftir stk. 1 og 2 kann fara fram við mótrokning í øðrum krøvum, viðkomandi hevur mótvegis Trygdargrunni fiskivinnunnar.
+Stk. 4. Upphæddir, sum verða kravdar inn eftir hesi grein, fella til gjaldingar ein mánað eftir, at kravið er sett fram. Krøv sambært hesi grein, umframt møguligur innkrevjingarkostnaður av hesum, kunnu krevjast inn við panting.
+Stk. 5. Um stýrið tekur undir við ásetingunum, ásetir landsstýrismaðurin í kunngerð smámunarmark í sambandi við innkrevjing av ov nógv útgoldnari inntøkutrygd.
+Stk. 6. Stýrið kann, eftir nærri ásettum reglum, gera gjaldsavtalur, herundir avskriva krøv, tá útlit ikki eru fyri at fáa allan peningin frá skuldaranum.

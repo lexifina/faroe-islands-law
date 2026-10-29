@@ -1,0 +1,6 @@
+## Kapittul 3
+## Inngjaldingar í grunnin
+§ 7. Fæ grunsins verður fingið til vega við, at eigarar av fiskiførum, heimahoyrandi í Føroyum, ið hava loyvi til vinnuligan fiskiskap sambært lógini um vinnuligan fiskiskap, rinda eitt gjald fyri allar avreiðingar. Gjaldið verður 1 % frá 1. januar 2011, og annars, um stýrið tekur undir við tí, soleiðis, sum tað til eina og hvørja tíð er ásett í kunngerð av landsstýrismanninum. Gjaldið kann tó í mesta lagi vera 2 % av brutto avreiðingarvirðinum.
+Stk. 2. Eigarar av fiskiførum, hvørs manning ikki kemur undir ásetingarnar um inntøkutrygd, kunnu fáa undantak at rinda tað í stk. 1 nevnda gjald.
+Stk. 3. Um stýrið tekur undir við ásetingunum, ásetir landsstýrismaðurin í kunngerð nærri reglur um, hvussu og nær persónar og feløg skulu rinda tað í stk. 1 nevnda gjald, og um undantak eftir stk. 2. Eisini kann verða ásett, um tað er uppboðssølan, tann, ið selur, ella tann, ið keypir fiskin fyrstu ferð, hann verður seldur, ið skal afturhalda gjaldið og rinda tað til grunnin.
+Stk. 4. Rinda tey gjaldskyldugu ikki rættstundis, skal renta rindast við 1 % fyri hvønn byrjaðan mánað. Gjaldið, umframt avgreiðslugjøld, renta og møguligur innkrevjingarkostnaður av hesum kunnu krevjast inn við panting.
