@@ -1,0 +1,1 @@
+§ 8. Ráðslimirnir, varamenn teirra, skrivari og onnur, sum luttaka á fundum ráðsins, hava tagnarskyldu um tey mál og tey viðurskifti, sum koma til teirra kunnleika í sambandi við ráðsviðgerðina, og sum eftir síni náttúru ikki eiga at vera borin víðari.

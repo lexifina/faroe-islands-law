@@ -1,0 +1,1 @@
+§ 5. Ráðið er viðtøkuført, tá ið formaðurin og í minsta lagi 4 limir eru á fundi. Í kærumálum kann ráðið tó taka avgerðir við færri limum tó soleiðis, at fyri uttan formannin skal talið av umboðum fyri reiðarafeløgini og avvarðandi vinnufeløg altíð vera eins. Formaðurin tekur í ivamálum avgerð um, hvør kann atkvø›a.

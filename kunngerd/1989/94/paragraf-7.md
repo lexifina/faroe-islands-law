@@ -1,0 +1,1 @@
+§ 7. Fundarfrágreiðingar og avgerðir ráðsins verða førdar í gerðabók, sum verður undirskrivað av limunum, sum eru á fundi. Tað áliggur formanninum at fremja tær avgerðir, sum tiknar verða í ráðnum, umframt at hann ráðsins vegna undirskrivar neyðug skjøl.

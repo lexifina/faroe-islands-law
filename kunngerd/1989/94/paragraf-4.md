@@ -1,0 +1,1 @@
+§ 4. Formaður ráðsins skipar fyri arbeiðinum. Hann boðsendir ráðslimunum til fundar við hóskandi freist. Hevur ráðslimur forfall, verður varalimur boðsendur ístaðin. Formaðurin ásetur fundartíð og -stað og letur ráðslimunum arbeiðstilfar.
