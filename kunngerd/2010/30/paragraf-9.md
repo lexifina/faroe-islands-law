@@ -1,0 +1,3 @@
+§ 9. Virðisbrøv, sum eru givin Føroya Yvirformyndarí at umsita, ella sum Føroya Yvirformyndarí keypir fyri rokning hjá kontuhava, verða umsitin framíhjá.
+Stk. 2. Undirskrift hjá Føroya Yvirformyndarí kemur í staðin fyri undirskrift hjá kontuhavanum viðvíkjandi einihvørjari avgerð um framíhjá umsitin virðisbrøv.
+Stk. 3. Broyting í trygdini fyri ella av skyldunum sambært framíhjá umsitin virðisbrøv, heruppí skuldaryvirtøka, skal góðkennast av Føroya Yvirformyndarí. Avgerðin verður tikin sambært váttan frá verjanum ella tí mynduga kontuhavanum. Góðkenning kann ikki verða givin ímóti ynskinum hjá verja ella myndugum kontuhava.

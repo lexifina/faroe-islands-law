@@ -1,0 +1,2 @@
+§ 4. Áheitan um broyting av, hvussu ogn verður sett, skal sendast Føroya Yvirformyndarí. Ogn hjá aldursómyndugum kontuhava kann ikki verða sett á uppsøgn soleiðis, at kontuhavin gerst myndugur, áðrenn uppsagnarfreistin er úti.
+Stk. 2. Um serstakar umstøður tala fyri tí, kann Føroya Yvirformyndarí aftur fyri eitt rentuendurgjald geva loyvi til, at ogn, sum er sett á uppsøgn, uttan ávaring ella við styttri freist enn galdandi fyri kontuna, verður brúkt til at keypa virðisbrøv. Rentuendurgjaldið verður ásett av Innlendismálaráðnum eftir tilmæli frá Landsbankanum.

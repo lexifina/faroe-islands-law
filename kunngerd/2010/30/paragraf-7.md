@@ -1,0 +1,2 @@
+§ 7. Falnar rentur, sum ikki verða útgoldnar, verða lagdar afturat kontuni. Rentur, sum eru lagstar afturat í nærmasta undanfarna árinum, kunnu tó eftir áheitan verða útgoldnar. Afturatlagdar rentur verða rentaðar frá gjaldkomudegnum.
+Stk. 2. Føroya Yvirformyndarí kann gera av, at falnar rentur ikki kunnu verða útgoldnar ella bara partvíst verða útgoldnar, um ein verji við roknskaparskyldu ikki letur inn roknskap, ella um serstakar umstøður eru.

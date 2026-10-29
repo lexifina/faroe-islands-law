@@ -1,0 +1,4 @@
+§ 6. Rentustøðið fyri reiðan pening verður ásett av Innlendismálaráðnum eftir tilmæli frá Landsbankanum. Føroya Yvirformyndarí skal almannakunngera broyting í rentustøðinum í dagbløðunum og miðlunum. Rentustøðið skal hvønn 1. januar og 1. juli kunngerast á heimasíðuni hjá Innlendismálaráðnum.
+Stk. 2. Rentan verður roknað 1 ár í senn til tann 11. desember.
+Stk. 3. Nýggur reiður peningur og upphæddir, sum stava frá ognum undir framíhjá umsiting, og sum fáast við sølu ella innfrían ella á líknandi hátt, verða rentaðar frá fyrsta degi aftan á inngjaldingina.
+Stk. 4. Reiður peningur, sum verður útgoldin ella fluttur frá Føroya Yvirformyndarí, verður rentaður til seinasta dagin undan ávísingardegnum. Upphæddir, ið verða brúktar til keyp av virðisbrøvum, verða tó rentaðar til rentuavrokningardagin á keypsrokningini.

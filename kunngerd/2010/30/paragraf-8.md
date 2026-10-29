@@ -1,0 +1,2 @@
+§ 8. Reiður peningur, sum ein ómyndugur ella horvin kontuhavi eigur, kann verða settur í virðisbrøv eftir reglunum í kunngerð um umsiting av ogn hjá ómyndugum og persónum undir verju. Virðisbrøv kunnu verða umbýtt eftir somu reglum. Heldur Føroya Yvirformyndarí, at umbýtið ikki er til frama fyri áhugamálini hjá kontuhavanum, verður málið lagt fyri Innlendismálaráðið.
+Stk. 2. Ogn, sum aðrir kontuhavar eiga, verður sett eftir teimum reglum, sum eru galdandi fyri hesar ognir.
