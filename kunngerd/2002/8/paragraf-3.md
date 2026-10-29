@@ -1,0 +1,1 @@
+§ 3. §§ 23-28 og § 31, stk. 1 kann frávíkjast hvat viðvíkur arbeiðsrúmum, har tað bert verður arbeitt viðhvørt ella bert í stuttum tíðarskeiðum, og í tann mun, tað eftir umstøðunum er rímiligt og ráðiligt, t.d. fyri goymslur, arkiv- og amboðsrúm, tøknirúm og verkfrøðingagongir.

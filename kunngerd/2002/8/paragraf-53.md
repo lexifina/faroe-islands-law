@@ -1,0 +1,3 @@
+§ 53. Har sum starvsfólk verða dálkað, og dálkingin vegna heilsuvanda ikki má spjaðast, skulu innrættast tvey sundurskild klædnarúm, eitt til vanlig klæðir og eitt til arbeiðsklæðir. Tey skulu verða støðað soleiðis, at sleppast kann úr øðrum í hitt gjøgnum eitt baðirúm, og at gongdin til og frá í vanligum klæðum ikki er gjøgnum dálkað øki.
+Stk. 2. Klædnarúmið til arbeiðsklæðir skal vera innrættað og hava útbúnað soleiðis, at arbeiðsklæðini á fulltryggan hátt kunnu pakkast í tætt pakkitilfar, áðrenn klæðini verða koyrd til vask. Har sum einnýtisklæði verður brúkt, skulu afturlatin, hóskandi ruskíløt finnast.
+Stk. 3. Klædnarúmið til arbeiðsklæðir má ikki brúkast av øðrum starvsfólkum enn teimum, sum verða dálkað.

@@ -1,0 +1,1 @@
+§ 21. Har sum vandi er fyri dálking av tilfari við smittuvanda, ella av tilfari, sum við atliti at trygd og heilsu er týdningamikið at fáa burtur av húðini ella forða spjaðing av, skulu - nærindis arbeiðsstaðnum - vera hóskandi og nóg nógv hjálpartól, so sum eygnaskolifløska, neyðbrúsa og serlig reinsievnir.

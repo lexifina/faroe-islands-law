@@ -1,0 +1,2 @@
+§ 45. Hentleikarnir skulu vera innrættaðir í føstum bygningi, uttan so at hetta eftir umstøðunum ikki er møguligt ella rímiligt.
+Stk. 2. Hentleikarnir skulu vera í rúmum, sum eru innrættað á ein fulltryggan hátt. Hentleikar, sum tæna serligum trygdar- ella heilsuligum endamálum, skulu vera innrættaðir til tað á ein hóskandi hátt. Rúmini skulu hava hóskandi tilføring av frískari luft, hóskandi hita-/kuldaviðurskifti v.m., umframt at hava neyðugan og hóskandi útbúnað og útgerð.

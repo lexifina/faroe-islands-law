@@ -1,0 +1,2 @@
+§ 5. Skyldu sambært kunngerðini hava arbeiðsgevarar, virkisleiðarar, arbeiðsleiðarar og onnur starvsfólk, útvegarar, ráðgevandi o.fl. eftir vanligu reglunum í lógini um arbeiðsumhvørvi.
+Stk. 2. Tann, sum útleigar ella framleigar bygningar, høli, lendi v.m. til eina fyritøku, sum er fevnd av kunngerðini, skal síggja til, at tað útleigaða er tøkt til endamálið, soleiðis at tað kann innrættast eftir krøvunum í kunngerðini.

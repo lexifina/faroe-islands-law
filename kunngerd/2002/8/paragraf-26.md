@@ -1,0 +1,2 @@
+§ 26. Gólvið í arbeiðsrúminum og undir teimum einstøku arbeiðsstøðunum skulu, í tann mun tað ber til, vera í somu hædd, vera jøvn og ikki holut. Møguligir hæddarmunir og hol skulu avmerkjast týðuliga.
+Stk. 2. Gólváleggingin skal vera gjørd við atliti at arbeiðinum, sum verður gjørt í rúminum, og skal, alt eftir slagnum av arbeiði, vera nóg hart og ikki vera hált. Har sum vandi er fyri, at løgur stoytist, og tørvur er at skola, skal gólvið innrættast til tað.

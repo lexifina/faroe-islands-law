@@ -1,0 +1,1 @@
+§ 20. Arbeiðsstaðið skal vera støðað og innrættað soleiðis, at starvsfólk ikki óneyðugt verða ávirkað av evnum og tilfari, geisling, ovurstórum hita-/kuldastigum, ringum deymi, larmi ella ristingum v.m. frá arbeiðsgongdum ella -staði hjá øðrum.

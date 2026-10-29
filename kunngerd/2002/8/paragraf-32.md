@@ -1,0 +1,2 @@
+§ 32. Um framleiðslan ella vørurnar skulu kølast niður, skal tað gerast soleiðis, at starvsfólkið ikki fær heilsuskaðaligan gjóstur ella kuldageisling á seg. Har sum tað er møguligt, skulu arbeiðsstøð bjálvast termiskt móti niðurkølingarprosessini.
+Stk. 2. Tá ið virksemi gevur sterka hitageisling, skulu egnað tiltøk gerast, t.d. at verja ella inniloka arbeiðsgongdina, fyri at verja starvsfólkini. Um hetta ikki er møguligt, skulu onnur tiltøk gerast móti hitageisling.

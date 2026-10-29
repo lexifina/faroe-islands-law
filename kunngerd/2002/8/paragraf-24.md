@@ -1,0 +1,1 @@
+§ 24. Gólvvídd, rúmhædd og rúminnihald skulu vera lagað eftir tí slagnum av arbeiði, tøkniligu útgerðini, tilfarinum og útbúnaðinum, sum eru í rúminum, umframt talinum av fólki, sum vanliga eru í rúminum.

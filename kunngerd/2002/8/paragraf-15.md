@@ -1,0 +1,1 @@
+§ 15. Hurðar, portur, lemmar v.m. skulu vera støðað (plaserað), dimensjonerað og nóg nógv í tali í mun til slagið av avbeiði og viðurskiftini annars. Tey skulu vera gjørd av egnaðum tilfari, tilevnað og innrættað soleiðis, at tey lætt kunnu latast upp og aftur og farast framvið uttan vanda. Tey skulu vera nóg væl bjálvað móti óljóði, kulda, fukti og eldi v.m.

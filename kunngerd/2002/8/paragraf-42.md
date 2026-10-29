@@ -1,0 +1,1 @@
+§ 42. Á arbeiðsplássinum skulu vera hóskandi umstøður til at rudda, gera reint og halda viðlíka, soleiðis at tey, ið útinna arbeiðið, eins og onnur starvsfólk á fyritøkuni, eru uttan fyri nakran vanda fyri trygd og heilsu.

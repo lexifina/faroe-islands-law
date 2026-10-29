@@ -1,0 +1,1 @@
+§ 44. Hentleikarnir skulu vera nóg nógvir í tali við atliti at slagnum av arbeiði og talinum av persónum, sum vanliga brúka teir, og vera sínámillum settir soleiðis, at teir hóska til arbeiðsstøð og ferðsluvegir.

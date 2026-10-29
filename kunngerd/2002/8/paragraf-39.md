@@ -1,0 +1,1 @@
+§ 39. Nóg nógv vanligt ljós skal vera í arbeiðsrúminum, og hóskandi serljós skal vera á hvørjum einstøkum arbeiðsstaði, soleiðis at arbeiðið kann útinnast á fulltryggan hátt og í hóskandi arbeiðsstøðu.

@@ -1,0 +1,1 @@
+§ 29. Yvirflaturnar í arbeiðsrúminum mugu ikki geva frá sær damp ella dust í rúmið ella gera støðuravmagn, soleiðis at starvsfólk verða útsett fyri heilsuskaðaliga ella nervandi ávirkan. Í arbeiðsrúmum við eksplosjónsvanda, skal gólvið vera egnað og ikki geva neistar frá sær.
