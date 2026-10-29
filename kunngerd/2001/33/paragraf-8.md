@@ -1,0 +1,1 @@
+§ 8. [^1] Hevur móttøkuskipanin ov lítla móttøkuorku smb. § 1, stk. 2, kann Umhvørvisstovan eftir samráðingar við Føroya landsstýri geva havnastýrinum ella teimum í § 7 nevndu virkjunum boð um at fremja neyðugar útbyggingar av skipanini ella útbúnaðinum.

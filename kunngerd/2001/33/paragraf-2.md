@@ -1,0 +1,2 @@
+§ 2. Við “móttøkuskipan” skilst eftir hesi kunngerð fastur ella flytiligur útbúnaður, ið verður nýttur til móttøku av leivdum ella blandingum av skaðiligum flótandi evnum, sum verða flutt sum leysafarmur.
+Stk. 2 Við “skaðilig flótandi evni” skilst í hesi kunngerð evni, ið eru fevnd av kunngerð nr.166 frá 1. apríl 1987 hjá danska umhvørvismálaráðnum um flokking og bólking, umframt tøming av skaðiligum flótandi evnum, ið verða flutt sum leysafarmur.
