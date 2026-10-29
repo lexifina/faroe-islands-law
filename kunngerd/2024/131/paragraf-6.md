@@ -1,0 +1,5 @@
+## Viðgerðartrygd
+§ 6. Gjaldstovan skal seta í verk hóskandi tøknilig og bygnaðarlig tiltøk, ið eru kravd sbrt. § 46 í dátuverndarlógini í mun til váðarnar, sum standast av viðgerðini av persónupplýsingum. Endamálið er at tryggja áhaldandi trúnað, integritet, atkomu og haldføri í Mínboks. Dátuábyrgdarin kann ikki áleggja Gjaldstovuni eyka trygdarkrøv.
+Stk. 2. Gjaldstovan skal hava innanhýsis mannagongdir um verksettu tøkniligu og bygnaðarligu tiltøkini, sbrt. stk. 1. Mannagongdirnar skulu eftirhyggjast árliga umframt, at starvsfólk, ið viðgera persónupplýsingar knýttar til Mínboks, altíð eru kunnaðið um galdandi mannagongdir.
+Stk. 3. Einstaki dátuábyrgdari sbrt. § 2, stk. 2, hevur ábyrgdina av at fremja hóskandi tøknilig og bygnaðarlig tiltøk, ið knýta seg til leiklutin sum dátuábyrgdari í samband við nýtslu av Mínboks.
+Stk. 4. Gjaldstovan hevur ábyrgdina av, at ásetingarnar um dátuvernd ígjøgnum sniðgeving og dátuvernd ígjøgnum standardstillingar sbrt. § 38 í dátuverndarlógini, verða fylgdar í mun til menning, rasktur, viðlíkahald og fyrisiting av Mínboks.

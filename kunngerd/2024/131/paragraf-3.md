@@ -1,0 +1,1 @@
+§ 3. Viðgerðin frá Gjaldstovuni kann fevna, um øll sløg av persónupplýsingum, undir hesum vanligar persónupplýsingar, viðkvæmar persónupplýsingar, sbrt. 11 í dátuverndarlógini, revsiverd viðurskifti sbrt. § 13 í dátuverndarlógini og persónstøl, sbrt. § 16 í dátuverndarlógini.
