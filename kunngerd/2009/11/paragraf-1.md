@@ -1,0 +1,1 @@
+§ 1. Vørur, sum koma við posti, koma undir toll við vørurokning sum grundarlag. Um so er, at eingin vørurokning er, ella hon ikki er nóg gjølliga skrivað, og nøktandi vørurokning ikki kann útvegast, letur postverkið tollvaldinum sendingina at kanna innihaldið.

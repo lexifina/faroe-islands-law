@@ -1,0 +1,1 @@
+§ 3. Tollvaldið hevur til eina og hvørja tíð rætt til at gera kanningar av sendingum, ið koma í postinum. Eisini er tollvaldinum heimilað at vera við og kanna, hvussu sundurskiljingin av brævsendingum sambært § 2 fer fram.
