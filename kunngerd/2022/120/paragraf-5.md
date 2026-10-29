@@ -1,0 +1,2 @@
+§ 5. Ein limur í Grannskoðaranevndini kann ikki luttaka í viðgerðini av einum máli, tá viðkomandi sambært reglunum í retsplejelov for Færøerne hevði verið ógegnigur sum dómari.
+Stk. 2. Ein limur skal skjótast gjørligt boða formanninum frá, um umstøður eru, sum kunnu vekja iva um, hvørt viðkomandi er ógegnigur í sambandi við viðgerðina av einum máli. Formaðurin tekur avgerð um, hvørt viðkomandi kann luttaka í viðgerðini av málinum.

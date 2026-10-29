@@ -1,0 +1,2 @@
+§ 12. Ein partur kann lata ein triðjapart umboða seg í Grannskoðaranevndini, og skal hesin tá vera myndigur.
+Stk. 2. Við støði í ynskinum hjá partinum um at lata seg umboða av einum triðjaparti, ásetir formaðurin tíð og stað fyri viðgerð nevndarinnar av málinum. Formaðurin kann fyri at skunda undir viðgerðina av málinum, og hóast parturin hevur eitt ynski um at lata seg umboða av einum ávísum triðjamanni, áseta tíð og stað fyri viðgerð nevndarinnar av málinum.

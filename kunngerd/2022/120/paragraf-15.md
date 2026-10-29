@@ -1,0 +1,1 @@
+§ 15. Áðrenn Grannskoðaranevndin tekur avgerð í einum kærumáli, sum onnur enn Skráseting Føroya ella Grannskoðaraeftirlitið hava lagt fyri nevndina, kann nevndin biðja Skráseting Føroya ella Grannskoðaraeftirlitið um eitt úttalilsi, hvørt hesi væntandi vildu lagt eitt samsvarandi mál fyri nevndina.
