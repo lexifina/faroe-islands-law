@@ -1,0 +1,5 @@
+## Kapittul 2
+## Navn
+§ 2. Grannskoðanarvirkir, sbr. § 1, skulu í sambandi við, at navnið hjá grannskoðanarvirkinum verður nýtt, vísa, at virkið er eitt góðkent grannskoðanarvirki, sbr. tó stk. 2.
+Stk. 2. Eitt grannskoðanarvirki, har meirilutin av atkvøðurættunum er ogn hjá løggildum grannskoðarum ella løggildum grannskoðanarvirkjum, ávíkavist skrásettum grannskoðarum ella skrásettum grannskoðanarvirkjum, hava einkarrætt at nýta heitið ”løggilt grannskoðanarvirki” ávíkavist ”skrásett grannskoðanarvirki” ella samansetingar við hesum, sbr. § 13, stk. 4 í grannskoðaralógini.
+Stk. 3. Eitt grannskoðanarvirki, har meirilutin av atkvøðurættunum er ogn hjá grannskoðarum ella grannskoðanarvirkjum, sum eru góðkend sambært reglum, ið fremja fyriskipan hjá ES-tinginum og Ráðnum um lógbodna grannskoðan og eru fevnd av sínámillum avtalu, sum Føroyar hava við ES, EBS ella beinleiðis við einstøk lond, sbr. § 13, stk. 2 í grannskoðaralógini, skal í sambandi við, at útlendskt virkisheiti verður nýtt, vísa, at grannskoðanarvirkið er eitt góðkent grannskoðanarvirki.
