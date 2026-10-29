@@ -1,0 +1,1 @@
+§ 2. Til flutning av fiski, livur og rogn frá útróðrarbátum úr økjum, har eingin uppboðssøla er, verður eftir umsókn og skjalprógvi fyri flutningi latið útróðrarbátum 14 oyru/kilo í flutningsstuðli til at flyta fisk, livur og rogn til nærmastu uppboðssølu.

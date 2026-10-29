@@ -1,0 +1,2 @@
+§ 1. Til flutning av fiski, livur og rogn verður eftir umsókn og skjalprógvi fyri flutningi latið fiskavirki/framleiðsluvirki flutningsstuðul í kr. fyri kilo sambært fylgiskjali 1.
+Stk. 2. [^1] Stuðul til flutning frá landingarmiðstøð verður bert útgoldin, um fiskurin er keyptur beinleiðis frá fiskifari, uttan nakað millumlið, og um fiskurin verður fluttur til virkingar í økjum, har firðir ella sund skilja.
