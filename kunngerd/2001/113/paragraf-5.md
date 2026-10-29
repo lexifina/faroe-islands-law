@@ -1,0 +1,3 @@
+§ 5. Søla av lindýrum, nevnd eru í fylgiskjal 1, lista 2, teigi 2, til góðkend sjóøki ella góðkend akvakulturbrúk, skal, umframt treytirnar í § 2, lúka hesar treytir:
+1. tá lindýr verða latin góðkendum sjóøki, fyri at verða slept har, skal flutningsskjal sambært fylgiskjali 10 ella 11, sbr. § 9, har váttað verður, at tey koma frá góðkendum sjóøki ella góðkendum akvakulturbrúki í ikki-góðkendum sjóøki, verða sent við,
+2. tá lindýr verða latin góðkendum akvakulturbrúki í ikki góðkendum sjóøki, skal flutningsskjal sambært fylgiskjali 10 ella 11, sbr. § 9, har váttað verður, at tey koma frá góðkendum sjóøki ella góðkendum akvakulturbrúki í ikki-góðkendum øki, har heilsufrøðiliga støðan er hin sama sum á móttøkubrúkinum, verða sent við.

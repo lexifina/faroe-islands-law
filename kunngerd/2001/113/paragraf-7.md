@@ -1,0 +1,2 @@
+§ 7. Livandi lindýr, sum eru viðkvom fyri sjúkunum í fylgiskjal 1, lista 2, teigi 1, og sum verða send frá ikki-góðkendum øki til matna í góðkendum øki, skulu verða latin beinleiðis til matna ella til niðursjóðingarvirkir.
+Stk. 2. Reglurnar í stk. 1 eru ikki galdandi fyri lindýr frá góðkendum akvakulturbrúki í ikki-góðkendum sjóøki ella fyri lindýr, sum fyribils eru løgd í goymslubrunn, sum er góðkendur sambært teimum reglum, ES setir til hetta endamál, og sum hevur viðgerðar- og reinsiútgerð til frárensluvatn.

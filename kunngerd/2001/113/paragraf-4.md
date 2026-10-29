@@ -1,0 +1,2 @@
+§ 4. Er talan um sendingar við livandi, aldum fiski og rognum og sili frá hesum í samhandlinum innan ES millum ikki-góðkend øki, tá talan er um IHN og VHS, skal skjal samsvarandi fylgiskjali 8, sbr. § 9, fylgja við sendingini.
+Stk. 2. Er talan um sendingar við livandi, aldum fiski og rognum og sili frá hesum í samhandlinum innan ES frá akvakulturbrúki, sum er fongt við IHN ella VHS til onnur akvakulturbrúk, sum eru fongd við somu sjúku, skal skjal samsvarandi fylgiskjal 9, sbr. § 9, fylgja við sendingini.

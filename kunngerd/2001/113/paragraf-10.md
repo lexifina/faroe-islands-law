@@ -1,0 +1,2 @@
+§ 10. Akvakulturdýr skulu verða flutt til móttøkustaðið skjótast gjørligt við flutningsfari, sum frammanundan er vaskað og sóttreinsað.
+Stk. 2. Flutningskør skulu verða gjørd soleiðis, at vatn ikki verður spilt undir flutninginum. Flutningurin skal fara fram á tann hátt, at heilsustøðan á akvakulturdýrunum verður vard best møguligt, t.d. í sambandi við skifting av vatni. Møguligt vatnskifti skal fara fram á teimum støðum, sum eru góðkend til endamálið.
