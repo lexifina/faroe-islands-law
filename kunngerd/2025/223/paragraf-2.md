@@ -1,0 +1,5 @@
+## Toskur, svartkalvi og brosma í Eysturgrønlandi
+§ 2. Sambært fiskiveiðiavtaluni millum Føroyar og Grønland kunnu fiskifør undir føroyskum flaggi í 2026 fiska 350 tons av toski, 275 tons av svartkalva og 41 tons av brosmu í Eysturgrønlandi. Í mesta lagi trý skip kunnu vera til fiskiskap í senn.
+Stk. 2. Av kvotunum í stk. 1 verða 345 tons av toski, 3 tons av svartkalva og 41 tons av brosmu sett av til veiðu við línu, og verða latin eigarum av fiskiførum, sum í 2025 høvdu samsvarandi rættindi, ella teimum, sum hesi rættindi eru flutt til. Fiski skapurin verður skipaður við egnari árskvotu.
+Stk. 3. Av kvotunum í stk. 1 verða 272 tons av svartkalva og 5 tons av toski sett av til veiðu við troli, og verða latin eigarum av fiskiførum, sum í 2025 høvdu samsvarandi rættindi, ella teimum, sum hesi rættindi eru flutt til. Fiskiskapurin verður skipaður við egnari árskvotu.
+Stk. 4. Sum hjáveiða í fiskiskapi sambært stk. 2 verða sett 4 tons av kalva, ið verða býtt út á fiskifør sum egin hjáveiðikvota í sama lutfalli sum egnu árskvoturnar av toski sambært stk. 2.
