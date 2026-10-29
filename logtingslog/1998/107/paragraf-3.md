@@ -1,0 +1,2 @@
+§ 3. Sum støði undir og partur av eini yrkisútbúgving skal útbúgvingin hava tey stevnumið, sum eru nevnd í yrkisútbúgv-ingarlógini.
+Stk. 2. Útbúgvingin skal annars sum ein samanhangandi heild miða ímóti at geva næmingunum persónligar, samfelagsligar, búskaparligar, fyriskipanarligar, málsligar, mentanarligar, samskiftisligar, kunningartøkniligar og tænastuligar førleikar. Við støði í føroyskum máli og føroyskari mentan skal útbúgvingin leggja dent á at skilja vinnulívskorini og korini fyri vinnulívsmenning bæði í heimligum og altjóða høpi.

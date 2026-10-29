@@ -1,0 +1,1 @@
+§ 12. Landsstýrismaðurin ásetur eftir ummæli frá yrkisútbúgvingarráðnum, sbr. løgtingslóg um yrkisútbúgvingar, gjølligari reglur um lærugreinarøðir og innihald av grundlærugreinum, yrkislærugreinum og vallærugreinum, tímatal og á hvøjum stigi tær kunna takast, smb. § 8 og 9.
