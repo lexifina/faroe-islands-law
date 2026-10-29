@@ -1,0 +1,1 @@
+§ 14. [^4] Máliskan Meginbanki merkir ein stovnur í einum Rættardømi, sum sambært lóg ella almennari góðkenning er evsti myndugleiki eftir sjálva stjórnina, og sum gevur út løgskjøl, sum verða sett í umfar sum gjaldoyra. Hesin bankin kann vera ein stovnur, sum er sundurskildur frá stjórnini, uttan mun til um rættardømið heilt ella lutvíst eigur hann.

@@ -1,0 +1,1 @@
+§ 56. Ein fráboðandi fíggjarligur stovnur, sum sambært mannagongdunum í kapittul 3-8 eyðmerkir eina Kontu sum eina fráboðanarskylduga Kontu við tilknýti til útlandið, Danmark ella Grønland, sum ikki er ein Fráboðanarskyldug konta, tá mannagondirnar verða framdar, kann nýta úrslitini av slíkum mannagongdum við atliti at framtíðar skyldum til at fráboða.

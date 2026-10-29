@@ -1,0 +1,3 @@
+## Kapittul 5
+## Hóskandi umhugsni við atliti at nýggjum kontum
+§ 79. Við atliti at Nýggjum persónskontum skal Fráboðandi fíggjarligi stovnurin, tá kontan verður stovnað, biðja um eina eginváttan, sum kann vera ein partur av kontustovningarskjalpróvnum, og sum ger tað møguligt hjá tí Fráboðandi fíggjarliga stovninum at staðfesta Kontueigarans skattliga heimstað ella heimstaðir og vátta líkindini av eini slíkari eginváttan grundað á upplýsingar, sum eru innheintaðar av Fráboðandi fíggjarliga stovninum í sambandi við stovnanina av kontuni, herundir møgulig próvskjøl innheintaði sambært AML/KYC-mannagongdir.

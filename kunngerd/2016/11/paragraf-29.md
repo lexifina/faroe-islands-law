@@ -1,0 +1,7 @@
+§ 29. Máliskan: Konta sum longu er til, merkir
+1) Fíggjarlig konta, sum verður førd av einum Fráboðandi fíggjarligum stovni tann 31. desember 2015.
+2) Ein Fíggjarlig konta, sum hoyrir til ein Kontueigara, uttan mun til nær ein slík Fíggjarlig konta varð stovnað, um
+a) kontueigarin eisini hevur eina Fíggjarliga kontu, sum er ein Konta sum longu er til sambært nr. 1, í tí Fráboðandi fíggjarliga stovninum, ella í eini Tilknýttari eind í Føroyum,
+b) tann Fráboðandi fíggjarligi stovnurin og møguliga tann Tilknýtta eindin í Føroyum viðgera bæði tær omanfyri nevndu Fíggjarligu kontur og Kontueigarans møguligu aðrar Fíggjarligu kontur, sum verða roknast sum Kontur sum longu eru til sambært hesum nummari, sum eina Fíggjarliga kontu við atliti at uppfylling av teimum fyrisettu málum fyri krøv til vitan, sum eru nevnd í § 94 og við atliti at útrokning av saldu ella virði av teimum Fíggjarligu kontunum, tá ræðismarkið á kontunum verður nýtt.
+c) tann fráboðandi fíggjarligi stovnurin við atliti at eini Fígggarligari kontu, sum er fevnd av AML/KYC-mannagongdum, hevur rætt til at uppfylla slíkar AML/KYC-mannagongdir fyri ta fíggjarligu kontuna við at nýta tær AML/KYC-mannagongdir, sum eru gjøgnumførdar fyri ta Kontuna sum longu er til lýst í nr. 1, og
+d) stovnsetanin av tí Fíggjarligu kontuni ikki krevur, at Kontueigarin leggur fram nýggjar, ískoytandi ella broytandi kundaupplýsingar, undantikið orsakað av hesi fyriskipan.

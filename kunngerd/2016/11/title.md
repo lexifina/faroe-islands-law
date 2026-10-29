@@ -1,0 +1,3 @@
+19. februar 2016 Nr. 11
+# Kunngerð um eyðmerking og fráboðan av fíggjarkontum við tilknýti til útheimin, sum seinast broytt við kunngerð nr. 94 frá 4. september 2024
+[^1] [^2] Við heimild í § 120 q, stk. 1, 4, 5-7, og §§ 126 og 143 í løgtingslóg nr. 86 frá 1. september 1983 um landsskatt og kommunuskatt (Skattalógin), sbrt. løgtingslógarkunngerð nr. 109 frá 19. september 2023, sum broytt við løgtingslóg nr. 54 frá 8. mai 1987, løgtingslóg nr. 43 frá 15. apríl 1992, løgtingslóg nr. 168 frá 30. desember 1997, løtingslóg nr. 95 frá 15. september 2014 og løgtingslóg nr. 39 frá 16. mai 2024, verður ásett:

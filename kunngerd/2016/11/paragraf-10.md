@@ -1,0 +1,1 @@
+§ 10. Máliskan: Specificerað tryggingarfelag, Specified Insurance Company, merkir ein Eind, sum er eitt tryggingarfelag, ella holdingfelag hjá einum tryggingarfelagi, ið gevur út, ella er skyldug til at gjalda við atliti at, einari Tryggingaravtalu við kontantvirði, Cash Value Insurance Contract, ella einari Annuitetsavtalu.

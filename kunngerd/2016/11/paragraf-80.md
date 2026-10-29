@@ -1,0 +1,1 @@
+§ 80. Um eginváttanin staðfestir, at Kontueigarin er skattliga heimahoyrandi í einum Luttakandi rættardømi, skal tann Fráboðandi fíggjarligi stovnurin viðgera kontuna sum eina Fráboðanarskylduga kontu, og eginváttanin skal eisini fevna um Kontueigarans Skattgjaldaranummar í hesum Luttakandi rættardømi, við fyrivarni av § 104, umframt føðidag.

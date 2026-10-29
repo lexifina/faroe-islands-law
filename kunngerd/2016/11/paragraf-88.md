@@ -1,0 +1,1 @@
+§ 88. Kanning av Eindarkontum sum longu eru til við einari samlaðari kontusaldu ella virði, sum tann 31. desember 2015 fer upp um 1,71 mió. kr., skal vera liðug í seinasta lagi tann 31. desember 2017.

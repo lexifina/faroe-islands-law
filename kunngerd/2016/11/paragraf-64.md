@@ -1,0 +1,1 @@
+§ 64. Um eingin av teimum ábendingum, sum eru nevndar í § 63, verður funnin við raveindarleiting, er eingin skylda at gera meira, inntil broyting fer fram í umstøðunum, sum ber í sær, at ein ella fleiri ábendingar verða settar í samband við kontuna, ella kontan gerst ein Hávirðiskonta.

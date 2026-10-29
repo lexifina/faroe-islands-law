@@ -1,0 +1,2 @@
+## Lágvirðiskontur
+§ 62. Um tann Fráboðandi fíggjarligi stovnurin hevur arkivført eina núverandi bústaðaradressu fyri tann einstaka Kontoeigaran orsakað av Próvskjalinum, kann tann Fráboðandi fíggjarligi stovnurin viðgera tann einstaka Kontueigaran sum ein persón, sum er skattliga heimahoyrandi í tí rættardømi, har adressan er, fyri at gera av, um ein slíkur einstakur Kontueigari er ein Persónur, sum tað skal fráboðast um.

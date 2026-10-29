@@ -1,0 +1,6 @@
+§ 20. Máliskan: Frítikin stovnur fyri felags íløgu, merkir ein Íløgueind, sum er skipað sum ein stovnur fyri felags íløgu, treytað av at allir partar í íløgustovninum eru ogn hjá ella umvegis likamligar persónar ella Eindir, sum ikki eru Persónar, sum tað skal gevast fráboðan um, undantikið eitt Passivt NFE við Persónum við ræði, sum eru persónar, sum fráboðan skal gevast um.
+Stk. 2. Ein Íløgueind, sum er skipað sum ein stovnur fyri felag íløgu, lýkur eisini krøvini í stk. 1, sum ein Frítikin stovnur fyri felags íløgu, sjálvt um íløgustovnurin hevur givið út handhavapartabrøv, treytað av at
+1) Íløgustovnurin ikki hevur givið út ella ikki gevur út natúrlig handhavapartabrøv aftaná tann 31. desember 2015,
+2) íløgustovnurin kallar inn øll slík partabrøv við afturkeypi,
+3) íløgustovnurin fremur mannagongdir fyri hóskandi nærlagni, sum eru umrøddar í kapitlunum 3-8, og fráboðar tær upplýsingar, sum skulu fráboðast við atliti at slíkum partabrøvum, tá hesi partabrøv verða víst fram til innloysing ella aðra avrokning, og
+4) íløgustovnurin hevur sett í verk politikkar og arbeiðshættir, sum skulu tryggja, at hesi partabrøv verða loyst út ella gjørd óumsetilig skjótast gjørligt og undir øllum umstøðum áðrenn 1. januar 2018.

@@ -1,0 +1,1 @@
+§ 25. Máliskan: Tryggingaravtala, merkir ein avtala, burtursæð frá eini Annuitetsavtalu, sum ásetir at váttanargevin góðtekur at gjalda eina upphædd, tá ein nærri ásett hending fer fram, sum fevnir um deyðaváða, sjúkdómsváða, ólukkuváða, ábyrgdarváða ella ognarváða.

@@ -1,0 +1,8 @@
+§ 97. Ein Fráboðandi fíggjarligur stovnur kann viðgera eina Fíggjarliga kontu, sum er limaparturin í eini Samlagstrygging við kontantvirði, ella eini Samlagsannuitetsavtalu, sum eina Fíggjarliga kontu, sum ikki er ein Fráboðanarskyldug konta, til tann dag, ein upphædd skal rindast til arbeiðstakaran, próvánaran ella njótunartilskilaða, um Fíggjarliga kontan, sum er limaparturin í eini Samlagstrygging við kontantvirði ella eini Samlagsannuitetsavtala, lýkur hesi krøv:
+1) Samlagstrygging við kontantvirði ella Samlagsannuitetsavtalan er flýggjað út til ein arbeiðsgevara og fevnir um 25 ella fleiri arbeiðstakarar, próvánarar,
+2) Arbeiðstakararnir, próvánararnir hava rætt til at fáa eitt kontraktvirði viðvíkjandi teirra parti og til at velja njótunartilskilaðu til ta veiting, sum skal rindast við deyða arbeiðstakarans.
+3) Tann samlaða upphæddin, sum skal rindast arbeiðstakaranum, próvánaranum ella njótunartilskilaða fer ikki upp um 6,83 mió. kr.
+Stk. 2. Máliskan: Bólkatryggingaravtala við kontantvirði, merkir ein Tryggingaravtala við kontantvirði, sum
+1) rindar dekning til einstaklingar, sum eru knýttir hvør at øðrum umvegis ein arbeiðsgevara, yrkisfelag, fakfelag ella annað samtak ella bólk, og
+2) krevur inn tryggingargjald fyri hvønn lim í bólkinum ella av einum flokki innanfyri bólkin, um er ásett uttan mun til heilsustøðuna hjá hvørjum einstøkum, um sæð verður burtur frá atlitunum til aldur, kyn og roykivanar.
+Stk. 3. Máliskan: Bólkaannuitetsavtala, merkir ein Annuitetsavtala, har kravánararnir eru einstaklingar, sum eru knýttir hvør at øðrum umvegis ein arbeiðsgevara, ykisfelag, fakfelag ella annað samtak ella bólk.

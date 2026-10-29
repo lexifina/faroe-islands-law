@@ -1,0 +1,2 @@
+§ 78. Ein og hvør Persónskonta sum longu er til, sum er blivin eyðmerkt sum ein Konta við tilknýti til útlandið, Danmark ella Grønland sambært hesi deild, skal viðgerast sum ein Konta við tilknýti til útlandið, Danmark ella Grønland øll eftirfylgjandi ár, uttan so at Kontueigarin ikki longur er ein Persónur í útlandinum, Danmark ella Grønlandi.
+Stk. 2. Er kontan harumframt eyðmerkt sum ein fráboðanarskyldug konta, skal hon viðgerast sum ein Fráboðanarskyldug konta øll eftirfylgjandi ár, uttan so at Kontueigarin ikki longur er ein Persónur, sum tað fráboðast um.

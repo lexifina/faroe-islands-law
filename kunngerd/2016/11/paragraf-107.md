@@ -1,0 +1,1 @@
+§ 107. Fráboðan skal latast í seinasta lagi tann 1. mai í árinum eftir tað álmanakkaár, sum fráboðanin viðvíkur. Er tann 1. mai ein leygardagur, sunnudagur ella halgidagur, er freist næsti gerandisdagur.

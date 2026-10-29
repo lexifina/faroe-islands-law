@@ -1,0 +1,1 @@
+§ 58. Tá eitt saldumark ella virðismark skal ásetast tann síðsta dagin í einum álmanakkaári, skal viðkomandi salda ella virði ásetast tann síðsta dagin í tí fráboðanarskeiði, sum gongur út viðkomandi álmanakkaár.

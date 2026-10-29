@@ -1,0 +1,3 @@
+## Kapittul 6
+## Hóskandi umhugsni við atliti at eindarkontum sum longu eru til
+§ 82. Um Fráboðandi fíggjarligi stovnurin ikki velur annað antin við atliti at Eindarkontum sum longu eru til ella serstakliga við atliti at klárt eyðmerktum bólkum av slíkum kontum, er tað ikki skyldugt at kanna, eyðmerkja ella fráboða eina Eindarkontu sum longu er til við eini samanlaðari kontusaldu ella virði sum tann 31. desember 2015 ikki fer uppum 1,71 mió. kr., sum eina Fráboðanarskylduga kontu, inntil tann samlaða kontusaldan ella virði fer uppum hesa upphædd tann síðsta dag í einum eftirfylgjandi álmanakkaári.

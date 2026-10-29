@@ -1,0 +1,1 @@
+§ 90. Um broyting fer fram í umstøðunum við atliti at einari Eindarkontu sum longu er til, sum ber í sær, at tann Fráboðandi fíggjarligi stovnurin fær at vita ella orsøk til at halda, at eginváttanin ella annað skjalprógv knýtt at eini kontu er skeivt ella óálítandi, skal Fráboðandi fíggjarligi stovnurin broyta kontunnar støðu sambært mannagongdunum, sum eru umrøddar í §§ 85-87.

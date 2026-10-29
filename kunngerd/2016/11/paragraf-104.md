@@ -1,0 +1,1 @@
+§ 104. Uttan mun til § 102, stk. 1, nr. 1, skal Skattgjaldaranummar ikki fráboðast, um viðkomandi Luttakandi rættardømi, har viðkomandi persónur er heimahoyrandi, ikki hevur givið út eitt Skattgjaldaranummar.

@@ -1,0 +1,1 @@
+§ 89. Kanning av Eindarkontum sum longu eru til við einari samlaðari kontusaldu ella virði, sum tann 31. desember 2015 ikki fer upp um 1,71 mió. kr., men tann 31. desember í einum eftirfylgjandi ári fer upp um hesa upphædd, skal vera liðug innanfyri álmanakkaárið eftir tað ár, samlaða kontusaldan ella virði fer upp um hesa upphædd.

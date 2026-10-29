@@ -1,0 +1,1 @@
+§ 95. Ein Fráboðandi fíggjarligur stovnur kann nýta tær alternativu mannagongdirnar í §§ 96 og 97 fyri Fíggjarligar kontur, sum likamligir persónar eiga, sum eru njótunartilskilaðir í einari Tryggingaravtalu við kontantvirði ella einari Annuitetsavtalu, og fyri eina Bólkatryggingaravtalu við kontantvirði ella eina Bólkaannuitetsavtalu.

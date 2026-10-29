@@ -1,0 +1,5 @@
+§ 35. Ein lívstryggingaravtala við einari skiftistíð, sum gongur út, áðrenn tann tryggjaði persónurin verður 90 ár, er ein Konta, sum er undantikin, treytað av, at avtalan lýkur fylgjandi krøv:
+1) Stigvís tryggingargjøld, sum ikki minka yvir tíð, verða goldin minst eina ferð um árið í tí tíðarskeiði, avtalan er galdandi, ella til tryggjaði verður 90 ár, alt eftir hvat fyri tíðarskeið er stytst.
+2) Avtalan hevur einki avtaluvirði, sum ein persónur kann fáa atgongd til, við útgjald, lán ella á annan hátt, uttan at avtalan fellur burtur.
+3) Tann upphædd, burtursæð frá útgjaldi við deyða, sum skal gjaldast við afturtøku av avtaluni ella orsakað av, at avtalan gongur út, kann ikki fara uppum tey samlaðu inngjøldini eftir avtaluni, frádrigið tær samlaðuútreiðslurnar í sambandi við deyða ella sjúku, uttan mun til um tær vórðu álagdar ella ikki, fyri ta ella tey tíðarskeið, avtalan hevur verið í gildi, og møguligar upphæddir, sum eru goldin áðrenn afturtøku av avtaluni ella áðrenn avtalan gekk út.
+4) Avtalan ikki er ogn hjá einum ognara móti gjaldi.

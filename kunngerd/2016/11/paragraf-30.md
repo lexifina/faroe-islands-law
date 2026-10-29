@@ -1,0 +1,1 @@
+§ 30. Máliskan: Nýggj konta, merkir ein Fíggjarlig konta, sum verður førd av einum fráboðandi fíggjarligum stovni og er stovnað tann 1. januar 2016 ella seinni, uttan so at hon verður tulkað sum ein Konta sum longu er til sambært § 29, nr. 2.

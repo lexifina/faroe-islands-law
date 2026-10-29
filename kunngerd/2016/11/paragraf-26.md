@@ -1,0 +1,2 @@
+§ 26. Máliskan Annuitetsavtala merkir ein avtala, sum ásetir at váttanargevin góðtekur at fremja útgjøld í einum tíðarskeiði, sum heilt ella lutvíst verður grundað á væntaðu livitíðina hjá einum ella fleiri likamligum persónum.
+Stk. 2. Máliskan fevnir eisini um eina avtalu, sum verður mett sum ein Annuitetsavtala sambært lóg, fyriskipan ella venju í tí rættardømi, hvar avtalan er givin út og sum ásetir at váttanargevin góðtekur at fremja útgjøld í eitt áramál.
