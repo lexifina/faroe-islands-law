@@ -1,0 +1,2 @@
+§ 23. Atkvøðugreiðsla um, at skipanin heldur uppat, skal fara fram, um partarnir sambært § 25, stk. 2 ella § 26, stk. 3 í hesi kunngerð seta krav um hetta samstundis sum reglurnar í § 27 í hesi kunngerð verða hildnar. Valnevndin ávikavist samtaks-valnevndin skipar fyri atkvøðugreiðsluni sambært reglunum í § 33, stk. 2 og §§ 34-36 í hesi kunngerð. Skipanin endar alt fyri eitt aftaná eina møguliga samtykt um hetta.
+Sjálvbodnar skipanir um starvsfólkaumboðan

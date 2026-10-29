@@ -1,0 +1,1 @@
+§ 5. Ein valnevnd skal skiljast sum ein føst nevnd, ið er samansett av umboðum fyri starvsfólkið og fyri stjórn felagsins, sbr. kapittul 3 í hesi kunngerð. Valnevndin skipar fyri eini ja ella nei atkvøðugreiðslu, sbr. kapittul 4 í hesi kunngerð, og skipar fyri vali av felagsumboðan í einum felag, sbr. kapittul 5 í hesi kunngerð.

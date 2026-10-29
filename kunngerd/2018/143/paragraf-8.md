@@ -1,0 +1,1 @@
+§ 8. Ein ja ella nei atkvøðugreiðsla skal skiljast sum ein atkvøðugreiðsla millum starvsfólkið um skipan av ella uppathald av einari starvsfólkaumboðsskipan í einum felag ella einum samtaki, sbr. kapittul 2 og 4 í hesi kunngerð.

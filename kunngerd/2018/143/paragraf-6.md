@@ -1,0 +1,1 @@
+§ 6. Ein samtaks-valnevnd skal skiljast sum ein føst nevnd, ið er sett saman av umboðum fyri starvsfólkið og fyri stjórn vinnufelagsins, sbr. kapittul 3 í hesi kunngerð. Samtaks-valnevndin skipar eina ja ella nei atkvøðugreiðslu og skipar eitt valmannastýri ella skipar fyri beinleiðis vali av samtaksumboðan, sbr. kapittul 6 í hesi kunngerð.

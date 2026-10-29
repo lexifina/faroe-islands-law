@@ -1,0 +1,4 @@
+§ 47. Um eitt felag samstundis er móðurfelag í fleiri samtøkum, verður val til samtaksumboðan til evstu leiðslu í hesum móðurfelagnum samlað hildið í einum vali, tó uttan so, at samtaks-valnevndin í semju avger annað. Valið verður hildið í tí samtakinum, ið hevur flest samtaksfeløg.
+Stk. 2. Í samtøkum, har tað í móðurfelagnum eru vald felagsumboð sambært § 140 í løgtingslógini, verður val av samtaksumboðum hildið fyrstu ferð í sambandi við, at valskeiðið fyri felagsumboðini í evstu leiðslu móðurfelagsins gongur út, tó uttan so, at samtaks-valnevndin í semju avger annað.
+Stk. 3. Í samtøkum, har tað í móðurfelagnum eru vald samtaksumboð sambært § 141 í løgtingslógini, verður val av felagsumboðum hildið fyrstu ferð í sambandi við, at valskeiðið fyri samtaksumboðini í evstu leiðslu móðurfelagsins gongur út, uttan so at valnevndin í semju tekur avgerð um annað.
+Stk. 4. Samtaks-valnevndin kann í semju avgera at samskipa valskeiðið í móðurfelagnum og dótturfeløgum.

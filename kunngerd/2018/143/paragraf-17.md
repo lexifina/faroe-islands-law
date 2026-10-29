@@ -1,0 +1,1 @@
+§ 17. Ein persónur, ið longu er valdur av aðalfundinum ella útnevndur av øðrum sum limur av evstu leiðslu felagsins, sambært § 120 í løgtingslógini, skal fara úr hesum sessi, um viðkomandi verður valdur sum starvsfólkaumboð ella varalimur. Fráfaringin skal henda samstundis sum viðkomandi tekur við sum starvsfólkaumboð ella varalimur.

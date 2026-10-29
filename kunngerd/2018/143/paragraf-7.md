@@ -1,0 +1,1 @@
+§ 7. Eitt valmannastýri skal skiljast sum ein nevnd, ið er sett saman av umboðum fyri starvsfólkið í samtaksfeløgunum. Valmannastýrið velur samtaksumboð og møguligar varalimir fyri hesar við óbeinleiðis vali til samtaksumboðan.

@@ -1,0 +1,4 @@
+## Kapittul 4
+## Fremjan av ja ella nei atkvøðugreiðslu
+§ 33. Valnevndin ávikavist samtaks-valnevndin skal, seinast 4 vikur eftir, at hon er sett, skipa fyri einari ja ella nei atkvøðugreiðslu, sbr. §§ 25 og 26 í hesi kunngerð, tó uttan so at valnevndin ávikavist samtaks-valnevndin í semju tekur avgerð um, at skipast skal ikki fyri einari atkvøðugreiðslu, ella at víkjast skal frá freistini. Um avgjørt verður, at atkvøðugreiðslan ikki skal fremjast, skal ístaðin skipast fyri vali til starvsfólkaumboðan, sbr. kapittul 5 ávikavist kapittul 6 í hesi kunngerð.
+Stk. 2. Valnevndin ávikavist samtaks-valnevndin tryggjar, at atkvøðugreiðslan fer fram á slíkan hátt, at øll, sum hava atkvøðurætt, fáa nøktandi møguleika at luttaka í atkvøðugreiðsluni, undir hesum, um neyðugt, at atkvøða við brævatkvøðu. Brævatkvøðugreiðsla kann fara fram skrivliga, við telduposti ella líknandi.

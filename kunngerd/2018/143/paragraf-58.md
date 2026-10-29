@@ -1,0 +1,2 @@
+§ 58. Evsta leiðsla felagsins tekur avgerð um, hvørjar kunningarkeldur eru best egnaðar eftir viðurskiftunum hjá felagnum ella samtakinum, og við atliti til hvørja kunning, talan er um. Kunningin kann til dømis fara fram gjøgnum dagligu leiðslu felagsins ella samtaksfelagsins, ella gjøgnum samstarvsráðið, um eitt slíkt finst.
+Stk. 2. Kunning til starvsfólkið hjá felagnum ávikavist samtakinum kann millum annað fara fram við kunningarbløðum, innanhýsis starvafólkabløðum ella líknandi, heimasíðum, fundum í samstarvsráðnum, virkisráðstevnum og felags fundum.

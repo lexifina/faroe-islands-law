@@ -1,0 +1,1 @@
+§ 13. Stjórnin í einum felag ávikavist einum móðurfelag, skal eftir umbøn frá einum, ið, sambært § 25, stk. 2 ella § 26, stk. 3 í hesi kunngerð, hevur heimild at krevja atkvøðugreiðslu, útrokna úrslitið sambært § 12 í hesi kunngerð, og boða starvsfólkunum í felagnum ávikavist samtakinum frá seinast 4 vikur eftir, at umbønin er móttikin.

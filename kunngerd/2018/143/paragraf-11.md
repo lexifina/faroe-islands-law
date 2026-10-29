@@ -1,0 +1,5 @@
+## Tal av samtaksumboðum
+§ 11. Í einum samtaki, har starvsfólkið í dótturfeløgunum í samsvari við § 26 og kapittul 4 í hesi kunngerð hevur samtykt at velja samtaksumboð til evstu leiðslu móðurfelagsins, verður valt eitt tal av samtaksumboðum og varalimum svarandi til helvtina av hinum limunum í evstu leiðslu móðurfelagsins, tó minst 3 limir. Talið av samstaksumboðum og varalimum verður uppgjørt tann dagin valdagurin verður kunngjørdur.
+Stk. 2. Um talið av samtaksumboðum og varalimum, ið skulu veljast sambært stk. 1, ikki er eitt heilt tal, verður talið rundað uppeftir.
+Stk. 3. Um starvsfólkið í móðurfelagnum hevur nýtt rættin til at velja 2 felagsumboð, sbr. § 10, stk. 2 í hesi kunngerð, verður talið av samtaksumboðum, ið kunnu veljast sambært stk. 1, lækkað við tveimum.
+Stk. 4. Starvsfólkini kunnu við beinleiðis ella óbeinleiðis vali velja eitt lægri tal av starvsfólkaumboðum og varalimum, enn tað, sum starvsfólkið hevur rætt til sambært stk. 1, sbr. § 40, stk. 3 og § 43, stk. 1 í hesi kunngerð.

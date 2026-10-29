@@ -1,0 +1,7 @@
+§ 39. Valnevndin ásetir, eftir samráðing við evstu leiðslu felagsins, hvønn dag valið verður hildið, og tryggjar, at øll starvsfólk fáa rímiliga atgongd til at fáa kunning um, nær valdagurin verður. Valnevndin kann avgera, at atkvøðugreiðslan verður hildin í einum tíðarskeiði, har síðsti dagurin í tíðarskeiðinum skal metast sum valdagur, tá freistirnar í stk. 2 og stk. 3, nr. 3 og § 40, stk. 4 og 5 í hesi kunngerð verða roknaðar.
+Stk. 2. Valnevndin almannakunnger valdagin fyri starvsfólkunum seinast 6 vikur og í mesta lagi 10 vikur áðrenn ásetta valdagin, tó uttan so, at valnevndin í semju tekur avgerð um at víkja frá freistunum, sbr. tó § 37, stk. 2 og 3, 2. pkt. í hesi kunngerð.
+Stk. 3. Almannakunngeringin av valdegnum skal innihalda:
+1) upplýsingar um tal av starvsfólkaumboðum og møguligum varalimum, ið skulu veljast, sbr. §10 í hesi kunngerð,
+2) valskeiðið ella longdina av valskeiðinum, og
+3) innkalling av uppskotum frá starvsfólki til persónar, ið verða skotnir upp til valið sum felagsumboð og møguligir varalimir. Innkallingin skal innihalda, hvønn dag innlating av uppskotum seinast kann fara fram. Hesin dagur skal vera í minsta lagi 4 vikur áðrenn valdagin, uttan so at valnevndin í semju tekur avgerð um at víkja frá hesi freist.
+Stk. 4. Valnevndin skal, samstundis sum valdagurin verður almannakunngjørdur, gera ein lista yvir starvsfólk, ið hava valrætt tá. Listin skal vera atkomuligur fyri starvsfólkini, møguliga í elektroniskum formi.
