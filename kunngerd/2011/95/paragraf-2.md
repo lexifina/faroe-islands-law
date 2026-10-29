@@ -1,0 +1,2 @@
+§ 2. Við tryggingarmeklaravirksemi í hesi kunngerð er at skilja:
+Tað virksemi, sum stendst av at veita kundum ráðgeving, grundað á greining av so nógvum tøkum tryggingarloysnum sum gjørligt, og tað virksemi, sum stendst av at vísa kundanum á tryggingarloysnir frá einum ella fleiri tryggingarfeløgum, uttan at greið avtala er gjørd um hetta við tryggingarfeløgini. Talan kann eisini verða um at umsita tryggingaravtalur vegna kundan, serliga tá ið tað snýr seg um skaðatilburðir.

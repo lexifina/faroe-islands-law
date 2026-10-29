@@ -1,0 +1,2 @@
+§ 18. Tá ið skráseting av tryggingarmeklaravirki er tikin aftur ella fallin burtur, skal tryggingarmeklaravirksemið halda uppat. Farast má ikki undir annað virksemi áðrenn tryggingarmeklaravirksemi er endað.
+Stk. 2. Tá ið skráseting av einum tryggingarmeklaravirki ella einum starvsettum tryggingarmeklara er tikin aftur ella fallin burtur, verður viðkomandi tryggingarmeklaravirki ella starvsetti tryggingarmeklari strikaður úr skránni yvir tryggingarmeklarar hjá Tryggingareftirlitinum.
