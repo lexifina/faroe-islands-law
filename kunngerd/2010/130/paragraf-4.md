@@ -1,0 +1,1 @@
+§ 4. Arbeiðsgevarin skal rinda tí arbeiðsleysa løn og møguliga eftirløn, trygging og frítíðarløn á vanligan hátt og fær endurrindað eina upphædd, sum svarar til tann stuðul, sum tann arbeiðsleysi hevði fingið frá Arbeiðsloysisskipanini, tó so at arbeiðsgevarin ongantíð fær endurrindað meiri enn 80 % av teirri løn, sum hann rindar tí arbeiðsleysa.

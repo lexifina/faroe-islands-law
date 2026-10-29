@@ -1,0 +1,3 @@
+§ 6. Tá ið avtalan um starvsvenjing fer úr gildi, fær hin arbeiðsleysi aftur rætt til stuðul úr Arbeiðsloysisskipanini eftir somu reglum sum undan avtaluni.
+Stk. 2. Lønin í sambandi við avtaluna telur ikki við í sambandi við útrokning av útrokningargrundarlagi, og tað tíðarskeiðið, ið viðkomandi hevur verið í starvsvenjing verður ikki talt við, tá ið tíðarskeiðið í § 22, stk. 1, í løgtingslóg um arbeiðsloysistrygging og arbeiðsávísing verður gjørt upp.
+Stk. 3. Hóast persónur er í starvsvenjing, verða arbeiði ávíst honum á vanligan hátt frá arbeiðsávísingini. Bert í teimum førum, tá Arbeiðsloysisskipanin ikki finnur annan persón til starvið, hevur viðkomandi, sum er í starvsvenjing, skyldu at átaka sær ávísta starvið.
