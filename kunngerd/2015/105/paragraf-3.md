@@ -1,0 +1,4 @@
+§ 3. Sjófólk, sum gera tænastu sum fulltikin dekkari ella fulltikin skipsatstøðari við havfarandi handilsskipum til støddar 500 BT ella meira, skulu innan 1. januar 2017 hava førleikaprógv sum ávíkavist fulltikin dekkari ella fulltikin skipsatstøðari.
+Stk. 2. Sjófólk, sum gera tænastu sum fulltikin motormaður ella fulltikin skipsatstøðari við havfarandi handilsskipum við framtøkumegi á 750 kW ella meira, skulu innan 1. januar 2017 hava førleikaprógv sum ávikavist fulltikin motormaður ella fulltikin skipsatstøðari.
+Stk. 3. Útlendsk sjófólk, sum gera tænastu sbrt. stk. 1 ella 2 við skipum, skrásett í Føroysku Altjóða Skipaskránni, kunnu hava førleikaprógv, sum er útgivið í heimlandinum.
+Stk. 4. Førleikaprógv sbrt. stk. 3 er treytað av, at trygdarráðið hjá altjóða havfelagsskapinum IMO, MSC, hevur fráboðað, at avvarðandi limaland í sínari fráboðan til IMO hevur víst, at førleikaprógvið til fulnar lýkur tær treytir, ið eru ásettar í STCW-sáttmálanum.

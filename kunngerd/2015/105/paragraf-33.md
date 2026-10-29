@@ -1,0 +1,1 @@
+§ 33. Sjóvinnubrøv, sum eru grundað á maskinmeistaraprógv, kunnu áritast um, at tey eisini veita rættindi til at starvast við dampskipum, um umsøkjarin hevur í minsta lagi 3 mánaðir maskintænastu við dampskipum.
