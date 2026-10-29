@@ -1,0 +1,4 @@
+## Depilsráðið
+§ 4. Landsstýrismaðurin setir eitt depilsráð fyri Marknagilsdepilin, ið hevur til endamáls at styrkja samband og samskifti úteftir og dygd og menning inneftir. Depilsráðið skal veita rektaranum ráð og gera tilmæli viðvíkjandi fyriskipan, útbúgvingum og strategi fyri skúladepilin innan fyri karmarnar av stk. 2.
+Stk. 2. Depilsráðið skal við síni ráðgeving og tilmæli tryggja tað yrkisfakliga virksemið í Marknagilsdeplinum, og depilsráðið skal virka fyri, at Marknagilsdepilin í størst møguligan mun bjóðar út yrkisfakligar grundútbúgvingar, eftirútbúgvingar og víðariútbúgvingar, sum eru viðkomandi fyri tørvin hjá vinnuni.
+Stk. 3. Depilsráðnum verður heimilað at ráða yvir tí inntøkufíggjaða virkseminum í Marknagilsdeplinum. Depilsráðið skal í tøttum samstarvi við rektaran tryggja, at hetta fer fram sambært galdandi reglum.
