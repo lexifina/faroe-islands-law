@@ -1,0 +1,3 @@
+§ 1. Landsstýrismaðurin fær heimild til at eftirgeva 30 mió. kr. av láni til Framtak, upprunaliga upp á 99 mió. kr., restlán upp á 68 mió. kr. pr. 31. desember 2019, sum er veitt sambært løgtingslóg nr. 1 frá 3. januar 1995 um lántøku til landskassan.
+Stk. 2. Upphæddin upp á 30 mió. kr., sum verður eftirgivin, verður umløgd til eginpening.
+Stk. 3. Eftirgevingin upp á 30 mió. kr. er treytað av, at í 2020 og 2021 skulu í minsta lagi 30. mió kr. verða tøkar til at gera íløgur í verandi, nýtt ella víðkað vinnuvirksemi í ferðavinnufyritøkum á marknaðarligum treytum, og at viðtøkur grunsins verða broyttar samsvarandi.
