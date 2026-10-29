@@ -1,0 +1,2 @@
+§ 2. Bann, sum verður sett av Arbeiðseftirlitinum sambært § 32 í løgtingslóg nr. 58 frá 24. mai 1974 um arbeiðaravernd við seinni broytingum, viðvíkjandi teimum trygdarskipanum, ið nevndar eru í § 1 og avgerðum, sum eftirlitið annars tekur sambært fyriskipanum, kann innan 4 vikur eftir at viðkomandi hevur fingið boð um avgerðina, verða innkært til Landsstýrið.
+Innkæra kann ikki fáa eitt bann í drag.
