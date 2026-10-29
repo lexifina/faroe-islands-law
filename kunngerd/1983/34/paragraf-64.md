@@ -1,0 +1,2 @@
+§ 64. Sýtir Bileftirlitið fyri at góðkenna akfarið, og má tað haldast at vera óráð at lata tað koyra frá skoðanarstaðnum við nummarspjøldrum, verða tey tikin av við skoðanina. Tann, ið kemur við akfarinum fær skrásetingarváttan og møgulig skjøl aftur.
+2. stk. Nummarspjøldur, ið eru avtikin við skoðanina, verða send ella latin akfaraskránni sama dag. Hevur ikki borið til at taka nummarspjøldrini av við skoðanina, skal Bileftirlitið beinan vegin biðja løgregluna gera tað. Fyri tøku av nummarspjøldrum galda reglurnar í § 48.

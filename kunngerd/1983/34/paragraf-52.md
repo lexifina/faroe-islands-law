@@ -1,0 +1,3 @@
+§ 52. Nummarspjaldrið skal vera á ásýniligum stað, loddrætt ella næstan loddrætt og vinkulrætt á longdarásin hjá akfarinum.
+2. stk. Skrúvur at festa nummarspjøldrini við skulu ikki fjala bókstavir og tøl á nummarspjaldrinum. Á skrúvuhøvdinum skal vera ein hetta við sama liti sum spjaldrið.
+3. stk. Á nummarspjaldrinum má ikki vera ramma ella umgerð, sum fjalir part av spjaldrinum. Tó kunnu endurskins-nummarspjøldur hava rammu ella umgerð, sum bert fjalir tann kantin, ið er uttan fyri upptrýstu rondina. Rammur og umgerðir á nummarspjaldri megu ikki forða fyri, at gott ljós er á nummarspjøldrunum, og at tey eru løtt at lesa.

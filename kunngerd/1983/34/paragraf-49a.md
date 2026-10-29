@@ -1,0 +1,5 @@
+## Ynskinummarspjøldur [^3]
+§ 49 a. [^3] [^6] Umsókn um ynskinummarspjøldur skal latast akfaraskránni á einum serligum oyðiblaði. Oyðublaðið skal vera undirskrivað persónliga av tí sum ynskir samansetingina ella undirskrivað sambært skrivliga fulltrú frá hesum. Fulltrúin skal viðleggjast. Saman við umsóknini skal umsøkjarin inngjalda upphæddina fyri rættin til ynskinummarspjøldrini umframt upphæddina fyri nummarspjøldrini.
+Stk. 2. Eru fleir umsóknir um somu samanseting, verður samansetingin latin tí, hvørs umsókn er latin inn fyrst.
+Stk. 3. Ynskinummarspjøldur skulu vera samansett av í minsta lagi 2 og í mesta lagi 6 føroyskum og/ella donskum bókstavum og/ella tølum. Samansetingar sum longur eru skrásettar kunnu ikki latast. Samansetingar mugu ikki vera ósømiligar ella kunna vera øðrum til ampa.
+Stk. 4. Lýkur umsøkjarin treytirnar at fáa rættin til at nýta ynskinummarspjøldur, ger og útflýggjar akfaraskráin nummarspjøldrini til viðkomandi. Útflýggjan av ynskinummarspjøldrum er treytað av, at tað akfarið, sum ætlanin er at seta ynskinummarspjøldrini á, verður fráboðað til skrásetingar.

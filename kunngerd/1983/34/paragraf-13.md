@@ -1,0 +1,1 @@
+§ 13. Brúkt akfør, ið ikki áður hava verið skrásett her á landi, kunnu tó verða skoðað og skrásett uttan góðkenningarváttan, um akfarið í øllum lutum samsvarar við áður givna meginfloksgóðkenning ella floksgóðkenning.

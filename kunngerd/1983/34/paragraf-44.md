@@ -1,0 +1,1 @@
+§ 44. Um komið verður fram til, eftir at akfarið er skrásett, at skrásetingargrundarlagið ikki hevur verið í lagi, ger akfaraskráin av, um skrásetingarváttan og nummarspjaldur (-spjøldur) skulu verða afturtikin.

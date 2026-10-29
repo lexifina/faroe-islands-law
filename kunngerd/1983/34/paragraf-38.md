@@ -1,0 +1,2 @@
+§ 38. Prógv verður latið fyri, at ábyrgdartrygging geldur fyri avvarðandi akfar sum fyriskipað í ferðslulógini, sbr. tó 2. stk. Akfarið skal vera tryggjað fyri ta nýtslu, tað verður ynskt skrásett til. Hevur akfarið íkoplingarútbúnað, skal tryggingin galda fyri koyring við viðfestum akfari.
+2. stk. Tryggingarprógv krevst ikki í sambandi við skrásetingarbroytingar orsakað av, at útbúnaður á akfarinum verður broyttur, uttan tá ið íkoplingarútbúnaður verður ásettur – sbr. § 17.

@@ -1,0 +1,1 @@
+§ 59. Royndarspjøldur mugu ikki verða nýtt á akførum, har nummarspjøldrini eru tikin burtur eftir fyriskipan løgreglunnar; undantikin hesum er tó koyring, ið neyðug er í sambandi við skráseting, tá ið akfarið er sett í tann stand, sum fyriskipað er.

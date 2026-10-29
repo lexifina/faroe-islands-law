@@ -1,0 +1,1 @@
+§ 46. Fer eigari (nýtari) av skrásettum akfari av landinum og flytur frá bústaði sínum her, verður akfarið strikað av skránni, smb. § 47, uttan so at eigarin (nýtarin) verður burturstaddur styttri enn 5 mánaðir, ella um akfaraskráin í serligum førum loyvir, at akfarið verður standandi skrásett her á landi.

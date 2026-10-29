@@ -1,0 +1,1 @@
+§ 60. Hóast ásetanina í § 56, stk. 1, kunnu royndarspjøldur verða nýtt í skrásettum akfari til koyring, ið neyðug er í samband við skráseting ella umskráseting, tá ið tað skal hava nýggj nummarspjøldur. Tey burturtiknu, gomlu nummarspjøldrini ella tey útflýggjaðu nýggju skulu tá verða havd við á akfarinum.

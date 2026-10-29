@@ -1,0 +1,2 @@
+## Koplingartilskilan.
+§ 33. Í sambandi við góðkenning av akfari til koyring við íkoplaðnum (dragandi) akfari skal Bileftirlitið eftir áheitan skriva koplingartilskilan við upplýsingum frá fráboðaranum sum grundarlag. Í hesi tilskilan skulu vera upplýsingar um slag av akfari og íkoplingarútbúnað. Í tilskilanini skulu vera upplýsingar, sum vísa, um akfarið uttan skoðan kann góðkennast til koyring við ávísum øðrum íkoplaðum (dragandi) akførum, sbr. § 20, 3. og 4. stk.

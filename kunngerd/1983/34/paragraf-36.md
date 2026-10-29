@@ -1,0 +1,4 @@
+## B. Skrásetingartreytir.
+## Skjalprógv um, at akfarið er í fyriskipaðum standi.
+§ 36. Fyri akfør, ið skulu skoðast, verður latið inn fráboðanarblað við góðkenningarváttan frá Bileftirlitinum. Góðkenningin kann í mesta lagi 1/2 ár vera støði undir fráboðan til skrásetingar til ta nýtslu, sum akfarið er góðkent til. Hevur akfarið skift eigara (nýtara) eftir, at tað er fráboðað til skrásetingar, skal eisini verða latið inn fráboðanarblað viðvíkjandi nýggja eigaranum (nýtaranum).
+2. stk. Viðfest akfar kann bert verða skrásett, um tað ber til at skjalprógva, at dragandi akfar er góðkent til at kunna samankoplast við viðfesta akfarið, og tað dragandi akfarið annaðhvørt er ella skal skrásetast til samankoplingar við tað. Viðfest akfar, ið er góðkent til óskoðaða samankopling, og húsvognur kunnu tó skrásetast, uttan at dragandi akfar er góðkent ella skrásett til samankoplingar við viðfesta akfarið.

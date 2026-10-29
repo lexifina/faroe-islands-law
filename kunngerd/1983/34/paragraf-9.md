@@ -1,0 +1,1 @@
+§ 9. Góðkenningin er bert galdandi, meðan akfarið (botngrindin) er smíðað og útbúgvið í neyvum samsvari við hana. Bileftirlitið skal tí góðkenna allar broytingar – bæði stórar og smáar – í smíði og útbúnaði, møguliga við nýggjari góðkenning, áðrenn broytta akfarið (botngrindin) kann verða skrásett.
