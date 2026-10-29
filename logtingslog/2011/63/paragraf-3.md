@@ -1,0 +1,1 @@
+§ 3. Tað er ikki loyvt at lýsa við, at tað til setan í starv ella vinnuliga útbúgving verður søkt eftir persónum, ið bera brek, ella at persónar, ið bera brek, hava fyrimun. Tað er heldur ikki loyvt at lýsa við, at persónar, ið bera brek, ikki verða ynsktir.
