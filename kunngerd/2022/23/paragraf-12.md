@@ -1,0 +1,1 @@
+§ 12. Staðfestir ein løggild fyritøka brek ella aðrar manglar við einari elinnlegging, og kunnu teir ikki verða rættaðir, skal fyritøkan gera eigaran ella brúkaran varugan við hetta, umframt tann vanda og ábyrgd, sum kann standast av at brek ella manglar ikki verða fingin í rættlag.

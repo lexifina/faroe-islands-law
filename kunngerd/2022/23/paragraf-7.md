@@ -1,0 +1,2 @@
+§ 7. Fakligi ábyrgdarin hevur til uppgávu at tryggja, at hóskandi starvsfólk verða sett at gera uppgávurnar hjá fyritøkuni, har krav er um løggilding, at starvsfólkini verða nøktandi vegleidd og at nøktandi eftirlit er við, hvussu arbeiðið verður útint.
+Stk. 2. Fakligi ábyrgdarin skal tryggja, at arbeiðið verður útint í samsvari við galdandi reglur fyri elinnleggingar og í samsvari við góðskuleiðsluskipan hjá fyritøkuni.

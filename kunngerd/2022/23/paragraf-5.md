@@ -1,0 +1,4 @@
+§ 5. Ein løggild fyritøka hevur ábyrgd av einum arbeiði, sum er gjørt av starvsfólki, sum ikki er í starvi í fyritøkuni, um viðkomandi starvsfólk er innleigað. Í slíkum førum skal ein skrivligur og undirskrivaður sáttmáli gerast við fyritøkuna, har viðkomandi starvsfólk vanliga er í føstum starvi. Sáttmálin skal gerast áðrenn innleigaða starvsfólkið byrjar í starvinum, og kann bert gerast fyri eitt avmarkað tíðarskeið.
+Stk. 2. Tað skal framganga greitt av sáttmálanum sambært stk. 1, at fyritøkan, sum viðkomandi starvsfólk er innleigað til, hevur ábyrgdina av arbeiðinum, sum innleigaða starvsfólkið ger. Harumframt skal tað greitt framganga, hvat tíðarskeið avtalan er gjaldandi fyri.
+Stk. 3. Innleigaða starvsfólkið er fevnt av góðskuleiðsluskipanini hjá fyritøkuni.
+Stk. 4. Stk. 1-3 eru ikki galdandi fyri fyritøkur við hjávinnuløggilding, sbr. §§ 9 og 10.
