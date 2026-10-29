@@ -1,0 +1,1 @@
+§ 4. Er skeinkiloyvið veitt einum persóni ella einum felag, og skal loyvishavarin ikki sjálvur leiða virksemið, skal navnið á leiðaranum, sbr. § 12, stk. 2 í løgtingslógini, vera tilskilað í loyvinum.
