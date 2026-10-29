@@ -1,0 +1,2 @@
+[^1]: Broytt við løgtingslóg nr. 168 frá 16. desember 2021.
+[^2]: Broytt við løgtingslóg nr. 91 frá 7. juni 2020, har § 79 ljóðar soleiðis: “Henda løgtingslóg kemur í gildi 1. januar 2021.”
