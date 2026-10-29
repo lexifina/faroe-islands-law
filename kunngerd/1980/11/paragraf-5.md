@@ -1,0 +1,13 @@
+§ 5. Goymslan skal verða soleiðis støðað, at tryggleiksfráleikin til eina og hvørja tíð er hildin.
+2. stk. Tað má ikki goymast meira spreingievni á goymsluni enn tann nøgd, goymslan er góðkend til.
+3. stk. Goymslan skal verða gjørd úr løttum tilfari, so sleppast kann undan tungum og stórum spreingilutum, um goymslan spreingist. Í øllum førum skal takið lætt kunna geva eftir. Gassbetong og líknandi evnir mugu ikki nýtast, sum tilfar til spreingievnisgoymslur.
+4. stk. Um so er, at eldur av eini ella aðrari orsøk er í nánd av goymsluni, mugu neistarnir herfrá ikki kunna gera tað, at eldur kemur í goymsluna. Goymslan skal tí verða gjørd úr brunatryggum tilfari ella klæðast við jarni.
+5. stk. Ventilatiónsopningar mugu verða soleiðis tilgjørdir, at neistar ikki kunna treingja inn.
+6. stk. Goymslan skal tryggjast best møguligt móti innbroti. Einki vindeyga má verða, bert smáir ventilatiónsopningar (hægst 15 x 15 cm).
+7. stk. Hurðin skal verða serliga væl gjørd og úr góðum tilfari, minst sum gjøgnumheil træhurð klædd uttan við jarni, einahelst skal hurðin verða úr 1/4“ stálplátu. Hurðin skal falla væl inn í karmin, soleiðis at kúbein og líknandi amboð ikki kunnu koma til her. Hurðin skal verða tryggliga hongslað.
+8. stk. Goymslan skal verða læst við tveimum lásum, sum skulu verða dirkifrí. Vanliga verður nýtt eitt innbygt cylindaralás og eitt heingilás.
+9. stk. Ein lásislá, ið er hongslað í ein eygabolt, sum er tryggliga fastgjørdur í karmin øðrumegin og læstur við heingilásum í ein líknandi eygabolt, sum er fastgjørdur í karmin hinumegin, skal verða soleiðis støðað, at hon fjalir lyklaholið á tí innbygda lásinum.
+10. stk. Boylin í heingilásinum skal verða úr stáli og so trongur, at ein jarnstong ella líknandi amboð ikki kann fáast inn í boylan.
+11. stk. Jarnklædningurin á goymsluni skal verða tryggliga festur, soleiðis at hann ikki lættliga kann skræðast leysur.
+12. stk. Jarnklædningurin við taki skal verða tryggliga bundin til jørð (elektrisk mótstøða hægst 10 ohm).
+13. stk. Goymslan skal girðast inni við góðum, tættmaskaðum hegni (t.d. 50 x 12), ið ikki kann brenna. Hegnið skal minst verða 2,5 m høgt og fráleikin til goymsluna skal minst verða 2 m. Hegnpelarnir kunnu verða úr viði. Portur í hegninum skal verða læst við dirkifríum lási og má ikki kunna lyftast av hongslunum av óviðkomandi. Omaná hegn og portur skulu spennast tvey røð av píkatráði. Um so er, at talan er um eina fyribils goymslu, og henda goymsla liggur á einum øki, ið er stongt fyri óviðkomandi, verður kravið viðvíkjandi hegni um sjálva goymsluna fráfallið. Vegna eldsvanda skal økið innanfyri hegnið haldast frítt fyri alt eldfimt tilfar, vøkstri v.m.
