@@ -1,0 +1,3 @@
+## Blálonga, langasporl og stinglaksur
+§ 15. Í beinleiðis veiði eftir blálongu, langasporli og stinglaksi er loyvt at nýta 100 mm í posanum, ið kann vera í mesta lagi 22 m til longdar og 135 mm í restini av trolinum á leiðum sunnan fyri 61°45,000 N og vestan fyri 009°00,000 V og økið sunnan og vestan fyri eina linju millum staðfestingarnar 60°30,000 N 007°00,000 V og 60°00,000 N og 06°00,000 V.
+Stk. 2. Beinleiðis veiða eftir blálongu, langasporli og stinglaksi merkir, at meira enn 50% av vektini í hvørjum háli er blálonga, langasporl og stinglaksur. Ikki er loyvt at toga á dýpi grynri enn 500 m.
