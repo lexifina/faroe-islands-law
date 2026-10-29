@@ -1,0 +1,1 @@
+§ 2. Rætturin til dagpening sambært § 1 er grundaður á støðuna, tá umsøkjarin gerst óarbeiðsførur vegna sjúku. Í tann mun talan er um fleiri setanir, hevur umsøkjarin rætt til dagpening frá tí degi, hann samanlagt lýkur treytirnar í § 1.
