@@ -1,0 +1,25 @@
+§ 47. [^3] [^1] [^2] Fyri skiparan galda hesar ásetingar:
+1) § 1, stk. 2
+2) § 3, stk. 3 um starvsavtalur,
+3) § 4, stk. 2 um læknakanning,
+4) § 6 um avfaringarhavn v.m.,
+5) § 7, stk. 1, sbr. § 38, um ikki annað er avtalað,
+6) § 7, stk. 2,
+7) § 8 um fría ferð til bústaðin aftaná 6 mánaða tænastu,
+8) §§ 8 a-8 e um hýru og ávísing fyri sjófólk,
+9) § 9 um sjófólk við barn,
+10) § 10, stk. 1 um rættin til at sleppa av, um familjuviðurskifti gera tað neyðugt,
+11) § 10, stk. 4 og 5 um rættin til at sleppa av, m.a. tá ið reiðarin er farin á húsagang og um heimferð,
+12) § 12, stk. 1, nr. 1 um rættin hjá sjófólki at sleppa av í sambandi við krígsvanda,
+13) § 14, stk. 1, sbr. stk. 3, um rætt til at krevja at sleppa av, um skipið missir rættin til at hava føroyskt flagg,
+14) § 15 um rætt til at fara av og um at taka lut í arbeiði, sum gerst neyðugt,
+15) § 19 a um at starvsavtalan skal varðveita sítt gildi í sambandi við sjórán ella vápnað rán,
+16) §§ 21-22 og §§ 24-26 um útrokning og útgjald av hýru,
+17) §§ 27-30, sbr. § 35, 40 og 41, um sjúkrahýru og sjúkrarøkt og fría ferð í sambandi við sjúku ella skaða,
+18) § 31 um rætt reiðarans at fáa ávísar útreiðslur endurgoldnar av landskassanum,
+19) § 32 og 34 um jarðarferð ella líkbrenning og um handfaring av ognarlutum,
+20) § 33, sbr. §§ 35 og 40, um eftirsitihýru,
+21) § 53, stk. 1 og 2 um ókeypis kost og um endurgjald,
+22) § 55 um hvíld,
+23) § 59 um endurgjald fyri mistar ognarlutir, og
+24) § 71 a og c um veitan av fíggjarligari trygd fyri útreiðslum til heimferð, grundleggjandi tørv hjá sjófólki inntil sjófólkið er komið heim, fýra mánaðir í ógoldnari løn o.a.

@@ -1,0 +1,2 @@
+§ 7. [^1] Sjófólk, sum hevur verið í tænastu umborð á sama skipi ella á skipum hjá sama reiðara í 6 mánaðir, og sum hevur biðið um avloysing ella sagt seg úr starvi við 4 vikurs freist, ella um styttri freist er avtalað, tá við teirri freistini, kann uttan mun til øðrvísi avtalu fara av í ein og hvørjari havn, skipið kemur í. Avfaring er tó ikki loyvd, tá ið steðgurin er stuttur, sbr. § 6, 2. stk.
+Stk. 2. [^1] Sjófólk kann í mesta lagi gera tænastu í eitt samanhangandi tíðarskeið á 12 mánaðir við sama skipi ella við skipum hjá sama reiðara.

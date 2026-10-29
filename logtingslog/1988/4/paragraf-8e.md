@@ -1,0 +1,1 @@
+§ 8 e. [^1] Ein og hvør reiðari kann eftir reglum, givnar við heimild í § 8 b, útvega sær manning til skip gjøgnum yvirmenninar á skipinum ella gjøgnum vanligu umsitingina hjá reiðarínum, men kann ikki krevja, at sjófólk skal gjalda fyri hesa tænastu.

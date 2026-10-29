@@ -1,0 +1,2 @@
+§ 39. [^1] Var starvið sagt upp, tá skipsyvirmaðurin gjørdist óarbeiðsførur, ella verður tað sagt upp aftaná, hevur § 29, stk. 2 og 3, sbr. § 35 um rætt til sjúkrahýru, samsvarandi gildi, sbr. tó stk. 2.
+Stk. 2. [^1] Er skipsyvirmaður ikki førur fyri at gera sítt arbeiði orsakað av sjúku ella likamsskaða, er hetta at meta sum lógligt forfall, uttan so at hann í sambandi við setanina svikafult hevur dult sjúkuna ella skaðan, ella aftaná setanina við vilja ella grovum ósketni verður sjúkur ella løstaður.

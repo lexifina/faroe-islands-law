@@ -1,0 +1,1 @@
+§ 59. [^1] Hevur sjófólk mist ognarlutir umborð ella eru teir skaddir av skipbroti, sjóráni, eldi ella øðrum sjóskaða, skal reiðarin veita endurgjald. Føroya Landsstýri ásetir gjøllari reglur um hetta. Kostnaður av heimferðarklæðum sambært § 19, 2. stk., kann verða drigin frá.

@@ -1,0 +1,2 @@
+§ 61. Verður grovt brotsverk framt umborð og skipið er ikki í føroyskari havn, skal skiparin so skjótt sum til ber taka upp eina fyribils frágreiðing, sum verður førd í skipsdagbókina. Hetta er tó ikki galdandi, um brotsverkið er framt á fremmandum landøki og myndugleikarnir á staðnum fylgja málinum.
+Stk. 2. Skiparin skal í mesta mun syrgja fyri, at sekur ikki rýmir, til danskur konsul ella løgreglan í Føroyum kann taka sær av málinum. Skiparin kann í hesi ætlan taka til neyðug ráð, men má ikki nýta harðari ráð, enn endamálið letur til.

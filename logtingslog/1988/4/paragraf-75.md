@@ -1,0 +1,1 @@
+§ 75. Føroya Landsstýri ásetir, nær hendan lóg kemur í gildi. Samstundis fara úr gildi løgtingslóg nr. 57 frá 3. november 1967 um sjómenn og lóg nr. 5 frá 28. februar 1956 um hvíldartíð á føroyskum fiskiskipum.

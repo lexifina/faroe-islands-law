@@ -1,0 +1,1 @@
+§ 71 c. [^2] Landsstýrismaðurin kann áseta nærri reglur um fría heimferð við uppihaldi eftir teimum ásetingum, sum eru nevndar í § 6, stk. 6, § 8, stk. 1, § 10, stk. 4, §§ 11-14, § 18, stk. 2, § 19, § 30, § 43, § 46, stk. 2 og § 47.

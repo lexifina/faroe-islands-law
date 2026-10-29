@@ -1,0 +1,3 @@
+§ 19 a. [^4] Fyri sjófólk, ið verður hildið gísli í sambandi við sjórán ella vápnað rán, er starvsavtalan galdandi alt tíðarskeiðið, tað verður hildið gísli. Sama er galdandi, hóast starvsavtalan fer úr gildi í tíðarskeiðinum, ella um ein av pørtunum hevur boðað frá uppsøgn.
+Stk. 2. Sjófólk hevur rætt til løn og aðrar samsýningar sambært starvsavtaluni, viðkomandi kollektivum sáttmála ella aðrar samsýningar sambært føroyskari lóggávu alt tíðarskeiðið, tað verður hildið gísli.
+Stk. 3. Sjófólk, ið verður leyslatið, hevur rætt til fría heimferð við uppihaldi til bústað sín fyri reiðarans rokning.

@@ -1,0 +1,3 @@
+§ 28. [^1] Tá skiparin í útlondum letur sjúkt ella skatt sjófólk donskum konsli upp í hendi, kann konsulin krevja trygd fyri tær útreiðslur, reiðarin skal gjalda sambært §§ 30 og 34 í samband við røkt og jarðarferð hjá sjófólki.
+Stk. 2. [^1] Skiparin skal flýggja konslinum upphæddir, sum sjófólkið eigur á, ella man fara at eiga á sambært § 29, 1. stk.
+Stk. 3. [^1] Hýruupphædd, sum sjófólkið hevur rætt til, kann viðkomandi krevja útgoldna, uttan so at upphæddirnar ætlandi skulu vera fyri útreiðslur fyri rokning sjófólksins, ella tað er soleiðis vorðið við viðkomandi, at viðkomandi er óegnað at taka sær av sínum egna.

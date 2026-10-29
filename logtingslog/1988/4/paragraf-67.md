@@ -1,0 +1,1 @@
+§ 67. [^1] Við sekt verður – um revsingin verður ikki meiri eftir aðrari lóg – tann revsaður, sum av fyrisettum ráði dregst undan starvi sínum við ikki at koma rættstundis umborð ella fer av skipinum, um hann visti ella átti at vita, at rýmingin fór at seta mannalív ella skip í váða.

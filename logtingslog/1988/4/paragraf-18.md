@@ -1,0 +1,3 @@
+§ 18. [^1] Verður sjófólk avkoyrt uttan slíka grund, sum nevnd er í § 17, hevur tað rætt til hýru fyri 2 mánaðir eftir, at viðkomandi er farð av, um ikki vanligar reglur um endurgjald geva rætt til størri upphædd. Fyri fiskiskip verður frammanfyri nevnda hýra ásett sambært býti í sáttmálunum faldað við minstulønini.
+Stk. 2. [^1] Sjófólk hava harumframt rætt til fría heimferð við uppihaldi til bústaðin fyri reiðarans rokning. Er ávísur avfaringarstaður avtalaður, hevur sjófólk rætt til fría ferð við uppihaldi hagar.
+Stk. 3. [^1] Fer sjófólk av eftir uppsøgn á avtalaðum ella sambært § 6 ásettum avfaringarstaði eftir avgerð skipsførarans áðrenn uppsagnarfreistin er farin og við hýru og uppihaldi til freistin er farin, eru 1. og 2. stk. ikki galdandi.

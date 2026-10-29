@@ -1,0 +1,3 @@
+§ 42. Verður skipsyvirmaður uppsagdur, og hevur hesin yvirmaður, tá ið hann verður uppsagdur, havt starv hjá sama reiðara eitt ár ella meira, tá skal hesin sami reiðari samsýna uppsøgnina, um ikki nóg góð grund tykist vera undir henni, annaðhvørt hjá yvirmanni ella reiðara. Samsýningin verður sett í mun til starvstíð yvirmansins og eftir umstøðunum annars í málinum, men fer ikki upp um 3 mánaða hýru.
+Stk. 2. Um skipsyvirmaður, tá hann verður uppsagdur, hevur verið hjá sama reiðara í minsta lagi í 10 ár út í eitt, kann endurgjaldið, ið nevnt er í 1. stk. verða upp í 4 mánaða hýra. Aftaná 15 ára samanhangandi starvstíð í reiðaríi kann endurgjaldið verða hýra upp í 6 mánaðir.
+Stk. 3. 1. og 2. stk. hava eisini gildi, um skipsyvirmaðurin verður uppsagdur uttan grund.

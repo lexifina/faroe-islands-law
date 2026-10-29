@@ -1,0 +1,1 @@
+§ 40. § 35, sbr. § 39, um rætt til sjúkrahýru v.m. fær gildi, hóast starv skipsyvirmans ikki er knýtt at einum reiðara á tann hátt, at starv hansara hjá reiðaranum heldur fram, sjálvt um starvið á tí einstaka skipinum heldur uppat.

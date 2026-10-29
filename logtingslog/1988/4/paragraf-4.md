@@ -1,0 +1,3 @@
+§ 4. [^1] Eingin undir 16 ára aldur má verða settur í arbeiði umborð.
+Stk. 2. [^5] [^1] Eingin má fara í ella røkja starv umborð, fyrr enn hann við nóg góðum úrsliti hevur verið undir teirri læknakanning, sum kravd er til slíkt starv. Arbeiðsgevarin ber útreiðslurnar av læknakanningini. Treytin fyri, at arbeiðsgevarin skal endurrinda útreiðslurnar, er, at sjófólkið er við skipinum ella reiðarínum, ið endurrindar, í minsta lagi hálvt ár. Landsstýrismaðurin ásetur nærri reglur um læknakanningar.
+Stk. 3. [^1] Til verndar hjá sjófólki undir 20 ára aldur kann Føroya landsstýri víkja frá reglunum í §§ 5, 6, 7, 11, 19, 20, 27, 55 og 56.

@@ -1,0 +1,5 @@
+§ 8. [^1] Sjófólk, sum hevur bústað í Føroyum og sum teir tríggjar seinastu mánaðirnar ikki hevur havt møguleika at fara av í føroyskari havn, hevur rætt til fría ferð til bústað sín, um viðkomandi uttan støðg hevur verið í starvi á sama skipi ella á skipum, sum hoyra sama reiðara til, í 6 mánaðir. Føroya landsstýri og reiðarin rinda hvør helvtina av útreiðslunum av ferðini íroknað uppihald.
+Stk. 2. [^1] Sjófólk skal tó halda fram í starvi sínum í upp til ein mánað, um tað er væntandi, at skipið í hesum tíðarskeiði kemur í havn, haðani heimferðin fer at gerast munandi ódýrari ella lagaligari.
+Stk. 3. [^1] Fer sjófólkið av eftir egna uppsøgn ella avfaringarfráboðan, skal krav um frí heimferð verða sett í seinasta lagi saman við uppsøgnini ella umsóknini um faring.
+Stk. 4. Konsulin stílar fyri heimferðini ella, um ikki danskur konsul er á staðnum, tá skiparin. Stílar konsulin fyri heimferðini, skal skiparin, tá hetta verður kravt, seta trygd fyri reiðarans parti av útreiðslunum.
+Stk. 5. [^1] (Strikað).

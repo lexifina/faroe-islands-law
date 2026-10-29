@@ -1,0 +1,2 @@
+§ 13. [^1] Hevur sjófólk tikið hýru fyri eina tilskilaða ferð, og hon verður broytt munandi, kann tað krevja at sleppa av. § 12, 3. stk., 1. og 2. pkt., fáa samsvarandi gildi.
+Stk. 2. [^1] Fer sjófólk av, hevur tað rætt til hýru fyri eina mánað eftir, at viðkomandi er farið úr starvinum. Harafturat hevur tað rætt til fría ferðing við uppihaldi til hýringarstaðin, um viðkomandi fer av, áðrenn ferðin er byrjað, og annars til avtalaða fráfaringarstaðin.

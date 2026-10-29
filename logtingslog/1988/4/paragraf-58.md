@@ -1,0 +1,2 @@
+§ 58. [^1] Eru ognarlutir hjá sjófólki eftir umborð, tá viðkomandi er farin úr starvi, skulu hesir verða goymdir umborð fyri tess rokning. Skiparin skal sum skjótast syrgja fyri, at yvirlit yvir teir lutir, ið eftir liggja, verður gjørt. At yvirlitið er rætt, skal verða váttað av tveimum fólkum.
+Stk. 2. [^1] Ber ikki so væl til at goyma lutirnar vegna snið teirra, útreiðslurnar ella aðrar umstøður, kunnu teir verða seldir á tryggan hátt. Sama er galdandi, um sjófólkið hevur ikki vent sær til reiðaran eftir ognarlutunum innan 1 ár.

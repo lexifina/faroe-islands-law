@@ -1,0 +1,1 @@
+§ 31. [^1] Hevur skiparin í samband við, at sjúkt ella løstað sjófólk er farið av í útlandinum verið noyddur til at bera útreiðslur av heimsending ella røkt ella aðra hjálp sambært fyriskipan um umsorgannarrætt, sum reiðarin ikki eftir røttum eigur at bera og sum ikki hevði sloppist undan við stuðuli frá donskum konsli, tá kann endurgjald verða kravt frá landskassanum.

@@ -1,0 +1,2 @@
+§ 15. [^1] Sjófólk, sum eftir avtaluni ella reglunum í hesum bólki hevur rætt at fara av, skal vera í starvinum til at taka lut í arbeiði, sum gerst neyðugt, tá ið skipið kemur í havn, tó ikki meir enn 48 tímar eftir komu. Hetta er tó ikki galdandi, tá farið verður av sambært § 10, 1. stk.
+Stk. 2. Skal sjófrágreiðing verða givin, skal viðkomandi móti hýru og uppihaldi vera á staðnum, til frágreiðingin er givin.

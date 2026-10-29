@@ -1,0 +1,1 @@
+§ 71 d. [^2] Landsstýrismaðurin kann, eftir samráð við avvarðandi landsstýrismann við málsræði fyri løgtingslóg um trygging móti avleiðingunum av arbeiðsskaða, áseta reglur um loyvisbrøv ella onnur próvskjøl um vernd av sjófólki eftir løgtingslóg um trygging móti avleiðingunum av arbeiðsskaða, og um at heingja upp próvskjøl og loyvisbrøv o.a. umborð á skipinum.

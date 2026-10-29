@@ -1,0 +1,2 @@
+§ 43. [^3] Verður skipsyvirmaður avkoyrdur uttan tílíka grund, sum nevnd er í § 17 um ólýdni v.m. hevur hann rætt til hýru í 3 mánaðir eftir, at starvið er hildið uppat, uttan so at vanligar reglur um endurgjald geva honum rætt til størri upphædd. Annars fær § 18 um rætt til fría ferð og um at fara av, áðrenn uppsagnarfreistin er úti, gildi.
+Stk. 2. Fyri fiskiskip verður uppsagnarhýran roknað samsvarandi partsbýti í sáttmálanum faldað við minstulønina.

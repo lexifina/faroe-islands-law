@@ -1,0 +1,1 @@
+§ 5. [^1] [^4] Hvør parturin kann siga starvsavtaluna upp við 7 daga freist, uttan so at annað er avtalað, sbr. tó § 19 a. Styttri uppsagnarfreist fyri reiðaran enn fyri sjófólkið kann ikki verða avtalað.
