@@ -1,0 +1,3 @@
+§ 6. Prógv, sum verða útskrivað á góðkendum útbúgvingarstovni, vísa til galdandi førleikastig sambært føroyska førleikakarminum, umframt evropeiska førleikakarminum fyri lívlanga læru, the European Qualifications Framework for Lifelong Learning, EQF.
+Stk. 2. Á hægri útbúgvingum verður eisini víst til førleikakarmin fyri tað evropeiska økið fyri hægri útbúgvingar, the Framework of Qualifications for the European Higher Education Area, QF-EHEA.
+Stk. 3. Í teimum førum, har útbúgvingin verður tikin í samstarvi við útlendskan útbúgvingarstovn, kann eisini verða víst til galdandi førleikastig sambært útlendskum førleikakarmi.
