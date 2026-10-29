@@ -1,0 +1,3 @@
+## Bíðigjald
+§ 14. Er loðsing umbiðin, men upplýsta ETA hjá skipinum verður seinkað meira enn ein tíma, uttan at hetta er fráboðað samsvarandi teimum í § 4, stk. 2 og § 5, stk. 2 nevndu tíðarfreistum, verður kravt tvífalt tímagjald fyri ta tíðina, sum loðsurin má bíða, til loðsingin kann byrja, ella til loðsskylduga skipið endaliga avlýsir loðsingina.
+Stk. 2. Er loðsur komin umborð, men fær ikki byrjað loðsingina orsakað av viðurskiftum, sum loðsurin ikki hevur ábyrgdina av, verður kravt tvífalt tímagjald frá tí, at loðsurin kom umborð, og til loðsingin kann byrja, ella til loðsurin er komin til lands.

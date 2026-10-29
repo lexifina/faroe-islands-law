@@ -1,0 +1,2 @@
+## Loðsing frá innara loðspunkti
+§ 8. Um tað orsakað av veðurlíkindunum, ella øðrum viðurskiftum, ikki verður mett trygdarliga ráðiligt at senda loðsbát út til loðspunktið fyri viðkomandi havn, kann loðsstøðin í einstaka førinum áseta eitt innara loðspunkt, og umvegis radiosamband og møguliga aðra egnaða samskiftisútgerð, nágreiniliga leiðbeina skipið um, hvussu siglt verður til innara loðspunktið.
