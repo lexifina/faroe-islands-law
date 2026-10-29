@@ -1,0 +1,2 @@
+§ 1. Kringvørp, sum skipa fyri eydnuspæli sambært løgtingslóg um kringvarp v.m., skulu í seinasta lagi 1 mánað og 10 dagar aftaná eitt avgjaldstíðarskeið er endað, lata Toll-og Skattstovu Føroya uppgerð, sum greitt vísir avgjaldsgrundarlagið fyri avvarðandi avgjaldstíðarskeið.
+Stk. 2. Avgjaldstíðarskeiðini eru 4 um árið: 1. januar – 31. mars, 1. apríl – 30. juni, 1. juli – 30. september og 1. oktober – 31. desember.
