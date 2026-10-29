@@ -1,0 +1,3 @@
+§ 10. Lærari, sum er í føstum starvi og ikki lýkur krøvini í § 9, kann halda fram at undirvísa, treytað av, at førleikastøðið hjá viðkomandi í seinasta lagi 5 ár eftir, at henda kunngerð er komin í gildi, er í samsvari við ásettu krøvini í § 9 og § 11.
+Stk. 2. Skúlastjórin og lærarin avtala í felag, hvussu lærari kann dagføra útbúgvingina. Mentamálaráðið skal góðkenna avtaluna.
+Stk. 3. Landsstýrismaðurin kann eftir umsókn í serligum føri m.a. orsakað av aldri víkja frá ásetingini í stk. 1 og geva lærara í føstum starvi loyvi at halda fram í starvinum. Landsstýrismaðurin skal biðja um tilráðing frá skúlanum í slíkum málum.
