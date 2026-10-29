@@ -1,0 +1,1 @@
+§ 11. Meðan lærlingurin er á læruplássinum, skrivar hann saman við læruplássinum eina útbúgvingarfrágreiðing, sum útgreinar, hvørji førleikamál eru rokkin tíðina á læruplássinum. Frágreiðingin er partur av grundarlagnum undir sveinaroyndini. Skúlin ger nærri reglur um útbúgvingarfrágreiðingina.
