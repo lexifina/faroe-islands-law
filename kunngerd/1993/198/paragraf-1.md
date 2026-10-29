@@ -1,0 +1,2 @@
+§ 1. Fyri avrit ella fotoavrit av skjølum í einum máli, ið verða latin sambært lógini um innlit í fyrisitingina, krevur viðkomandi myndugleiki 20 kr. fyri fyrstu síðuna og 1 kr. fyri hvørja byrjaða næstu síðu, jbr. tó §§ 2-3.
+Stk. 2. Reglan í stk. 1 er eisini galdandi í førum, har ein fyrisitingarmyndugleiki gevur høvi til skjalainnlit í størri mun enn myndugleikin hevur skyldu til, jbr. lógarinnar § 4, stk. 1, 2. pkt.
