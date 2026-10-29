@@ -1,0 +1,1 @@
+§ 11. Kommunali musikkskúlaleiðarin skal við góðkenning musikkskúlastjórans bjóða próvtakara við niðursettum sálarligum ella likamligum virkisføri ella við øðrum serligum trupulleikum serligar próvtøkuumstøður, sum javnseta hann við aðrar próvtakarar.

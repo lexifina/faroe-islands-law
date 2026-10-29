@@ -1,0 +1,1 @@
+§ 7. Próvtakari, sum ikki fær møtt til próvtøku vegna skjalprógvaða sjúku, ella er forðaður at luttaka av aðrari orsøk, sum próvtakarin ikki hevur ræði á, skal hava møguleika at fara til próvtøku sbrt. § 3. stk. 2 ella skjótast gjørligt. Sjúka skal vera skjalprógvað í seinasta lagi tann dagin, próvtøkan skal fara fram.
