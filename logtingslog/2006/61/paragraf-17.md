@@ -1,0 +1,1 @@
+§ 17. Kommunur kunnu fáa sendiloyvi, um so er, at endamálið hjá kommununi við programmvirkseminum einans er at seta framleiðslu- og sendiútgerð til nýtslu fyri áhugaðar borgarar ella at senda kommmunala kunning.

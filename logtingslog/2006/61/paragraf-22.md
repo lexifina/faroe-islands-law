@@ -1,0 +1,3 @@
+§ 22. Mál, ið snýr seg um fjølmiðlasið og viðvíkur programmvirkseminum hjá Kringvarpi Føroya ella aðrari kringvarpsstøð við sendiloyvi sbrt. hesi lóg, kann kærast sbrt. reglunum í fjølmiðlaábyrgdarlógini.
+Stk. 2. Kringvarp Føroya ella onnur kringvarpsstøð við sendiloyvi sbrt. hesi lóg hava skyldu til at viðgera kæru um fjølmiðlasið og taka avgerð í málinum.
+Stk. 3. Í sambandi við viðgerð av máli, ið snýr seg um programmvirksemi, herundir lýsingavirksemi, kann verða álagt Kringvarpi Føroya og øðrum kringvarpsstøðum við loyvi sbrt. hesi lóg at útflýggja upptøkur av viðkomandi programmum og lýsingum.
