@@ -1,0 +1,6 @@
+§ 16 b. [^4] [^5] [^10] Avskriving hjá persónligum skattgjaldara av ognum, sum eru undir hesum kapitli, verða gjørdar eftir reglunum í hesum og
+1. kapitli við niðanfyri nevndu avmarkingum:
+1) Avskrivast kann í vinningi av skiparakstri. Harumframt kann avskrivast upp til 15% av avskrivingarbæra saldovirðinum, tó í mesta lagi 15% av aðrari inntøku við øllum frádráttum. Avdráttir av upprunaligum lánum í skipum, sum ikki rúmast innan fyri rakstrarvinning frá egnum skipum undir einum, kunnu altíð avskrivast, treytað av at tann skattliga saldoin er minst líka stór sum restskuldin uppá skipini. Árlig avskriving eftir § 2 jmt. § 12 kann í mesta lagi vera 30% av tí saldovirði, ið kann avskrivast.
+2) Forskotsavskriving eftir § 13 kann í mesta lagi vera ájøvn við innskotnan eginpening útyvir vinning av skiparakstri.
+3) Persónur, sum pr. 1. september 1974 hevur gjørt sáttmála um bygging av skipi, kann hóast ásetingina í nr. 2 avskriva sambært § 13 fyri inntøkuárini 1974 og 1975.
+2. stk. Rakstrarvinningur av skipi er eftir hesari grein nettovinningur, aftaná at rakstrarútreiðslur, herundir allar lønir, eisini reiðaraløn og hýrur eftir galdandi sáttmálum, eru farnar av, men áðrenn avskrivingar eru gjørdar.

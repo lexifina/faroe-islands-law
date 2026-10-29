@@ -1,0 +1,1 @@
+§ 39. [^6] Samstundis sum henda lóg kemur í gildi, fer løgtingslóg nr. 3 frá 2. februar 1956, sbr. løgtingslóg nr. 29 frá 12. mai 1970 um skattafríar eykaavskrivingar uppá skip, ávísar bygningar og maskinur v.m., § 3, 2., 3. og 4. stk. úr gildi.

@@ -1,0 +1,1 @@
+§ 27. [^5] Útreiðslur til útvegan av byggigrund, byggibúning av sjálvari grundini og økinum uttanum, kunnu ikki verða roknaðar upp í útveganarpeningin ella útreiðslur til ábøtur v.m. av avskrivingarbæra bygninginum.

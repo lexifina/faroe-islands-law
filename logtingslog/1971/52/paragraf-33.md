@@ -1,0 +1,1 @@
+§ 33. Líkningarráðið setur gjølligari fyriskipanir um hvørjar upplýsingar tey skattskyldugu skulu geva skattavaldinum til nýtslu við eftirliti við at lógin verður hildin og fyriskipanir í hesum sambandi tað snið, sum hesar upplýsingar skulu verða givnar í. Innlating av nevndu upplýsingum kann verða noydd ígjøgnum við álegging av dagligari bót, sum verður ásett av líkningarráðnum.

@@ -1,0 +1,1 @@
+§ 15. Verður sáttmáli um bygging av skipi sagdur úr gildi, skal peningahædd svarandi til gjørdar forskotsavskrivingar fyri skipið, verða roknað upp í skattskyldugu inntøkuna fyri tað inntøkuár, ið sáttmálin fer úr gildi.

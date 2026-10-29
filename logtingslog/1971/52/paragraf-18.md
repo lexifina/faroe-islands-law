@@ -1,0 +1,1 @@
+§ 18. Verður bert partur av bygningi nýttur til endamál, sum heimilar avskriving eftir § 17, kann skattlig avskriving verða gjørd fyri tann part av útveganarpeninginum, sum lutfalsliga samsvarar gólvvíddini í nevnda bygningsparti.

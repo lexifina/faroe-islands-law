@@ -1,0 +1,1 @@
+§ 14. Tað inntøkuár, tá skip, sum forskotsavskriving hevur verið gjørd fyri, verður avhent, gongur útveganarpeningurin við gjørdum forskotsavskrivingum frádrignum upp í avskrivingargrundarlagið fyri hini skip virkisins eftir reglunum í § 2, smbr. § 12.

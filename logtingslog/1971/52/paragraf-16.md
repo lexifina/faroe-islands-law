@@ -1,0 +1,2 @@
+§ 16. Verða rættindi sambært sáttmála um bygging av skipi seld, skal vinningur ella hall av hesum teljast við í skattauppgerð seljarans í tí inntøkuári, tá selt er. Hevur forskotsavskriving verið gjørd, skulu tær gjørdu forskotsavskrivingarnar verða taldar uppí við uppgerðina av vinningi ella halli.
+2. stk. Við nýtslu av ásetanunum í 1. stk. verður rindan av tryggingar- ella endurgjaldspeningi roknað fyri sølu av avvarðandi sáttmála.
