@@ -1,0 +1,1 @@
+§ 19. Ber ikki til at avlíva hval við mønustingara, kann vera skorið á háls við grindaknívi eftir, at sýslumaðurin ella grindaformaðurin hava givið serligt loyvi til tess. Skerast skal handarbreidd aftan fyri blástrið, djúpt niður við báðum vangunum og stingast í mønuna. Síðan skal skerast á hálsæðrarnar.

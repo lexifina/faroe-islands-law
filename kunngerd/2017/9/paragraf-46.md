@@ -1,0 +1,2 @@
+§ 46. Hvalur, sum verður fiskaður upp, eftir at sýslumaðurin hevur byrjað skiftið, men innan útleggingin er liðug, kemur upp í skiftið.
+Stk. 2. Verður hvalur fiskaður upp teir fyrstu 2 tímarnar eftir, at seðlarnir eru komnir út, fellur helvtin til finnararnar, og hin helvtin verður seld til frama fyri grindina sambært § 41, stk. 2. Verður hvalur fiskaður upp seinni, fellur allur hvalurin til finnararnar.

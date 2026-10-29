@@ -1,0 +1,1 @@
+§ 45. So skjótt skiftið og útlegging er liðugt, kunnger sýslumaðurin teimum, sum til staðar eru, hvussu stór grindin er, hvussu nógv skinn hon er mett til, hvussu stórir partarnir eru og flýggjar út seðlar, sum tilskila í hvørjum hvalum teir ymisku partarnir eru.

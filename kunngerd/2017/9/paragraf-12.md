@@ -1,0 +1,1 @@
+§ 12. [^1] Landsstýrismaðurin kann loyva sýslumanni at lýsa bráðfeingis bann fyri grindadrápi í ávísari hvalvág í upp til 3 mánaðir, um nóg mikið av grind er í grindaumdøminum, sum hoyrir til hvalvágna. Bráðfeingis bann skal lýsast í Kringvarpi Føroya.

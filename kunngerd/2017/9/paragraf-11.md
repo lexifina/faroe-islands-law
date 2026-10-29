@@ -1,0 +1,1 @@
+§ 11. Sýslumaðurin kann steðga einum grindarakstri ella grindadrápi, metir hann, at umstøðurnar tala fyri tí. Ikki er loyvt at halda áfram við grindarakstri ella grindadrápi, sum sýslumaðurin hevur givið boð um at steðga. Sýslumaðurin kann eisini gera av, at grindin skal merkjast til vísindaligt endamál og ikki skal drepast.

@@ -1,0 +1,3 @@
+## Avgerð um at reka grind útaftur
+§ 21. Er grind, sum verður hildin til, størri enn pláss er fyri á hvalvágni, kann sýslumaðurin steðga drápinum. Skipað verður síðan fyri, at tað, ið eftir er av grindini, verður rikið útaftur.
+Stk. 2. Eru fleiri miseydnaðar royndir gjørdar at halda grindini til inni á tí hvalvág, hagar hon er rikin, og grindin ikki fæst í drepning, skal sýslumaðurin, saman við grindaformonnunum, geva boð um at reka grindina útaftur. Sama er galdandi fyri bólkar og einstakar hvalir, sum ganga eftir. Ikki er loyvt at halda grind til, sum sýslumaðurin hevur givið boð um skal rekast útaftur.
