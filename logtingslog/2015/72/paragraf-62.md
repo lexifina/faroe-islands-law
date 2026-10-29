@@ -1,0 +1,3 @@
+## Atgongd í sambandi við órógv
+§ 62. Í neyðstøðu, sum hóttir lív og heilsu, kann Fjarskiftiseftirlitið, uttan rættarúrskurð og eftir at hava víst samleikaprógv, fáa atgongd til almennar og privatar ognir við tí fyri eyga at steðga órógvi av tænastum, radioútbúnaði, teleterminalútbúnaði, umframt elektriskum og elektroniskum tólum.
+Stk. 2. Fjarskiftiseftirlitið skal skjótast gjørligt og seinast 24 tímar eftir, at Fjarskiftiseftirlitið hevur fingið atgongd sambært stk. 1, leggja málið fyri rættin. Rætturin avger við rættarúrskurði, um inntrivið kann góðtakast. Átti inntrivið ikki at verið framt, skal rætturin boða landsstýrismanninum frá hesum.

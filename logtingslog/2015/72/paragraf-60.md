@@ -1,0 +1,3 @@
+## Umvæling av breki ella funktiónssliti
+§ 60. Fjarskiftiseftirlitið kann geva boð um, at brek ella illa virkandi almenn fjarskiftiskervi, almennar fjarskiftistænastur ella fjarskiftisútbúnaður o. tíl skal umvælast ella rættast. Tann, ið fær slík boð, hevur ábyrgdina fyri at seta í verk neyðugu tiltøkini innan fyri ta freist, ið Fjarskiftiseftirlitið ásetur.
+Stk. 2. Um boð frá Fjarskiftiseftirlitinum ikki verða fylgd, kann Fjarskiftiseftirlitið fyribils seta úr gildi ella steingja viðkomandi kervi, tænastu ella útgerð. Um tørvur er á tí, kann Fjarskiftiseftirlitið gera umvælingina og síðan senda rokningina til ábyrgdahavaran. Fjarskiftiseftirlitið kann,um neyðugt, krevja, at fjarskiftiskervið verður avtikið.

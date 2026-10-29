@@ -1,0 +1,1 @@
+§ 27. Landsstýrismaðurin kann áseta reglur fyri likamligar og løgfrøðiligar persónar, um vernd av endabrúkarum mótvegis goymslu av upplýsingum á terminalútbúnaði, og atgongd til upplýsingar, sum eru goymdar á terminalútbúnaðinum hjá endabrúkarunum.

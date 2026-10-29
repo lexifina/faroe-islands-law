@@ -1,0 +1,2 @@
+## Upplýsingarskylda
+§ 34. Ein veitingarskyldugur veitari, ið vil avhenda sítt accesskervi ella ein týðandi part av hesum til eina sjálvstøðuga løgfrøðiliga eind við øðrum ognarrætti, skal frammanundan og í góðari tíð boða Fjarskiftiseftirlitinum frá hesum soleiðis, at Fjarskiftiseftirlitið hevur møguleika fyri at meta um, hvussu ætlaða avhendanin fer at ávirka útboðið av teimum veitingarskyldugu veitingunum í § 31, stk. 2 nr. 1 og 2.

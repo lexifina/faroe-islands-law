@@ -1,0 +1,1 @@
+§ 24. Fjarskiftiseftirlitið kann áseta reglur um stovnan og rakstur av gjaldtelefonum ella aðra atgongd til almenna talutelefoni, sum inniheldur minstukrøv til veitarar av gjaldtelefoni, undir hesum eisini at røkja serliga tørvin hjá teimum endabrúkarum, ið hava skerdan førleika.

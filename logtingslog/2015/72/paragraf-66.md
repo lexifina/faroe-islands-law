@@ -1,0 +1,1 @@
+§ 66. Landsstýrismaðurin kann gera nærri reglur um gjøld, undir hesum reglur um krøv til upplýsingar frá veitara, skilmarking av hvørjar tænastur og veitingar eru fevndar av avgjaldi, hvussu marknaðarpartar skulu roknast, reglur um innkrevjing o.a.

@@ -1,0 +1,1 @@
+§ 30. Veitarar av fjarskiftiskervi ella fjarskiftistænastu til endabrúkarar skulu, eftir áheitan frá løgregluni, útflýggja upplýsingar, ið eyðmerkja atgongdina hjá einum endabrúkara til fjarskiftiskervi ella fjarskiftistænastur.

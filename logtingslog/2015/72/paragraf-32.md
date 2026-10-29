@@ -1,0 +1,3 @@
+## Hámarksprísur fyri veitingarskyldugar veitingar
+§ 32. Landsstýrismaðurin kann áseta nærri reglur um útrokning av hámarksprísi, undir hesum áseta, at prísir fyri veitingarskyldugar veitingar skulu vera eins um alt landið, og áseta karmar fyri, í hvønn mun Fjarskiftiseftirlitið hevur heimild at áseta hámarksprísir.
+Stk. 2. Landsstýrismaðurin kann gera av, at Fjarskiftiseftirlitið skal áseta hámarksprís fyri eina ella fleiri veitingarskyldugar veitingar, sambært § 31, stk. 2 og 3. Prísirnir skulu í minsta lagi samsvara við veitingarkostnaðin. Útrokningin av hámarksprísi fyri veitingarskyldugar veitingar er ikki galdandi, tá ið veitingarnar, eftir altjóða skyldum, skulu bjóðast út ókeypis.

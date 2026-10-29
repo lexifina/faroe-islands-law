@@ -1,0 +1,4 @@
+## Samfelagstýdningarmikið fjarskifti í tilbúgvingarstøðu og aðrari serstakari støðu
+§ 52. Í neyðstøðu, sum hóttir heilsu, trygd ella almennan ordan, kann landsstýrismaðurin seta neyðug tiltøk í verk fyri heilt ella partvíst at steðga nýtsluni av fjarskiftiskervinum og fjarskiftisútbúnaði, burtursæð frá móttøkuútbúnaði, ið einans er innrættaður til móttøku av kringvarpi.
+Stk. 2. Landsstýrismaðurin kann avmarka nýtslurættin, tá tað er neyðugt fyri at tryggja fjarskiftiskervið. Hesar avmarkingar í nýtslurættindum skulu fráboðast viðkomandi beinanvegin. Harumframt skal eisini Fjarskiftiseftirlitið hava fráboðan um avmarkingarnar.
+Stk. 3. Landsstýrismaðurin kann áseta nærri reglur um avmarkingar í nýtslurættinum, um tað er neyðugt fyri at tryggja fjarskifti í neyðstøðu og aðrari serligari støðu, uttan útreiðslur fyri landið.
