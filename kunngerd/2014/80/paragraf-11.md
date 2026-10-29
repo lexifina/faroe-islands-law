@@ -1,0 +1,1 @@
+§ 11. Sum fyrireiking av gjøgnumgongdini av bygninginum skal tilnevndi byggikøni biðja húsaeigaran um skrivligar upplýsingar, sum fyriliggja um bygningin, undir hesum tekningar og aðrar lýsingar og frágreiðingar.

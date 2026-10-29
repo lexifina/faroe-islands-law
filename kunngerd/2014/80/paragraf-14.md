@@ -1,0 +1,2 @@
+§ 14. Í støðufrágreiðingini skal upplýsast um tilnevndi byggikøni í samband við gjøgnumgongdina leggur til merkis, at ein partur av bygninginum hevur verið óatkomuligur at gjøgnumganga, umframt at upplýsast skal um orsøkina til, at parturin hevur verið fjaldur.
+Stk. 2. Metir tilnevndi byggikøni at óvissa er um tær upplýsingar, sum bygningseigarin hevur givið í sambandi við, at støðufrágreiðingin varð gjørd, skal tað viðmerkjast og grundgivast fyri hesum í støðufrágreiðingini.

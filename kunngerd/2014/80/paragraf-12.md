@@ -1,0 +1,1 @@
+§ 12. Tilnevndi byggikøni kann uttan um húsaskoðanarskipanina taka á seg aðrar veitingar viðvíkjandi bygninginum enn bygningsgjøgnumgongd og støðufrágreiðing, undir hesum at meta um kostnaðin av umvælingum.
