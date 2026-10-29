@@ -1,0 +1,5 @@
+## Stuðulsupphædd og stuðulsgrundarlag
+§ 4. Stuðulsupphæddin tekur støði í tali á umsøkjarum, sum lúka treytirnar, og játtan á fíggjarlógini til endamálið.
+Stk. 2. [^1] Av árligu játtanini á fíggjarlógini verða 70% latin verkætlanum, sum leggja seg eftir at gera loftborið ella skrivligt tilfar, sum verður mett at hava journalistiska dygd og samfelagsligt virði. Harumframt verða 30% av árligu játtanini á fíggjarlógini latin sum ein eins lutfalslig upphædd í prosentum av skjalprógvaðum lønarútreiðslum árið fyri umsóknarárið hjá viðkomandi miðli ella miðlasamtaki. Ein miðil ella miðlasamtak kann í mesta lagi fáa 40% av teimum 30% av árligu játtanini á fíggjarlógini, ið er sett av til stuðul við støði í skjalprógvaðum lønarútreiðslum sbrt. 2. pkt.
+Stk. 3. [^1] Stuðul til verkætlanir sbrt. stk. 2 verður latin til virksemi, ið verður framt í eitt avmarkað tíðarskeið við einum ítøkiligum endamáli og úrsliti. Lønarútreiðslur sbrt. stk. 2 verða gjørdar upp við støði í góðkenda roknskapinum hjá viðkomandi miðli ella miðlasamtaki undanfarna roknskaparár.
+Stk. 4. [^1] Landsstýrismaðurin ásetir nærri treytir fyri stuðli.
