@@ -1,0 +1,1 @@
+§ 3. Til tess at virka fyri, at stuðulin verður gagnnýttur til fulnar, letur landsstýrismaðurin eftir tilmæli frá Landsverk stuðul til umsóknir, sum lúka treytirnar eftir hesi kunngerð, og sum vegna raðfesting fyrr ikki eru gingnar á møti. Kommunan skal tá vátta, at kommunan framhaldandi stendur við umsóknina.
