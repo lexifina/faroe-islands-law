@@ -1,0 +1,2 @@
+§ 10. Landsstýrismaðurin kann saman við landsstýrismanninum í heilsumálum áseta reglur um upplýsingarvirksemi hjá privatum framleiðarum, eitt nú virkjum, um kost og føðslu.
+Stk. 2. Landsstýrismaðurin kann áseta reglur um, at matvørur skulu vera merktar á tann hátt, at føðsluvirðið er tilskilað, eitt nú um, hvussu føðsluvirðið skal vera tilskilað á pakkitilfari, í lýsingum o.tíl. § 19 verður at nýta samsvarandi fyri føðslulýsingar.

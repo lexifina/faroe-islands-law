@@ -1,0 +1,1 @@
+§ 27. Landsstýrismaðurin kann áseta reglur um, at løggild ella skrásett matvøruvirki, sbr. § 26, stk. 1, ikki kunnu byrja at flyta matvørur inn í landið ella út úr landinum, fyrr enn hetta virksemið er skrásett.

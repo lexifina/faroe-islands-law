@@ -1,0 +1,2 @@
+§ 33. [^2] Tilvirkan av matvørum úr góðkendum føroyskum og útlendskum rávørum frá mjólkaúrdrátti og svínakjøti kann, hóast ásetingina í § 26, fara fram til sølu beinleiðis ella umvegis heilsølu ella smásølu til endaliga brúkaran á heimamarknaðinum eftir reglum, sum landsstýrismaðurin ásetur.
+Stk. 2. [^2] Loyvi at selja matvørur sambært stk. 1 er treytað av, at árligi umsetningur framleiðarans er niðan fyri eitt av landsstýrismanninum ásett mark, sum í mesta lagi kann vera 1 mió. kr.

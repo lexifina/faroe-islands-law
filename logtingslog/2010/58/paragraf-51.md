@@ -1,0 +1,2 @@
+§ 51. Eftirlitsmyndugleikin og persónar, sum hava serstaka heimild til hetta, hava nær sum helst móti hóskandi samleikaváttan og uttan rættarúrskurð atgongd at almennari og privatari ogn, økjum, flutningsførum, handilsbókum og skjølum v.m., eitt nú eisini tilfari, ið verður goymt elektroniskt, fyri at fáa til vega upplýsingar at nýta til at loysa uppgávur sambært matvørulóggávuni.
+Stk. 2. Um neyðugt veitir løgreglan hjálp í hesum sambandi.

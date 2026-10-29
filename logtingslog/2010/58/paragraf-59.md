@@ -1,0 +1,3 @@
+§ 59. Verður eitt brot ikki mett at hava við sær harðari revsing enn bót, kann Heilsufrøðiliga Starvsstovan boða frá, at málið kann verða gjørt av uttan rættarsókn, um tann, sum hevur framt brotið, játtar seg sekan í brotinum og váttar at vera til reiðar innan eina nærri ásetta freist, ið eftir umsókn kann verða longd, at rinda eina í fráboðanini ásetta bót.
+Stk. 2. Viðvíkjandi teirri í stk. 1 nevndu fráboðan verða reglurnar í rættargangslógini um krøv til ákærurit og um ikki at hava skyldu til at taka til orða at nýta samsvarandi.
+Stk. 3. Verður bótin goldin rættstundis, ella verður hon, eftir at tikið er við bótini, heintað inn ella goldin, fellur onnur rættarsókn burtur.

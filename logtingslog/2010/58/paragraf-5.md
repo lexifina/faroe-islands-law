@@ -1,0 +1,2 @@
+§ 5. Landsstýrismaðurin kann áseta reglur um at nýta ávísar lutir ella mannagongdir, tá ið matvørur verða viðgjørdar, eitt nú ílegutøkni, geislaniðursjóðing og aðrar niðursjóðingar- ella viðgerðarhættir.
+Stk. 2. Landsstýrismaðurin kann áseta reglur um, at matvørur ella tilfar, sum annaðhvørt ikki higartil hevur verið mett sum matvøra, ella sum eru framleidd við at nýta tøkni, ið ikki higartil hevur verið nýtt til endamálið, skal góðkennast innan nýtslu ella marknaðarføring.

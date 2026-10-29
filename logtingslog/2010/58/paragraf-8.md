@@ -1,0 +1,2 @@
+§ 8. Landsstýrismaðurin kann áseta reglur um, at nærri tilskilaðir bólkar av viðbótarevnum og angevnum kunnu verða nýttir eftir, at ein av landsstýrismanninum ásett freist upp á upp til 6 mánaðir eftir fráboðan til landsstýrismannin er úti. Áðrenn freistin er úti, kann landsstýrismaðurin seta forboð fyri fráboðaðu nýtsluni av evninum.
+Stk. 2. Landsstýrismaðurin kann áseta reglur um at nýta angevni og tøknilig hjálparevni og um, at matvørur ella evni, ið verða nýtt til tilvirking av matvørum, skulu hava sporingarevni sum viðbót.

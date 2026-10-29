@@ -1,0 +1,6 @@
+§ 50. Landsstýrismaðurin ella tann myndugleiki, sum hann sambært kunngerð hevur heimilað, tekur tær avgerðir, ið verða mettar neyðugar til at tryggja, at tey krøv, ið eru ásett í matvørulóggávuni ella í reglum, givnar við heimild í lógini, verða hildin.
+Stk. 2. Landsstýrismaðurin ella tann myndugleiki, sum hann sambært kunngerð hevur heimilað, kann gera av, at tey sambært stk. 1 framdu tiltøk skulu fremjast fyri rokning virkisins.
+Stk. 3. Um forboð ella boð, givin eftir stk. 1, ikki verða fylgd, kann landsstýrismaðurin ella tann myndugleiki, sum hann sambært kunngerð hevur heimilað, seta bann fyri framhaldandi rakstri og møguliga taka løggildingina ella skrásetingina frá virkjum, sum 8. kap. í lógini fevnir um. Um ikki annað er fráboðað í avgerðini, hevur frátøkan virknað frá fráboðan til virkið.
+Stk. 4. Tann, sum ein avgerð sambært stk. 3 viðvíkur, kann krevja, at hon verður løgd fyri rættin.
+Stk. 5. Áheitan um hetta skal setast fram innan 4 vikur eftir, at viðkomandi hevur fingið boð um avgerðina, ið skal upplýsa rættin at krevja rættarroynd og um freistina fyri tí. Umsitingarligi myndugleikin leggur sakarmál móti viðkomandi eftir reglunum í rættargangslógini um borgarligan rættargang.
+Stk. 6. Rætturin kann við úrskurði gera av, at sakarmál er steðgandi.

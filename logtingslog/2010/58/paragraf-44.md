@@ -1,0 +1,1 @@
+§ 44. Landsstýrismaðurin kann áseta reglur um, at ávís smásøluvirki, ið sum liður í ósjálvsøknum sosialum arbeiði, framleiða ella selja matvørur uttan vinnuligan vinning fyri eyga og uttan kappingarligan týdning í mun til onnur virki, heilt ella lutvíst kunnu sleppa undan gjøldum, ið § 43 fevnir um.

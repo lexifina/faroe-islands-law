@@ -1,0 +1,4 @@
+§ 29. Landsstýrismaðurin kann í teimum sambært § 26 ásettu reglunum áseta, at løggilding ella skráseting verður tikin aftur, um virkið ikki lýkur settu krøvini, ella um fortreytirnar fyri løggildingini ella skrásetingini broytast munandi. Um ikki annað er fráboðað í avgerðini, hevur afturtøkan virknað frá fráboðan til virkið.
+Stk. 2. Tann, sum ein avgerð sambært stk. 1 viðvíkur, kann krevja, at avgerðin verður løgd fyri rættin.
+Stk. 3. Áheitan um hetta skal vera sett fram innan 4 vikur eftir, at viðkomandi hevur fingið boð um avgerðina við upplýsing um, at kravt kann verða, at málið verður lagt fyri rættin, og um freistina fyri hesum. Umsitingarmyndugleikin leggur sakarmál móti viðkomandi eftir reglunum í rættargangslógini um borgarligan rættargang.
+Stk. 4. Rætturin kann við úrskurði gera av, at sakarmál er steðgandi.
