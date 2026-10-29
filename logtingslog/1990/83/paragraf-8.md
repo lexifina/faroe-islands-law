@@ -1,0 +1,1 @@
+§ 8. Henda lóg kemur í gildi dagin eftir, at hon er kunngjørd, og samstundis fara úr gildi løgtingslógirnar nr. 15 frá 31. mars 1966, nr. 40 frá 20. mai 1981, nr. 44 frá 21. mai 1981, nr. 63 frá 2. oktober 1981 og nr. 67 frá 2. oktober 1981.

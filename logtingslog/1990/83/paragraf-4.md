@@ -1,0 +1,2 @@
+§ 4. [^2] Heimilað verður eisini landsstýrinum at veita upp til 12% í studningi av metingarvirðinum. Studningurin verður goldin í eins stórum gjøldum yvir 3 ár.
+Stk. 2. Heimilað verður landsstýrinum at veita upp til 6% í studningi til felag, ið umbyggir farmaskip á føroyskari skipasmiðju. Studningurin verður roknaður av umbyggingarvirðinum eftir meting treytað av, at virðið av umbyggingini verður 8 mió kr. ella meira.
