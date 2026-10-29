@@ -1,0 +1,1 @@
+§ 24. Metir góðskueftirlitsfólkið, at góðskueftirlitið ikki kann verða gjørt ella er sera trupult at gera, skal eftirlitsfólkið beinanvegin geva Grannskoðaraeftirlitinum boð um hetta. Eftirlitið ger tá eina nærri kanning og meting av málinum og upplýsir grannskoðanarvirkinum um møguligar avleiðingar av, at eftirlitið ikki verður gjørt.

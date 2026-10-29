@@ -1,0 +1,1 @@
+§ 16. Hevur Grannskoðaraeftirlitið ikki skrásett váttanina frá góðskueftirlitsfólkinum sbrt. § 15, stk. 1, 1. pkt., ella góðkent upplýsingarnar sbrt. § 15, stk. 1, nr. 1-13, ella eru aðrar serligar umstøður, kann eftirlitið útnevna eitt annað eftirlitsfólk til at gera góðskueftirlitið.

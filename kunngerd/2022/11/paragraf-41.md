@@ -1,0 +1,1 @@
+§ 41. Góðskueftirlitsfólkini fráboða skjótast gjørligt og í seinasta lagi tann 15. november í eftirlitsárinum góðskueftirlitsvitjanina á ikki-PIE grannskoðanarvirkjum til Grannskoðaraeftirlitið. Tá tað er ásett í leiðreglunum hjá Grannskoðaraeftirlitinum, skal góðskueftirlitsfólkið leggja síni arbeiðsskjøl við, sbr. § 45. Kapittul 7 er galdandi við teimum neyðugu tillagingunum.

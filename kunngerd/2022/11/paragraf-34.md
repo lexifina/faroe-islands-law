@@ -1,0 +1,1 @@
+§ 34. Í sambandi við góðskueftirlit, sum sbrt. § 8 er skipað eftir evni, ger Grannskoðaraeftirlitið eina heildarfrágreiðing um góðskueftirlitið. Í frágreiðingini eru øll úrslitini av góðskueftirlitinum gjørd upp í hagfrøðiligum líki.

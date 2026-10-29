@@ -1,0 +1,1 @@
+§ 48. Grannskoðaraeftirlitið ansar eftir, at góðskueftirlitsfólkið ger góðskueftirlitið í samsvari við løgtingslógina og reglum, ásettar við heimild í løgtingslógini og sambært leiðreglum, sum Grannskoðaraeftirlitið hevur ásett sbrt. § 45.

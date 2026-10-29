@@ -1,0 +1,1 @@
+§ 28. Eftirlitið við váttanaruppgávum fevnir um, hvussu grannskoðarin hevur lagt til rættis, fyrireikað og framt uppgávuna, niðurstøðuna í uppgávuni og um ta givnu váttanina. Eftirlitið tekur støði í teimum økjum, sum grannskoðarin metir hava størst týdning og váða, og á tað týdningastig, sum grannskoðarin hevur ásett.

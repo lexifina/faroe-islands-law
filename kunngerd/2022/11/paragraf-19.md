@@ -1,0 +1,4 @@
+§ 19. Góðskueftirlitsfólk, ið starvast í Erhvervsstyrelsen, kunnu gera góðskueftirlitið, sbrt. § 33, stk. 5, 4. pkt. í løgtingslógini. Grannskoðaraeftirlitið kann tilnevna aðrar persónar sum góðskueftirlitsfólk at kanna PIE grannskoðanarvirkir, sbrt. § 33, stk. 5 í løgtingslógini.
+Stk. 2. Eftirlitsfólkið skal hava hóskandi yrkisligan førleika og viðkomandi royndir innan grannskoðan og roknskaparframløgu og hava neyðugt innlit í góðskueftirlit.
+Stk. 3. Eftirlitsfólkið skal vera óheft av viðkomandi grannskoðanarvirki og teimum grannskoðarum, sum eru knýttir at grannskoðanarvirkinum, sbr. meginreglurnar í kapitli 4 í løgtingslógini og reglur settar í gildi við heimild í ásetingini.
+Stk. 4. Eitt góðskueftirlitsfólk kann ikki gera eftirlit á einum virki, áðrenn 3 ár eru liðin frá tí, at viðkomandi er hildin uppat at vera partnari, starvssettur ella annan hátt knýttur at virkinum.

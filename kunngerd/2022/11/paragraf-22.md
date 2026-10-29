@@ -1,0 +1,2 @@
+§ 22. Grannskoðanarvirkið og teir grannskoðarar, sum eru knýttir at virkinum, skulu aktivt viðvirka til, at grannskoðaraeftirlitið verður gjøgnumført.
+Stk. 2. Grannskoðanarvirkið og teir grannskoðarar, sum eru knýttir at virkinum, skulu geva Grannskoðaraeftirlitinum og góðskueftirlitsfólkinum atgongd til at gera tær kanningar, ið verða mettar neyðugar, og skal síggja til, at eftirlitið og eftirlitsfólkið fær tær upplýsingar og ta hjálp, sum tey meta neyðuga fyri at gera eftirlitið, sbr. § 27, stk. 4 í løgtingslógini.

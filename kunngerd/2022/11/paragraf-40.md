@@ -1,0 +1,1 @@
+§ 40. Tá góðskueftirlit heldur fram verður tað kannað, um grannskoðanarvirkið hevur fylgt tilmælunum frá Grannskoðaraeftirlitinum í sambandi við góðskueftirlitið, sum førdi til framhaldandi góðskueftirlit. Góðskueftirlitsvitjanin tekur útgangsstøði í góðkendu virkisætlanini hjá Grannskoðaraeftirlitinum. Kapittul 5 og 6 eru galdandi við teimum neyðugu tillagingunum.

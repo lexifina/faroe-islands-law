@@ -1,0 +1,1 @@
+§ 51. Grannskoðaraeftirlitið kann taka avgerð um at víkja frá tíðarfreistunum í § 4, stk. 2, § 6, § 9, stk. 1, § 14, stk. 1, § 15, stk. 3, § 18, stk. 2, § 20, § 29, stk. 4, § 37, § 41, § 43, stk. 1, 2 og 4 og § 44, stk. 1.

@@ -1,0 +1,2 @@
+§ 23. Tá eftirlit er við einari váttanaruppgávu, har grannskoðarin, sum skrivaði undir, ikki longur er knýttur at einum grannskoðanarvirki, skal góðskueftirlitfólkið seta seg í samband við grannskoðaran soleiðis, at grannskoðarin fær møguleika til at vera til staðar, meðan váttanaruppgávan verður kannað.
+Stk. 2. Grannskoðanarvirkið skal síggja til, at ein grannskoðari, sum ikki er knýttur at grannskoðanarvirkinum longur, hevur atgongd til skjalprógvini fyri ta kannaðu váttanaruppgávuna.

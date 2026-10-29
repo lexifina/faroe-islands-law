@@ -1,0 +1,1 @@
+§ 13. Grannskoðaraeftirlitið hevur ikki skyldu til at býta eftirlitsmálini javnt millum eftirlitsfólkini, eins og eftirlitið ikki kann veita vissu fyri einum minsta tali av málum, ella at øll eftirlitsfólkini fáa mál til viðgerðar.

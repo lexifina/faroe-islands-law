@@ -1,0 +1,2 @@
+§ 6. Grannskoðanarvirkir, sum eru úttikin til góðskueftirlit, skulu helst hava boð innan tann 1. mars og í seinasta lagi tann 1. juni um, at tey í tí árinum skulu undir góðskueftirlit.
+Stk. 2. Grannskoðaraeftirlitið kann taka avgerð um at útseta eftirlitið á einum virki, um serligar umstøður eru til staðar, sbr. tó § 4, stk. 1, umframt artikkul 26, nr. 2 í skjali 1 í løgtingslóg um serligar treytir fyri lógarálagdari grannskoðan av fyritøkum av almennum áhuga.

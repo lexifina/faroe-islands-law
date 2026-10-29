@@ -1,0 +1,4 @@
+§ 27. Góðskueftirlitið, sbrt. § 26, skal bæði fevna um tær alment galdandi mannagongdirnar í grannskoðanarvirkinum og eitt eftirlit, har stakroyndir verða gjørdar av nóg nógvum váttanaruppgávum, so góðskueftirlitsfólkið er sannført um, at góðskustýringsskipanin verður nýtt til allar váttanaruppgávurnar.
+Stk. 2. Stakroyndir av ávísum váttanaruppgávum skulu gerast við útgangsstøði í einari váðameting, heruppií slag og stødd av váttanaruppgávunum í grannskoðanarvirkinum.
+Stk. 3. Stakroyndirnar skulu í vavi hóska til talið av váttanum sbrt. § 1, stk. 2, sum grannskoðanarvirkið hevur givið.
+Stk. 4. Grannskoðaraeftirlitið kann áðrenn góðskueftirlitsvitjanina, undir góðskueftirlitsvitjanini og eftir góðskueftirlitsvitjanina biðja góðskueftirlitsfólkið um at víðka vavið á stakroyndini ella at velja ávísar váttanaruppgávur, grannskoðarar ella skrivstovur til eftirlit.

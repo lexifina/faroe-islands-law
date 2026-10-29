@@ -1,0 +1,1 @@
+§ 10. Tá Grannskoðaraeftirlitið metir tað neyðugt, kann eftirlitið útnevna meira enn eitt góðskueftirlitsfólk at gera góðskueftirlit á einum ítøkiligum grannskoðanarvirki ella í einum netverki av grannskoðanarvirkjum.
