@@ -1,0 +1,3 @@
+§ 3. Trygdin skal veitast fyri krøvum, ið viðvíkja viðurskiftum frá tí degi at rokna, at trygdin fær gildi, og til trygdin fer úr gildi.
+Stk. 2. Trygdin kann ikki fara úr gildi, fyrr enn tað er skrásett hjá Skráseting Føroya. Skrásetingin verður gjørd eftir áheitan frá tí, ið hevur veitt trygdina, og hevur virknað frá einum ávísum degi, tó í fyrsta lagi ein mánað eftir, at Skráseting Føroya hevur móttikið áheitanina. Um áheitanin er grundað á svik frá løggilda ella skrásetta grannskoðaranum, kann tann, ið hevur veitt trygdina, krevja, at trygdin verður sett úr gildi dagin eftir, at Skráseting Føroya hevur fingið áheitanina.
+Stk. 3. Áheitanin um skráseting sbrt. stk. 2 verður gjørd eftir leisti, sum Skráseting Føroya ásetur.

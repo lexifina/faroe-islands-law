@@ -1,0 +1,3 @@
+§ 7. Tann, sum veitir trygdina, skal vera eitt tryggingarfelag, ein peningastovnur ella annar fíggingarstovnur, hvørs trygd hevur við sær eins góða trygd.
+Stk. 2. Tryggingarviðurskiftini verða regulerað í føroyskari lóggávu. Rættarmál viðvíkjandi trygdini skulu leggjast fyri Føroya Rætt.
+Stk. 3. Um trygdin fyri tann einstaka grannskoðaran er stovnsett sum ein liður í einari heildarskipan galdandi fyri fleiri grannskoðarar, kann tann, ið veitir trygdina, vera ein sjálvstøðugur grunnur ella felag. Hetta er tó treytað av, at tilsøgnin frá grunninum ella felagnum er so mikið greið, at Skráseting Føroya út frá einari ítøkiligari meting metur, at grunnurin ella felagið til eina og hvørja tíð setur tilsvarandi trygd sum eftir stk. 1.

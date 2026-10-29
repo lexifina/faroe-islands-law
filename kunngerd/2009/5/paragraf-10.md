@@ -1,0 +1,2 @@
+§ 10. Ein ábyrgdartrygging kann bert verða sett úr gildi, tá hetta er skrásett hjá Skráseting Føroya. Skrásetingin fer fram eftir áheitan frá tryggingarfelagnum við virknaði frá einum ávísum degi, tó í fyrsta lagi ein mánað eftir, at Skráseting Føroya hevur móttikið áheitanina.
+Stk. 2. Áheitanin um skráseting sambært stk. 1 verður gjørd eftir leisti, sum Skráseting Føroya ásetur.

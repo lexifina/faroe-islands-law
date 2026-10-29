@@ -1,0 +1,2 @@
+§ 5. Trygdin kann tíðaravmarkast, soleiðis at hon bert er galdandi fyri krøv, sum verða reist ímóti tí, ið hevur veitt trygdina í seinasta lagi 5 ár eftir, at uppgávan ella viðurskiftini, sum kravið er grundað á, er endað.
+Stk. 2. Freistin í stk. 1 verður frestað, um tryggjaði førir rættarsókn mótvegis grannskoðaranum, undir hesum tá klaga er latin Dissiplinernevndini fyri løggildar og skrásettar grannskoðarar.

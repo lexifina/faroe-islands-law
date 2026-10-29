@@ -1,0 +1,1 @@
+§ 2. Tryggjaði skal sambært innihaldinum í trygdini, smb. § 1, stk. 1, hava beinleiðis krav mótvegis tí, ið hevur veitt trygdina, og kann trygdin ikki avmarkast á annan hátt enn ásett er í hesi kunngerð.
