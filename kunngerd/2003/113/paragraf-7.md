@@ -1,0 +1,1 @@
+§ 7. Í fláum, har metast skal um kolvetnis- og framleiðsluvánir, skulu myndanarmátingar gerast við atliti at trýstfalli og slag av løgi, og royndarløgir skulu takast til greiningar og avlopsløgur skal goymast.
