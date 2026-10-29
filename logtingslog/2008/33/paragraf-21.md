@@ -1,0 +1,1 @@
+§ 21. Verður motorakfar, sum er útflutt og hevur fingið afturgoldið virðisgjaldið og burturbeiningargjaldið, flutt inn aftur til Føroyar, skal eigarin gjalda virðisgjaldið og burturbeiningargjaldið aftur í landskassan, sum varð afturgoldið, tá motorakfarið varð flutt av landinum.
