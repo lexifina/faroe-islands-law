@@ -1,0 +1,1 @@
+§ 4. Toll- og Skattstova Føroya kann loyva, at upplýsingar til skráseting av útflutningi av vørum verða latnir elektroniskt, eins og Toll- og Skattstova Føroya kann gera undantak til skylduna at lata upplýsingar.
