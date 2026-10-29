@@ -1,0 +1,2 @@
+§ 16. Treytin fyri, at ph.d.-ritgerðin kann góðkennast til metingar og almenna verju fyri ph.d.-heitið, er, at allir partar í ph.d.-útbúgvingini eru avrikaðir á nøktandi hátt, sbr. § 8, stk. 1.
+Stk. 2. Ritgerðir ella partar av ritgerðum, sum áður hava verið próvdómdir, kunnu ikki verða tiknir við í metingina. Dátur, greiningar og háttaløg í ritgerðum, sum tann ph.d.-lesandi áður hevur nýtt, kunnu kortini vera støði undir ph.d.-lestrinum. Høvuðsvegleiðarin kannar og tekur avgerð um nevndu viðurskifti.

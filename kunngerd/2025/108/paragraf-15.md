@@ -1,0 +1,4 @@
+§ 15. Í seinasta lagi eina viku eftir innlating av ph.d.-ritgerðini letur høvuðsvegleiðarin Ph.d.-skúlanum eina frágreiðing um, hvørt tann ph.d.-lesandi á nøktandi hátt hevur avrikað ph.d.-útbúgvingina sbr. § 8, stk. 1.
+Stk. 2. Um frágreiðingin sigur, at tann ph.d.-lesandi ikki hevur avrikað útbúgvingina á nøktandi hátt, skal tann ph.d.-lesandi fáa høvi til at koma við viðmerkingum til frágreiðingina frá høvuðsvegleiðaranum. Freistin skal í minsta lagi vera lagi tvær vikur.
+Stk. 3. Ph.d.-nevndin metir við støði í frágreiðingini frá høvuðsvegleiðaranum, sbr. stk. 1, møguligu viðmerkingunum frá tí ph.d.-lesandi, sbr. stk. 2, og eftirmetingunum sbr. § 12, um tann ph.d.-lesandi hevur avrikað sína ph.d.-útbúgving á nøktandi hátt.
+Stk. 4. Tá ph.d.-ritgerðin er latin inn, endar innskrivingin hjá tí ph.d.-lesandi.

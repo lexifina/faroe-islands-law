@@ -1,0 +1,3 @@
+§ 21. Ph.d.-skúlin skipar fyri og ásetir, nær og hvar almenna verjan fer fram. Ph.d.-skúlin tryggjar eisini, at áhugað fáa kunnað seg við ritgerðina í rímiligari tíð undan verjuni. Ritgerðin verður vard í fyrsta lagi tvær vikur og í seinasta lagi tríggjar mánaðir eftir, at ritgerðin er góðkend til almenna verju.
+Stk. 2. Forfólkið í próvnevndini leiðir sjálva verjuna. Próvnevndin ger sjálv av, hvørjir próvnevndarlimir skulu andmæla. Tann ph.d.-lesandi skal hava høvi til at greiða frá arbeiði sínum áðrenn próvnevndin hoyrir tann ph.d.-lesandi.
+Stk. 3. Ph.d.-verjan eigur í mesta lagi at vara 3½ tíma eftir nærri ásetingum frá Ph.d.-skúlanum.

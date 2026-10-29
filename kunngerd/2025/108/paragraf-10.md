@@ -1,0 +1,1 @@
+§ 10. Ph.d.-nevndin kann eftir umsókn játta at taka ímóti ph.d.-ritgerð til próvdømingar, hóast umsøkjarin ikki hevur verið innskrivaður á Fróðskaparsetur Føroya. Umsøkjari skal tá skjalprógva, at hann lýkur § 6, stk. 1, og at hann hevur ognað sær kunnleika sbr. § 8, stk. 1, nr. 1-5. Ph.d.-skúlin ásetur nærri reglur hesum viðvíkjandi.
