@@ -1,0 +1,2 @@
+§ 2. Reiðarin ella arbeiðsgevarin rindar endurgjald til starvsfólkini fyri tap ella skaða á teirra ognarlutir umborð. Í teimum førum, har reiðarin er ein annar enn arbeiðsgevarin, er skyldan at rinda endurgjald somuleiðis hjá reiðaranum. Skaðin á ognarlutirnar skal vera ein avleiðing av skipbroti, sjóráni, eldsbruna ella øðrum skaða á skipið.
+Stk. 2. Er starvsetti deyður, tá endurgjaldið verður útgoldið, fellur peningaupphæddin til búgvið ella til arvingarnar.

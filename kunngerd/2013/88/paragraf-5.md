@@ -1,0 +1,1 @@
+§ 5. Kann tað prógvast, at ein starvsettur hevur mist burtur bøkur, farteldu, amboð ella líknandi, sum viðkomandi hevur havt við sær umborð til brúk í tænastuni, hevur viðkomandi rætt til serligt endurgjald. Uttan so, at annað er avtalað, verður endurgjaldsupphæddin roknað út útfrá útveganarvirðinum, tá ið upphæddin verður útgoldin.

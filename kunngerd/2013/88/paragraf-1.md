@@ -1,0 +1,2 @@
+§ 1. Kunngerðin er galdandi fyri starvsett umborð á skipi, sbr. § 1, stk. 1 og § 47 í løgtingslóg um starvsviðurskifti v.m. hjá sjófólki, uttan mun til nýtsluna av skipinum og sigliøki, tó eru fiskiskip og frítíðarfør undantikin.
+Stk. 2. Er ivi um, hvørt viðkomandi er fevndur av kunngerðini, tekur Sjóvinnustýrið avgerð í málinum aftaná, at málið hevur verið til ummælis hjá viðkomandi feløgum fyri reiðarar og sjófólk.
