@@ -1,0 +1,6 @@
+§ 1. Regionsrådets tilskud til høreapparatbehandling til patienter over 18 år med ukompliceret og ikke svært høretab udgør indtil 4.129 kr. på 1. øre og indtil 2.373 kr. på 2. øre, dog således at tilskuddet ikke kan udgøre mere end de faktiske udgifter, herunder udgifter til høreprøve, høreapparat, tilpasning, service og garanti. Tilskuddet er inklusiv moms.
+Stk. 2. Den del af tilskuddet, som ydes til selve behandlingen, udgør indtil 2.129 kr. til 1. øre og indtil 373 kr. for 2. øre, pris- og lønreguleres årligt pr. 1. januar med den af Finansministeriet fastsatte sats for det generelle pris- og lønindeks og afrundes til nærmeste kronebeløb. Reguleringen foretages første gang den 1. januar 2020.
+Stk. 3. Det påhviler de private leverandører af høreapparatbehandling at udarbejde regningerne for høreapparatbehandling således, at andelen af tilskuddet til henholdsvis apparat og behandling fremgår.
+Stk. 4. Regionsrådet kan træffe afgørelse om udskiftning af bevilget høreapparat uden at indhente yderligere oplysninger.
+Stk. 5. Regionsrådet yder tillige batterier til høreapparatbehandling i medfør af § 1.
+Stk. 6. Høreapparater, hvortil der ydes tilskud i medfør af stk. 1, er ansøgerens ejendom.

@@ -1,0 +1,3 @@
+§ 6. FORCE Teknisk-Audiologisk Laboratorium kan opkræve betaling for godkendelse af private leverandører af høreapparatbehandling efter § 3, stk. 1, og for et årligt tilsyn efter § 5, stk. 1, jf. § 73 g i sundhedsloven.
+Stk. 2. Der kan i 2019 opkræves et grundbeløb på 9.805 kr. eksklusiv moms for godkendelse samt for tilsyn efter stk. 1. Endvidere kan der i 2019 opkræves en timebetaling på 1.154 kr. eksklusiv moms for den tid, der medgår til godkendelsen og tilsynet.
+Stk. 3. De i stk. 2. anførte beløb pris- og lønreguleres årligt pr. 1. januar med den af Finansministeriet fastsatte sats for det generelle pris- og lønindeks og afrundes til nærmeste kronebeløb. Reguleringen foretages første gang den 1. januar 2020.
