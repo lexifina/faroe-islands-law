@@ -1,0 +1,1 @@
+§ 4. Stuðul verður ikki veittur persónum, ið hava rætt til endurgjald á annan hátt fyri ferðaútreiðslur ella útreiðslur í sambandi við dupult húsarhald, eins og ein ikki kann fáa stuðul til ferðaútreiðslur í størri mun enn ásett í § 2 í løgtingslóg um stuðul til ferðaútreiðslur og § 2 í løgtingslóg um stuðul til dupult húsarhald.
