@@ -1,0 +1,1 @@
+§ 6. Skúlavegleiðingin skal ráðgeva og leiðbeina næmingar í sambandi við útbúgvingar- og starvsval teirra og skipa arbeiðið í tráð við læruætlanir og ásetingar, sum hava heimild í § 8, stk. 1 nr. 3 í fólkaskúlalógini í kravda undirvísingarevninum útbúgvingar- og vinnulívskunning.
