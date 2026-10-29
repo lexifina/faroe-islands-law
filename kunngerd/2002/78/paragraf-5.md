@@ -1,0 +1,1 @@
+§ 5. Tá ið starvsfólk verða lærd upp og vegleidd, skal arbeiðsgevarin ansa eftir, at upplæringin fevnir um tær serligu atgerðirnar, ið galda fyri arbeiði uttan fyri øki virkisins, sbr. § 4. Harumframt skulu arbeiðsfólk vegleiðast um, hvussu farast fram, um viðurskifti, ið hava trygdar- og heilsuvanda við sær, eru á arbeiðsplássum, og sum tey ikki sjálv fáa bøtt um.

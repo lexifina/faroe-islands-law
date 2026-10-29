@@ -1,0 +1,1 @@
+§ 3. Skyldur sambært kunngerðini hava arbeiðsgevarar, virkisleiðarar, arbeiðsleiðarar og onnur, sum sett eru í starv, útvegarar, fólk ið projektera, umvæla o.t. sambært vanligu reglunum í kap. 3 í lógini.

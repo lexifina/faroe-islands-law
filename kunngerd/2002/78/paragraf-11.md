@@ -1,0 +1,2 @@
+§ 11. Um ikki ber til at brúka hættirnar í § 10, av tí at arbeiðið t.d. er flutningur ella hevur flutning við sær langar leiðir, ella tað ikki er hóskandi at brúka savningarstað, so skal arbeiðsgevarin tryggja sær, at arbeiðsfólkið hevur atgongd til teir í § 9 kravdu hentleikar á øðrvísi og fulltryggan hátt.
+Stk. 2. Abeiðsfólk mugu ikki verða biðin um at nýta hentleikar í sínum egna bústaði, um arbeiðið er serliga dálkandi og hevur við sær dálkingarvanda av smittandi evnum ella av evnum og tilfari, sum av trygdar- og heilsuávum ikki mega verða spjadd aðrastaðni.
