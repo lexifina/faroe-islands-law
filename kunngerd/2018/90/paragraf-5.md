@@ -1,0 +1,2 @@
+## Álegging um at virka aðrastaðni
+§ 5. Í sambandi við sjúku og sjúkufyribyrgjandi tiltøk, undir hesum fyribyrging og niðurberjing av lús á laksi, kann Landsdjóralæknin áleggja, at fiskur verður virkaður aðrastaðni enn í Suðuroy. Álegging um 1. pkt. kann t.d. verða nýtt í førum, har tað er neyðugt at taka stórar nøgdir innan fyri stutta tíð, og virkir í Suðuroynni ikki hava nóg stóra framleiðsluorku at virka fiskin.
