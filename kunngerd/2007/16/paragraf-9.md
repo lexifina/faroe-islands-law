@@ -1,0 +1,3 @@
+§ 9. Lán sambært § 8, stk. 1 er partvís afturgjaldsskyldugt.
+Stk. 2. Er inntøka umsøkjarans ikki størri enn 3 ferðir grundupphæddina fyri ein stakan fyritíðarpensjónist, rindar umsøkjarin helvtina av láninum aftur við 1/96 um mánaðin. Hin helvtin verður niðurskrivað við 1/96 um mánaðin, frá tí at bilurin er skrásettur.
+Stk. 3. Er inntøka umsøkjarans størri enn 3 ferðir grundupphæddina fyri ein stakan fyritíðarpensionist, verður afturgjaldsskyldugi parturin hækkaður við 20% av tí, sum er yvir 3 ferðir grundupphæddina fyri ein stakan fyritíðarpensjónist. Tann lánsparturin, ið verður niðurskrivaður, verður minkaður samsvarandi.

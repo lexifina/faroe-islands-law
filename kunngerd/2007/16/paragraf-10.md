@@ -1,0 +1,2 @@
+§ 10. Inntøkugrundarlagið sambært § 9, stk. 2 og 3 er skattskylduga inntøkan sambært skattalógini seinasta álíknaða inntøkuár. Skattligir frádráttir verða tó ikki íroknaðir.
+Stk. 2. Er inntøka umsøkjarans, tá lánið skal nýtast, varandi økt við 20% ella varandi minkað við 5% í mun til tað uppgjørda inntøkugrundarlagið í stk. 1, er tað umsøkjarans broyttu fíggjarligu viðurskifti, ið skulu leggjast til grund fyri útrokningina í § 9, stk. 2 og 3. Broytingar í umsøkjarans fíggjarligu viðurskiftum, aftaná at lánið er nýtt, viðføra ikki broytingar í útrokningini.

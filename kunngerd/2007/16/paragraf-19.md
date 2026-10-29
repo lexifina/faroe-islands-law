@@ -1,0 +1,1 @@
+§ 19. [^1] Serligur útbúnaður, ið er settur í bilin sbrt. § 16, er ogn hjá Almannaverkinum, og skal, um hann er egnaður til endurnýtslu, latast aftur til Almannaverkið, um bilurin verður seldur ella burturbeindur.

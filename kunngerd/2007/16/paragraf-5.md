@@ -1,0 +1,1 @@
+§ 5. [^1] Tá ið mett verður um heilsustøðuna hjá umsøkjara, verður støði tikið í frágreiðing frá lækna um niðursetta førleikan, framtíðarútlit viðvíkjandi sjúku ella breki, møguleikum hjá persóni at koma fram, herundir um gangifrástøðu og avmarkaðum flytføri.
