@@ -1,0 +1,1 @@
+§ 6. Trygdin kann avmarkast í mun til ta í § 8 nevndu ábyrgdartrygging soleiðis, at trygdin ikki er galdandi fyri krøv, sum ikki verða rindað av ábyrgdartryggingini, og orsøkin til hetta einans er avmarking í peningaupphæddini í ábyrgdartryggingini.
