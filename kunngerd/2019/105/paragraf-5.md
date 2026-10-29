@@ -1,0 +1,1 @@
+§ 5. Kommunur ella aðrir myndugleikar, ið hava heimild at áseta nærri reglur um sigling á sjógvi ella á vøtnum í sínum øki, kunnu søkja Sjóvinnustýrið um, at ávíst øki í kommununi verður undantikið krøvunum í hesi kunngerð í ávíst tíðarskeið.

@@ -1,0 +1,1 @@
+§ 3. Førari av fari, fevnt av § 1, skal undir siglingini hava við sær skjalprógv fyri, at krøvini í § 2 eru lokin. Skjalprógvið skal verða víst Sjóvinnustýrinum, løgregluni ella øðrum eftirlitsmyndugleika, tá biðið verður um tað.
