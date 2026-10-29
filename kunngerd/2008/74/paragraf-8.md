@@ -1,0 +1,3 @@
+§ 8. TAKS kann nokta ella taka aftur loyvi til at seta á stovn tollfríar sølubúðir á flogvøllinum, um loyvishavarin ella starvsfólk hansara hevur brotið ella brýtur hesa kunngerð ella treytirnar fyri loyvinum til at seta á stovn tollfríar sølubúðir.
+Stk. 2. TAKS kann nokta ella taka aftur loyvi til at seta á stovn tollfríar sølubúðir, um loyvishavarin missir ognar- og ella brúksrættin til sølubúð, ella kemur í gjaldssteðg.
+Stk. 3. Í førum, har loyvi verður tikið aftur ella fellur burtur, skulu vørurnar, ið loyvishavarin hevur á goymslu tollavgreiðast beinanvegin, endurútflytast, ella við loyvi frá TAKS seljast øðrum, ella burturbeinast undir tolleftirliti.
