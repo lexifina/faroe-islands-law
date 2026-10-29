@@ -1,0 +1,1 @@
+§ 6. Apoteksverkið ger upp kredittin fyri egingjaldið í sambandi við keyp av tilskotsheimilaðum heilivági og inngjøldini hjá heilivágsbrúkara við endanum av hvørjum tilskotsári ella í sambandi við, at heilivágsbrúkari sigur upp avtaluna við Apoteksverkið, sbr. § 5, og sendir heilivágsbrúkara uppgerðina.
