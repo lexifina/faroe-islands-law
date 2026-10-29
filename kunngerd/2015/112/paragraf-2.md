@@ -1,0 +1,1 @@
+§ 2. Kann bilasøla, innflytari ella eigari ikki útvega Akstovuni upprunavirðið frá framleiðara, skal upprunavirðið ístaðin gerast upp, grundað á listaprís uttan avgjøld, við allari eykaútgerð frá einum av framleiðaranum góðkendum umboði.

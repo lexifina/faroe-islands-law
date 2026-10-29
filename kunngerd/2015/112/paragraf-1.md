@@ -1,0 +1,1 @@
+§ 1. Bilasøla, innflytari ella eigari hevur skyldu at útvega Akstovuni skjalprógv fyri upprunavirðinum á motorakfarinum upp á skrokknummar við upprunaligum faktura ella líknandi váttan frá framleiðara.

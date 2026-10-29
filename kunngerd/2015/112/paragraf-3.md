@@ -1,0 +1,1 @@
+§ 3. Góðkend umboð sambært § 2 eru søluumboð, sum hava sáttmála við framleiðaran ella høvuðsumboð av viðkomandi merki, ella góðkendur serviceverkstaður, sum hevur garantiskyldur og serviceskyldur fyri viðkomandi merki mótvegis framleiðaranum ella einum av framleiðaranum góðkendum høvuðsumboði.
