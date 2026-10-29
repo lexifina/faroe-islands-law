@@ -1,0 +1,1 @@
+§ 9. [^1] Verður íbúð í bygningi, sum er í gerð, avhend, skal avhendarin, áðrenn avtala verður gjørd, gera tann, ið tekur við, kunnugan við kostnaðarætlan um byggingina, ætlan um ta endaligu fíggjanina av bygninginum og íbúðini og rakstrarútreiðslurnar.

@@ -1,0 +1,1 @@
+§ 7. [^1] Greiniligari fyriskipan um leiðslu av eigarafelagnum, roknskaparførslu, grannskoðan o.a. verður ásett av landsstýrismanninum í kunngerð, sum er galdandi, um ikki annað er samtykt og tinglýst.

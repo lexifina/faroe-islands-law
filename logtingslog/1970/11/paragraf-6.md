@@ -1,0 +1,2 @@
+§ 6. [^1] Felags útreiðslur, herí roknaðar útreiðslur viðvíkjandi grundini, gjøld til vegir og rennur, tryggingargjøld og útreiðslur til fyrisiting og viðlíkahald av felags lutum og tilhoyri, gjøld til møguligan stovngrunn o.tíl. verða at gjalda av eigaranum í sama lutfalli sum nevnt í § 2, stk. 1.
+Stk. 2. [^1] Ger eigari tiltøk í íbúð síni, sum vaksa um tær útreiðslur, ið nevndar eru í stk. 1, skal eigarin gjalda eykakostnaðin.
