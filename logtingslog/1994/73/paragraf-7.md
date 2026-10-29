@@ -1,0 +1,1 @@
+§ 7. Henda lóg fær gildi 1. juli 1994. Samstundis fer úr gildi løgtingslóg nr. 79 frá 27. juli 1989 um forboð móti innflutningi og sølu av øli, mineralvatni o.ø. lidnum leskidrykkjum í dósum og eingangsfløskum.

@@ -1,0 +1,2 @@
+§ 5. [^1] Framleiðarar, innflytarar og seljarar av teimum í § 1 nevndu drykkjuvørum og íløtum kunnu samskipa og samstarva við annan part um umsitingina av panti, innsavning og avhendan av tómum íløtum.
+Stk. 2. [^1] Samskipan og samstarv eftir stk. 1 er treytað av loyvi frá landsstýrismanninum. Loyvið kann einans verða givið, um mett verður, at møguleikin at fáa tómu íløtini til høldar ikki versnar.
