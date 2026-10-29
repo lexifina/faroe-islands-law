@@ -1,0 +1,1 @@
+§ 7. Hevur arvaleggjari ella gávugevari gilt avgjørt, at ogn, sum er bundin fyri ein ómyndugan, skal flytast til umsiting í umsitingardeild, tá kontuhavin gerst myndugur, verður ognin flutt til ávísta umsitingarstaðið.

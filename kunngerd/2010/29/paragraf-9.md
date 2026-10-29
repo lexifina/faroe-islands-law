@@ -1,0 +1,1 @@
+§ 9. Við flyting av rentunjótingarogn, har gevarin eigur rentunjótingina, verður avgerðin tikin av verjanum hjá tí ómynduga ognaranum og rentunjótaranum ella verjanum hjá tí ómynduga rentunjótaranum í felag. Tað sama er galdandi í teimum førum, tá rentunjótingarrætturin er ásettur í testamenti, sum er gjørt av rentunjótaranum og arvaleggjaranum í felag.

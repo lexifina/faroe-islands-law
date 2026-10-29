@@ -1,0 +1,1 @@
+§ 14. Skulu fleiri avgera komandi umsitingarstaðin fyri einari ogn, verður ognin flutt sambært teimum áheitanum, sum lúka treytirnar, meðan tað verður sæð burtur frá førum, sum eru fevnd av § 13, stk. 1.

@@ -1,0 +1,1 @@
+§ 2. Ogn hjá ómyndugum, sum ikki er størri enn 75.000 kr., verður útflýggjað verjanum at umsita. Er ognin heilt ella partvíst fíggjarkrav mótvegis verjanum, verður ognin tó flutt til eina umsitingardeild.
