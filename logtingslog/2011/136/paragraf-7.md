@@ -1,0 +1,4 @@
+## Serlig ráðgevaraáhugamál
+§ 7. Hevur ráðgevin serlig fíggjarlig ella persónlig áhugamál í vali brúkarans av fígging, trygging ella av øðrum veitingum, sum eru knýttar at keypi og sølu av fastogn, skal ráðgevin kunna brúkaran um hesi viðurskifti.
+Stk. 2. Fær ráðgevin provisión, avsláttur ella annað viðurgjald fyri ognarmiðlanina ella fyri útvegan av fígging, trygging, lýsingum ella øðrum veitingum í sambandi við keyp og sølu av fastogn, skal ráðgevin kunna brúkaran um, hvaðani hetta viðurgjald kemur. Ráðgevin skal harumframt kunna brúkaran um møguleikan at fáa upplýst støddina á provisión, avslátri ella øðrum viðurgjaldi og skal, eftir umbøn, upplýsa hetta. Upplýsingarnar skulu vera skrivligar og skulu latast brúkaranum samstundis, sum brúkarin verður kunnaður um tær treytir ella tey viðurskifti, sum ráðgevin hevur serligan áhuga í, sbr. stk. 1.
+Stk. 3. Landsstýrismaðurin kann áseta serligar reglur um upplýsingarskylduna eftir stk. 1 og 2.

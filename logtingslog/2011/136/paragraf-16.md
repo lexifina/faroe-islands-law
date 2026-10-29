@@ -1,0 +1,5 @@
+## Brúkaraleiðbeinandi ráðgeving
+§ 16. Ráðgevingin hjá ognarmiðlara skal lúka tey krøv, ið verða sett sakkønari ognarmiðlan, sum einans er treytað av áhugamálum og viðurskiftum partanna.
+Stk. 2. Ein ognarmiðlari skal upplýsa báðum pørtum um eitt og hvørt fíggarligt ella persónligt áhugamál, sum ognarmiðlarin hevur í, at handilin verður framdur, ella í vali partanna av fígging, trygging ella í øðrum veitingum, sum eru knýttar at keypi og sølu av fastogn. Ognarmiðlarin skal geva tí, sum hevur sett fyrisetningin upplýsingar um hetta í avtaluni um fyrisetningin. Ognarmiðlarin skal geva hinum partinum skrivliga upplýsing um hetta samstundis, sum hesin parturin verður kunnaður um tær treytir ella tey viðurskifti, sum ognarmiðlarin hevur serligan áhuga í. Ein ognarmiðlari, sum hevur ein fyrisetning frá seljara, skal geva upplýsingar um hetta í søluuppsetingini.
+Stk. 3. Upplýsingarskyldan eftir § 7, stk. 2 um provisión, avsláttur ella annað viðurgjald er galdandi í mun til báðar partar og skal verða lokin, sum ásett í stk. 2.
+Stk. 4. Landsstýrismaðurin ásetur nærri reglur um, hvussu upplýsingarskyldan eftir stk. 2 og 3 skal verða lokin.

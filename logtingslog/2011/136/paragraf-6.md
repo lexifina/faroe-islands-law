@@ -1,0 +1,2 @@
+## Ognarkeyp og privatbúskapur
+§ 6. Ráðgeving um, hvørt ein brúkari hevur ráð til at keypa eina fastogn, skal verða grundað á ta neyðugu gjøgnumgongdina og metingina av kendum upplýsingum um inntøkur og útreiðslur brúkarans. Ráðgevin skal áseta ta brutto- og nettoútreiðslu, sbr. § 19, sum, grundað á eina neyva fíggjarætlan, ráð eru til. Ráðgevin skal harumframt áseta tað kontantprísstøðið, sum fíggjarætlanin gevur møguleika at keypa fastognina fyri, umframt teir møguleikar, sum brúkarin hevur fyri at fáa eitt keyp fíggjað.

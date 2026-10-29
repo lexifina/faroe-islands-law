@@ -1,0 +1,4 @@
+## Avtalan um fyrisetningin
+§ 10. Avtala um ognarmiðlan skal vera skrivlig, og týðiliga skal vera tilskilað, nær og hvussu viðurgjaldið skal verða rindað. Avtalan skal í minsta lagi innihalda treytir um longd á fyrisetninginum, nágreinan av teimum veitingum, sum eru partur av fyrisetninginum, og upplýsingar um tað viðurgjald, sum verður rindað fyri hvørja einstaka veiting. Um úrslitatreytað viðurgjald er avtalað, kunnu veitingarnar, nevndar í 2. pkt., tó verða givnar upp sum eitt samlað viðurgjald.
+Stk. 2. Landsstýrismaðurin kann áseta nærri reglur um innihaldið í avtaluni, undir hesum reglur um, hvussu endaliga viðurgjaldið skal verða nágreinað. Landsstýrismaðurin kann við hesum víkja frá § 11, stk. 4, tá umræður rindan til triðjamann fyri veitan av váttan, sum er partur av avgerðargrundarlagnum undir einum handli.
+Stk. 3. Ognarmiðlarin kann ikki krevja viðurgjald á øðrum grundarlagi enn á eini avtalu, sum er í samsvari við stk. 1 og 2.
