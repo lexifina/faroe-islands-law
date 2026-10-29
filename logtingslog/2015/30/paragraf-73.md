@@ -1,0 +1,1 @@
+§ 73. Tá ið eitt verk ikki hevur verið givið út áður, og upphavsrættarverjan er endað, hevur tann, ið fyri fyrstu ferð á lógligan hátt almannakunnger ella gevur verkið út, somu peningaligu rættindi til verkið, sum var tann upphavsmaður. Verjan varir í 25 ár, roknað frá árinum eftir, at verkið varð almannakunngjørt ella givið út.

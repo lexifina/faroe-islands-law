@@ -1,0 +1,5 @@
+## Seming
+§ 44. Ósemja millum felagsskap, sbr. § 39, stk. 2, ella rættindahavarar, sum ikki eru limir í felagsskapi, og brúkara um nýtslu av vardum verkum, og ósemja um viðurlag sambært avtalu við felagsskapin verður loyst við einum óheftum semingsmanni.
+Stk. 2. Landsstýrismaðurin setir semingsmann sambært stk. 1 og varamann hansara, og landsstýrismaðurin ásetir neyvari reglur um førleikakrøv til semingsmann og heimildir hjá semingsmanni, herímillum at semingsmaður kann taka støðu til, um uppskotnar treytir fyri nýtslu av vardum verkum eru rímiligar, um støddin á viðurlagnum er rímilig, at semingsmaðurin kann geva fyribils avtaluloyvi, meðan málið verður viðgjørt, og at semingsmaðurin kann fáa álagt ávísar uppgávur, sum semingin skal fevna um.
+Stk. 3. Landsstýrismaðurin ásetir lønartreytir og setanartreytirnar hjá semingsmanni. Útreiðslurnar til semingsmann verða javnbýttar millum partarnar í málinum, sum bera útreiðslurnar við samábyrgd. Eru fleiri partar, bera allir partar útreiðslurnar við samábyrgd.
+Stk. 4. Løgtingslóg um fyrisitingarlóg og løgtingslóg um innlit í fyrisitingina eru ikki galdandi fyri virksemið hjá semingsmanni.

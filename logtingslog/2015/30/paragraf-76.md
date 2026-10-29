@@ -1,0 +1,2 @@
+§ 76. Tá ið eintøk av verkum ella framleiðslu, sum eru vard sambært hesi lóg ella í kunngerð við heimild í lógini, verða framleidd uttanlands, og ein samsvarandi framleiðsla í Føroyum hevði verið brot á lóggávuna, verður tann revsaður við sekt, sum tilætlað ella av grovum ósketni innflytur slík eintøk til tess at gera tey tøk fyri almenninginum.
+Stk. 2. Ásetingin í § 74, stk. 2 er samsvarandi galdandi fyri tilætlað brot á stk. 1.

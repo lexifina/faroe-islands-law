@@ -1,0 +1,6 @@
+## Framleiðari av vørulista, dátugrunni o.a.
+§ 49. Tann, ið framleiðir eitt katalog, eina skrá, ein dátugrunn ella líknandi, hevur einkarætt til avrikið. Einkarætturin fevnir um framleiðslu av eintaki og um at gera avrikið tøkt fyri almenninginum. Einkarætturin er treytaður av, at omanfyri nevnda avrikið setir eina størri mongd av upplýsingum saman ella stendst av einari týðandi íløgu.
+Stk. 2. Ásetingin í stk. 1 fevnir eisini um smærri lutir av avrikinum, um hesir verða gjørdir tøkir hjá almenninginum, ella eintøk verða framleidd fleiri ferðir, regluliga ella á skipaðan hátt. Sama ger seg galdandi, um nevndu gerðir ikki kunnu metast at vera vanlig nýtsla av avrikinum ella á órímiligan hátt skaða lógfestu áhugamál framleiðarans.
+Stk. 3. Verður avrik ella partur av avriki, sum nevnt í stk. 1, vart av upphavsrætti ella á annan hátt, kann henda verja eisini gerast galdandi.
+Stk. 4. Ásetingarnar í §§ 2, 4, 7, 8 og 9, § 11, stk. 2 og 3, § 12, stk. 1, stk. 2, nr. 4, stk. 4, nr. 3 og stk. 5, 2. pkt., §§ 13-17, § 18, stk. 1 og 2, § 19, stk. 1 og 2, §§ 20-22 og 26, §§ 28, 29 og 31-35, § 36, stk. 2 og 3 og §§ 39-43 fevna eisini um tey í stk. 1 nevndu avrikini.
+Stk. 5. Avtalutreytir, ið víðka framleiðarans rætt sambært stk. 1 til eitt almannakunngjørt avrik, eru ógildugar.

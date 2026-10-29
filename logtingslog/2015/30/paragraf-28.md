@@ -1,0 +1,4 @@
+## Innlit
+§ 28. Upphavsrætturin er ikki til hindurs fyri, at tað verður givið innlit í vard verk, sum eru latin einum fyrisitingarligum myndugleika ella latin einum dómstóli í sambandi við virksemi hjá myndugleikanum, har ímillum at onnur krevja innlit í eintøk av skjølum samsvarandi galdandi innlitsrætti. Tað sama ger seg galdandi fyri verk, sum myndugleikin ella dómstólurin hevur framleitt.
+Stk. 2. Upphavsrætturin er ikki til hindurs fyri, at tað verður givið atgeingi til skjøl, sum eru avhend til eitt alment skjalasavn, tó er hetta treytað av, at ásetingarnar um atgeingi í løgtingslóg um Føroya landsskjalasavn verða hildnar. Tó mugu avrit av privatum savnsskjølum ikki verða útflýggjað.
+Stk. 3. Innlit í tilfar sambært stk. 1 og 2, er treytað av, at verkið ikki verður almannakunngjørt, ella at eintøk verða gjørd, spjadd ella nýtt á annan hátt uttan so, at upphavsmaðurin loyvir hesum.

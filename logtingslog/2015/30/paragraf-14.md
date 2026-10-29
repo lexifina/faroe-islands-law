@@ -1,0 +1,4 @@
+## Eintøk innan almennar og privatar stovnar, felagsskapir og vinnuvirki
+§ 14. Við avtalu sambært § 42 kunnu almennir og privatir stovnar, felagsskapir og vinnuvirki til innanhýsis nýtslu í teirra virksemi umvegis ljósprent ella líknandi framleiða eintøk av yrkisligum greinum í bløðum, tíðarritum og ritsøvnum og av stuttum brotum av útgivnum yrkisligum verkum, tónleikaverkum og myndlýsingum, sum eru endurgivin í tilknýti til tekstin, um treytirnar fyri avtaluloyvi sambært § 42 eru loknar.
+Stk. 2. Ásetingin í stk. 1 gevur nevndu stovnum og virkjum rætt til at nýta uttanhýsis hjálparfólk at framleiða innan karmarnar av stk. 1.
+Stk. 3. Um partur metir, at góðkendur felagsskapur sambært § 40 setir órímiligar treytir í avtaluna, kunnu partarnir hvør sær leggja málið fyri semingsmann sambært § 44. Semingsmaðurin kann áseta treytirnar, har ímillum avgera støddina á viðurlagnum.

@@ -1,0 +1,2 @@
+§ 25. Almannakunngjørd listaverk kunnu endurgevast, um treytirnar fyri avtaluloyvi sambært § 42 eru loknar. Hetta er tó ikki galdandi, um upphavsmaður hevur sett bann móti nøkrum av avtalupørtunum viðvíkjandi endurgeving av verkinum.
+Stk. 2. Um partur metir, at góðkendur felagsskapur sambært § 40 setir órímiligar treytir í avtaluna, kunnu partarnir hvør sær leggja málið fyri semingsmann sambært § 44. Semingsmaðurin kann áseta treytirnar, har ímillum avgera støddina á viðurlagnum.

@@ -1,0 +1,4 @@
+## Endurgeving av listaverkum o.a.
+§ 23. Almannakunngjørd listaverk og verk av frágreiðandi slagi sambært § 1, stk. 2 kunnu endurgevast í sambandi við ummæli ella í sambandi við vísindaliga lýsing ella tulking. Endurgeving sambært hesi áseting skal gerast saman við tekstinum soleiðis, sum góður siður er og í tí vavi, sum er treytað av endamálinum. Hetta má ikki gerast við vinningi fyri eyga.
+Stk. 2. Almannakunngjørd listaverk kunnu endurgevast í sambandi við umrøðu av gerandishendingum í bløðum og tíðarritum soleiðis, sum góður siður krevur og í tí vavi, sum treytast av endamálinum. Ásetingin í 1. pkt. er ikki galdandi fyri verk, ið eru framleidd við atliti at endurgeving í bløðum og tíðarritum.
+Stk. 3. Útgivin listaverk ella eintøk av listaverki, ið upphavsmaðurin hevur avhendað til onnur, kunnu endurgevast í bløðum, tíðarritum, filmi og sjónvarpi, tá henda endurgeving ikki er tað berandi í tí høpi.

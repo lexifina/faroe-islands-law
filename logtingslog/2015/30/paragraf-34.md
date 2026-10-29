@@ -1,0 +1,1 @@
+§ 34. Fjølmiðlar og kringvarpsstøðir kunnu eftir áheitan útflýggja upptøkur av egnum útvarpssendingum og egnum sjónvarpssendingum til teirra, ið hava verið við í viðkomandi sending, ella sum kenna seg eyðmýkt av viðferð ella umrøðu í sendingini. Upptøkur sambært hesi áseting eru bert til privata nýtslu.

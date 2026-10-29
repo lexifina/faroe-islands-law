@@ -1,0 +1,5 @@
+## Loyvt uttanumvik av munadyggum tøkniligum útbúnaði
+§ 55. Landsstýrismaðurin kann áleggja rættindahavara, sum hevur nýtt tøkniligan útbúnað, at lata brúkara fáa tað, sum honum tørvar, til tess at hann kann nýta sín rætt sambært lógini. Gongur rættindahavari ikki kravinum á møti, áðrenn 4 vikur eru farnar frá tí, at avgerð er tikin, kann brúkarin, uttan mun til § 54, fara uttan um munadyggan tøkniligan útbúnað. Ásetingin í 1. og 2. pkt. er bert galdandi fyri brúkara, sum hevur lógliga atgongd til verkið ella framleiðsluna o.a.
+Stk. 2. Stk. 1 er bert galdandi, tá ið rættindahavarin ikki hevur tryggjað, at brúkari, uttan mun til nýtta munadygga tøkniliga útbúnaðin, kann brúka sín rætt sambært stk. 1 við sjálvbodnum útbúnaði, harundir avtalu við aðrar partar.
+Stk. 3. Ásetingin í stk. 1 er ikki galdandi fyri verk, framleiðslu o.a., sum við avtalu er skipað soleiðis, at almenningurin fær atgongd til tað á sjálvvaldum staði og til sjálvvalda tíð, sbr. § 2, stk. 3, nr. 1.
+Stk. 4. Landsstýrismaðurin kann leggja heimildirnar sambært hesi grein til semingsmannin ella annan almennan myndugleika at umsita.

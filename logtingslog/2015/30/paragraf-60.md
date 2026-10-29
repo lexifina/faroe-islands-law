@@ -1,0 +1,1 @@
+§ 60. Landsstýrismaðurin kann áseta neyvari reglur um rættindi og skyldur hjá tí, sum avhendir upphavsrætt ella onnur rættindi, harundir um gjald og eftirlit, og um avmarkingar og freistir, sum tann, sum fær ognarrættin, hevur skyldu at halda seg til.
