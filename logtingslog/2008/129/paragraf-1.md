@@ -1,0 +1,1 @@
+§ 1. [^1] [^2] [^3] [^4] Landsstýrismanninum verður heimilað at gera avtalur um at høvuðsumvæla, útbyggja og nútíðargera Landssjúkrahúsið. Útreiðslurnar fyri verkætlanina kunnu í mesta lagi verða 799,5 mió. kr.
