@@ -1,0 +1,4 @@
+§ 7. Landsstýrismaðurin hevur eftirlit við, at útgoldin stuðul er nýttur til endamálið, og krevur stuðul afturgoldnan, um treytirnar fyri stuðli ikki verða fylgdar. Stuðul kann bert verða goldin út, tá landsstýrismaðurin hevur trygd fyri, at verkætlanin verður framd.
+Stk. 2. Stuðulsmóttakari hevur skyldu at upplýsa landsstýrismanninum um broytingar viðvíkjandi verkætlanini, sum hava týdning fyri grundarlagið, ið stuðulin er latin eftir. Talan er eitt nú um broytingar í endamáli, fíggjarætlan og tíðarætlan.
+Stk. 3. Stuðulsmóttakari skal í seinasta lagi tríggjar mánaðir eftir, at verkætlanin er endað, lata inn roknskap og frágreiðing til góðkenningar. Hetta er eisini treyt fyri nýggjari tilsøgn um stuðul.
+Stk. 4. Serligar umstøður kunnu gera, at landsstýrismaðurin kann víkja frá kravinum um afturrindan av útgoldnum stuðli, t.d. sjúka, barnsburður ella annað, ið kann hava forðað stuðulsmóttakara í at fullføra ætlanina til tíðina.
