@@ -1,0 +1,59 @@
+## Skjal 1
+Partarnir á arbeiðsmarknaðinum, bólkað í stavrað
+Løntakarafeløgini fyri verkafólk og tílíkar fakbólkar (løntakarar á privata arbeiðsmarknaðinum)
+Finansforbundet
+Flogskiparafelag Føroya
+Føroya Arbeiðarafelag
+Føroya Handverkarafelag
+Føroya Prentarafelag
+Føroysk Miðlafólk
+Havnar Arbeiðskvinnufelag
+Havnar Arbeiðsmannafelag
+Klaksvíkar Arbeiðskvinnufelag
+Klaksvíkar Arbeiðsmannafelag
+Landsfelag Handverkaranna
+S & K
+Starvsfólkafelag Føroysku Sparikassanna
+Súlan
+Yrkisfelagið Trygdin
+Manningarfeløgini
+Fiskimannafelagið
+Maskinmeistarafelagið
+Føroya Skipara- og navigatørfelag
+Løntakarafeløgini fyri starvsfólk og tílíkar fakbólkar
+Almanna- og Heilsurøktarafelag Føroya
+Arkitektafelag Føroya
+Bioanalytikarafelagið
+Búskapar- og Løgfrøðingafelag Føroya
+Dansk Farmaceutforening
+Ergoterapeutfelagið
+Fakfelag Sjómansskúlalærara í Føroyum
+Farmakonomforeningen
+Felagið Føroyskir Sjúkrarøktarfrøðingar
+Felagið Maskinmeistaralærarar
+Foreningen af yngre læger/Hjálparlæknaráð Føroya
+Føroya Byggifrøðingafelag
+Føroya Lærarafelag
+Føroya Musikklærarafelag
+Føroya Pedagogfelag
+Føroya Psykiatrifelag
+Føroya Tekniska Lærarafelag
+Føroya Verkfrøðingafelag
+Føroyskir Fysioterapeutar
+Heilsuhjálparafelag Føroya
+Lærarafelag Handilsskúlans
+Ljósmøðrafelag Føroya
+Magistarafelagið
+Økonomafelag Føroya
+Starvsmannafelagið
+Yrkisfelag Studentaskúla- og HF-lærara
+Arbeiðsgevarafeløgini
+Føroya Arbeiðsgevarafelag
+Føroya Handverksmeistarafelag
+Føroya Prentsmiðjufelag
+Reiðarafeløgini
+Føroya Reiðarafelag
+Reiðarafelagið fyri Farmaskip
+Almennu arbeiðsgevararnir
+Fíggjarmálaráðið
+Kommunala arbeiðsgevarafelagið

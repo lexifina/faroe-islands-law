@@ -1,0 +1,4 @@
+§ 2. Teir í skjali 1 nevndu partar velja setanarbólk við 18 limum at velja semingsfólk; 3 limir verða valdir úr hvørjum høvuðsbólki, nevndum í skjali 1. Gerðarrættarformaðurin í Fasta Gerðarrætti boðar hvørjum høvuðsbólki til fundar at velja umboð síni.
+Stk. 2. Er ikki semja í nevndu høvuðsbólkum um at velja limir í setanarbólkin innan hálvt ár, áðrenn nýtt skeið byrjar, velur gerðarrættarformaðurin limirnar millum teirra, ið partarnir hava nevnt.
+Stk. 3. Gerðarrættarformaðurin stjórnar fundum í setanarbólkinum og roynir at finna fulla semju. Eydnast ikki at finna semju, verður atkvøtt um ymsu evnini; eru 10 atkvøður fyri ávísum evni, er tilmælið samtykt. Fær onki evni 10 atkvøður, ger gerðarrættarformaðurin einsamallur tilmæli um semingsfólk at seta fyribils, til tilmæli kann gerast við minst 10 atkvøðum.
+Stk. 4. Landsstýrismaður kann í kunngerð broyta skjal 1.
