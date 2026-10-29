@@ -1,0 +1,1 @@
+§ 3. Verður eitt skjal, ið ikki kemur undir tað í § 5, stk. 3 nevnda føri, víst burtur, verður nýtt gjald ikki rindað, um skjalið verður fráboðað til tinglýsing av nýggjum innan 3 mánaðir roknað frá fyrstu fráboðanini til tinglýsing.
