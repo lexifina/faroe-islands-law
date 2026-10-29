@@ -1,0 +1,2 @@
+## Broytingar í setanartreytunum
+§ 4. Arbeiðsgevarin skal í sambandi við eina og hvørja broyting av teimum í § 2, stk. 1 og 2 og § 3, stk. 1 nevndu viðurskiftum skjótast gjørligt og í seinasta lagi 1 mánað eftir tann dag, tá broytingin fær gildi, geva løntakaranum skrivlig boð um hetta. Hetta er ikki galdandi, um orsøkin til broytingina eru broytingar í teimum lógum, fyrisitingarligu ásetingum, ásetingum í viðtøkum ella í sáttmálum á arbeiðsmarknaðinum, sum arbeiðsgevarin eftir § 2, stk. 4 ella § 3, stk. 2 kann vísa til.

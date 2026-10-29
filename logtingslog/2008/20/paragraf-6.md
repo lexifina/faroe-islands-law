@@ -1,0 +1,2 @@
+§ 6. Hevur arbeiðsgevarin ikki hildið upplýsingarskylduna, kann løntakarin fáa eitt viðurgjald við dómstólarnar. Viðurgjaldið, sum fyri tann einstaka ikki kann verða hægri enn løn í 13 vikur, verður ásett við atliti at umstøðunum í málinum, heruppií um vantandi upplýsingin í ítøkiliga førinum hevur havt týdning fyri løntakaran. Viðurgjaldið kann, um tað eru tyngjandi umstøður, hækkast til løn í 20 vikur.
+Stk. 2.Viðurgjaldið kann hægst vera 1.000 kr., um vantandi upplýsingin er umberandi og annars ikki í ítøkiliga førinum hevur havt týdning fyri setanarviðurskiftini.
