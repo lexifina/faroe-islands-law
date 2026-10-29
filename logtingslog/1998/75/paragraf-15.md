@@ -1,0 +1,2 @@
+§ 15. [^2] Ársroknskapurin skal grannskoðast av uttanhýsis grannskoðara stovnsins, sum verður valdur av nevndini. Grannskoðarin skal vera løggildur. Grannskoðanarskyldan fevnir ikki um leiðslufrágreiðingina og aðrar ískoytisfrágreiðingar, sum eru partar av ársfrásøgnini. Grannskoðarin skal kortini geva eina váttan um, hvørt upplýsingarnar í leiðslufrágreiðingini samsvara við ársroknskapin.
+Stk. 2. [^2] (Strikað).

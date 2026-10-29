@@ -1,0 +1,2 @@
+§ 3. [^2] Vald verður umboðsnevnd, ið virkar ráðgevandi fyri nevndina hjá stovninum. Ráðgevandi umboðsnevndin hevur 8 limir, 2 valdir av landsstýrismanninum, 2 av lántakarum stovnsins, 1 av Føroya Reiðarafelag og 1 av Reiðarafelagnum fyri Handilsskip, meðan Føroya Fiskimannafelag, Føroya Skipara- og Navigatørfelag og Maskinmeistarafelagið eru saman um at velja 2 limir.
+Stk. 2. [^2] Valini eru galdandi fyri 4 ár í senn. Nevndin boðar umboðsnevndini til fundar í minsta lagi eina ferð um árið.
