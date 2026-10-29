@@ -1,0 +1,2 @@
+§ 10. Um loðdjór sleppa út, skal hann, sum ansar eftir garðinum, beinanvegin fáa fólk at taka ella veiða dýrini og samtíðis uttan drál boða landbúnaðarráðgevaranum og løgregluni frá.
+2. stk. Brot móti hesi reglugerð verða revsað við bót. Brot við vilja ella av stórum gáloysni hava við sær, at loyvið til at hava loðdjórahald kann verða afturtikið. Mál í samband við brot móti hesi reglugerð verða viðgjørd sum løgreglumál.

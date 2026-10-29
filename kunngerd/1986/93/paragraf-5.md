@@ -1,0 +1,3 @@
+§ 5. Kaninir. Girðingin skal vera ið hvussu er 1,5 m til hæddar og grivin niður í jørð skrátt inneftir í minsta lagi 25 cm, ella soleiðis frágingin, at djórini ikki fáa grivið seg út úr girðingini. Tjúkd á tráðnum skal ikki vera minni enn 1,65 mm og meskavídd ikki meiri enn 5,2 cm.
+2. stk. Kaninbúr til løður skal ikki vera minni enn 80 cm langt, 75 cm breitt og 60 cm høgt. Til ungt djór, upp til fýra mánaða gomul, og drápsdjór, 40 cm breitt og 40 cm høgt.
+3. stk. Fjalir í køssum skulu ikki vera tynnri enn 12,5 mm, og pløgdar fjalir skulu vera í gólvinum uttan so, at tráðnetsbotnur er í køssunum og skuffa undir.
