@@ -1,0 +1,2 @@
+§ 18. [^3] Sveina- og yrkisroyndir verða hildnar í teimum einstøku útbúgvingunum, um hetta er samtykt av yrkisnevndini. Sveinaroyndirnar verða fyriskipaðar eftir reglum, sum eru ásettar av landsstýrismanninum eftir tilmæli frá yrkisútbúgvingarráðnum og eftir samtykt frá yrkisnevndini.
+Stk. 2. Landsstýrismaðurin ásetur eftir tilmæli frá yrkisútbúgvingarráðnum reglur um døming yvirhøvur og reglur um, hvussu útbúgvingarskjøl verða tilevnað og latin.

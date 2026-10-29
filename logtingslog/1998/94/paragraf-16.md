@@ -1,0 +1,2 @@
+§ 16. [^4] [^3] Verkliga læran fer fram á einum ella fleiri virkjum, ið eru góðkend sum lærupláss av yrkisnevndini, og hon er grundað á lærusáttmála millum lærling og viðkomandi virki. Broytast fyritreytirnar fyri áður givna góðkenning, hava lærupláss skyldu til at boða viðkomandi yrkisnevnd frá hesum.
+Stk. 2. [^3] Landsstýrismaðurin ásetur, eftir tilmæli frá yrkisútbúgvingarráðnum og eftir samtykt frá yrkisnevndini, reglur um verkligu læruna í tann mun hesar reglur ikki eru ásettar í sáttmála millum viðkomandi yrkisfeløg.

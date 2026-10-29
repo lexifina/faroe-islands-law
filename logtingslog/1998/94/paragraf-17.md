@@ -1,0 +1,2 @@
+§ 17. Lærlingarnir fáa útbúgvingarskjal fyri fullførda útbúgving, heruppií váttan fyri framda skúlagongd og verkliga læru. Lærlingur, sum gevst í útbúgvingini, hevur rætt at fáa váttan fyri framd avrik.
+Stk. 2. [^2] [^3] Próvtøkur verða skipaðar eftir reglum, sum landsstýrismaðurin ásetur. Próvtøkur í yrkislærugreinum verða tó ásettar eftir reglum, sum yrkisútbúgvingarráðið hevur tilmælt eftir samtykt frá yrkisnevndini.

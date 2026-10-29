@@ -1,0 +1,2 @@
+§ 35. [^2] Hevur lærlingur frammanundan lokið ein part av tí útbúgving, sum nevnd er í lærusáttmálanum, kann sáttmálin vanliga bara fevna um vantandi partarnar av verkligu læruni og skúlagongdini, smb. § 9, stk. 2.
+Stk. 2. [^2] [^3] Fyri lærling, sum av aðrari útbúgving ella viðkomandi arbeiðsroyndum hevur serligar fortreytir at fara undir ta útbúgving, sáttmálin fevnir um, kann yrkisnevndin samtykkja, at útbúgvingin kann verða stytt eftir teimum í § 9, stk. 1 og 2 ásettu reglum um útbúgvingartíð.
