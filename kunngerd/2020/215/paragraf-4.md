@@ -1,0 +1,6 @@
+§ 4. Ásetta fiskidagatalið fyri hvønn bólk sær í § 3 er galdandi fyri fiskiskap á innaru fiskidagaleið, tó undantikið fiskidagar á ytru fiskidagaleið í bólki 2. Ásetta fiskidagatalið fyri bólk 2 á ytru fiskidagaleið kann bert nýtast til fiskiskap á ytru fiskidagaleið.
+Stk. 2. Ásettu fiskidagarnir fyri hvønn bólk í § 3, stk. 1 kunnu bert nýtast til fiskiskap við fiskifari, ið er innan fyri avmarkingarnar fyri stødd ella framtøkumegi, ið eru ásettar fyri hvønn bólkin og við tí reiðskapi, ið er tilskilað fyri bólkin. Somuleiðis er treyt, at fiskidagarnir bert verða brúktir til fiskiskap á leiðum, har fiskifør við teimum tilskilaðu avmarkingunum fyri stødd ella framtøkumegi hava loyvi at royna.
+Stk. 3. Fiskidagar, tillutaðir bólki 2, 3, 4 og 4 T sambært stk. 1, verða latnir sum egnir fiskidagar.
+Stk. 4. Fiskidagar, tillutaðir bólki 5 sambært stk. 1, verða latnir sum felags fiskidagar.
+Stk. 5. Fiskifar, sum fyri 1. januar 2020 og í 2020, hevur verið knýtt at fiskidøgum í ávísum bólki, men sum ikki lýkur treytina um avmarking í stødd ella framtøkumegi í stk. 1, kann halda fram í hesum bólki, tá henda kunngerð fær gildi.
+Stk. 6. Fiskifar, í bólkunum sambært § 3, verður verandi í tí bólki, tað er í, og kann ikki flyta bólk, hóast tað verður mált upp av nýggjum, ella broytingar verða gjørdar, sum ávirka stødd ella framtøkumegi.
