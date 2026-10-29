@@ -1,0 +1,2 @@
+§ 85. Haldføri á skamtlutaðum heilivági, er í mesta lagi 8 vikur, frá tí, at heilivágur er tikin úr upprunapakkanum, uttan so, at Landsapotekarin ásetur longri haldføri, grundað á góðkenning frá Lægemiddelstyrelsen.
+Stk. 2. Haldførið av innihaldinum í skamtílatinum til brúkarar sbrt. § 81, nr. 1, verður ásett sum lokadagurin, og skal ásetast eftir tí heiliváginum, ið hevur stytst haldføri. Har má tó ongantíð farast útum lokadagin hjá tí einstaka heiliváginum, sum ásett á upprunapakkanum.

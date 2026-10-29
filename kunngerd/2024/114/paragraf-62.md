@@ -1,0 +1,1 @@
+§ 62. Apotekið skal kunna skjalprógva, tá tað hevur roynt at bøtt um heilivágsbílegging, ið ikki er orðað í samsvari við § 40, § 41, stk. 3 og § 52, og skal kunna skjalprógva sína avgreiðslu av heilivágsbíleggingini, tá tað ikki er gjørligt at fáa bøtt um feilin ella brekið. Skjalprógvið skal goymast á apotekinum í 1 ár.

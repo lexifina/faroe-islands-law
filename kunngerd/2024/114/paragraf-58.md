@@ -1,0 +1,1 @@
+§ 58. Skjalprógv fyri gongd og grundgeving fyri, at forskriftaávísari er kunnaður um avgreiðsluna, tá eitt apotek verður varigt við, at fleiri forskriftaávísarar ávísa heilivág til sama heilivágsbrúkara, og kann hetta hava við sær heilsuligar vandar hjá heilivágsbrúkara, sbrt. § 51, skal av apotekinum kunna prógvast í 1 ár.

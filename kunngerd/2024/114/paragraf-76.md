@@ -1,0 +1,2 @@
+§ 76. Framleiðari av bjargingarbátum, ella leiðari av løggildum tænastustovni, ið hevur eftirlit við og pakking av bjargingarbátum til skip, kunnu bíleggja heilivág o.a. til hesar bátar, í tann mun heilivágurin eftir galdandi reglum saman við aðrari bjargingarútgerð, er kravdur at vera í bjargingarbátinum.
+Stk. 2. Bíleggingarseðil av heilivági til bjargingarbát og bjargingarflaka, skal innihalda upplýsingar um framleiðara ella tænastustovn og nummar á bjargingarbáti ella bjargingarflaka.

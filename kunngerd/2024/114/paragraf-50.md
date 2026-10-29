@@ -1,0 +1,2 @@
+§ 50. Verður apotekið varugt við, at fleiri forskriftaávísarar ávísa heilivág til sama heilivágsbrúkara, og hetta kann hava við sær heilsuligar vandar fyri heilivágsbrúkara, eigur apotekið at kunna forskriftaávísara um avgreiðsluna av forskriftini, herundir navn hjá forskriftaávísara, navn og P-tal hjá heilivágsbrúkara, og navn, styrki og skamt heilivágsins.
+Stk. 2. Apotekið skal kunna skjalprógva gongdina og grundgevingina fyri, at forskriftaávísarar eru kunnaðir um avgreiðsluna.

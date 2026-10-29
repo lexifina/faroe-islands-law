@@ -1,0 +1,4 @@
+§ 90. Skamtlutaður heilivágur skal í teimum í § 81, nr. 3, nevndu førum, kunna útflýggjast frá apoteki til heilivágsbrúkara í seinasta lagi 2 vikur eftir ávísing, tó treytað av, at gjaldsavtala er gjørd.
+Stk. 2. Til heilivágsbrúkara, sbrt. § 81, nr. 2 og 3, verður skamtlutaður heilivágur útflýggjaður til 14 ella í serligum føri 28 dagar í senn.
+Stk. 3. Í teimum føri, tá heilivágsbrúkari, sbrt. § 81, nr. 3, er forðaður í at heinta skamtlutaðan heilivág, t.d. sjómaður, ið er til skips meira enn 28 dagar í senn, kann apotekið víðka útflýggjanartíðarskeiðið, sbrt. stk. 2, til í alt 6 vikur, sbr. § 60.
+Stk. 4. Tá skamtlutaður heilivágur verður útflýggjaður heilivágsbrúkara, sbrt. § 81, nr. 3, skal apotekið vísa til, hvar heilivágsbrúkari kann fáa atgongd til kunningarlepa. Apotekið skal, eftir umbøn frá heilivágsbrúkara, útflýggja avrit av kunningarlepa til heilivág, ið skamtanarforskriftin fevnur um.

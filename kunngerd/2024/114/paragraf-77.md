@@ -1,0 +1,1 @@
+§ 77. Apotekið skal við heiliváginum, ið verður útflýggjaður sbrt. §§ 74-76, upplýsa avgreiðsludag, og viðvíkjandi §§ 75 og 76 eisini serligar upplýsingar, ið krevst sbrt. fráboðan frá Sjóvinnustýrinum nr. 2 frá 11. desember 2012 um medisinkistu og sjúkuviðgerð umborð á skipi.

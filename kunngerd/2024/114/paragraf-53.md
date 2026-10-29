@@ -1,0 +1,2 @@
+§ 53. Verður apotekið varugt við, at ein ella fleiri forskriftaávísarar ávísa sama heilivág til sama heilivágsbrúkara, og fer samlaða nøgdin langt út um ta nøgd, sum er viðmæld til nýtslu í 1 ár, skal apotekið kunna tann ella teir forskriftaávísarar um avgreiðsluna ella sýtanina hjá apotekinum, um navn á forskriftaávísara, um navn og p-tal hjá heilivágsbrúkara og um navn, styrki og skamt á heiliváginum.
+Stk. 2. Apotekið skal kunna skjalprógva hendingagongd og grundgeving fyri, at tann ella teir forskriftaávísarar eru kunnaðir um avgreiðsluna, sambært § 58.

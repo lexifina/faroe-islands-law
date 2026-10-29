@@ -1,0 +1,1 @@
+§ 57. Skjalprógv fyri, at apotekið hevur kunnað lækna heilivágsbrúkarans, tá ið apotekið í serligum føri við atliti at heilsu heilivágsbrúkarans, hevur útflýggjað forskriftaskyldigan heilivág, sbrt. § 49, skal goymast á apotekinum í 2 ár, tó í 5 ár eftir útflýggjan av heilivági til djór, sbrt. § 55.

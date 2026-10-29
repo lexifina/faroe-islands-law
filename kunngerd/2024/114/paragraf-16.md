@@ -1,0 +1,1 @@
+§ 16. Ein forskrift, ávísandi heilivág, sum er skrásettur í Føroyum, skal innihalda handilsnavn á heiliváginum, heilivágsform, styrki, um fleiri styrkir eru, og nøgd. Styrki og nøgd skal viðmerkjast eintýtt og soleiðis, at broytingar ikki kunnu gerast á.

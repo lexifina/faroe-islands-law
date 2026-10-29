@@ -1,0 +1,1 @@
+§ 49. Apotekið kann í serligum føri, um tað er neyðugt við atliti at heilsuni hjá heilivágsbrúkara, útflýggja forskriftaskyldigan heilivág uttan at fáa víst eina forskrift. Apotekið skal, skjótast gjørligt, kunna lækna heilivágsbrúkarans um hetta.

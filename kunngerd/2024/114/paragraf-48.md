@@ -1,0 +1,8 @@
+## Rætting av forskrift og bráðfeingis viðgerðartørvur
+§ 48. Er forskrift ikki orðað í samsvari við ásetingarnar í kapitlunum 3 og 4, skal apotekið royna at bøta um mistakið. Apotekið kunnar forskriftaávísara um feilir og brek, til tess at ógilda forskriftina og útflýggja eina nýggja.
+Stk. 2. Kann apotekið ikki seta seg í samband við forskriftaávísara, kann apotekið eftir boðum frá øðrum lækna ella tannlækna ógilda upprunaligu forskriftina og gera nýggja telefonforskrift til eina útflýggjan, ið bøtir um feilirnar í upprunaligu forskriftini. Tað skal standa, hvør lækni hevur gjørt telefonforskriftina.
+Stk. 3. Er tað ikki møguligt at bøta um feilin ella brekið, ella at fáa greiðu á møguligan iva, skal apotekið ikki avgreiða forskriftina, uttan so, at ongin ivi er um, hvat innihald forskriftaávísari ynskti at geva forskriftini. Apotekið skal tó avgreiða forskriftina, um heilivágsbrúkari kann fáa álvarsligan skaða av, at heilivágurin ikki verður útflýggjaður, og viðgerðin hjá heilivágsbrúkara tí verður seinkað.
+Stk. 4. Apotekið kann útflýggja forskriftaskyldigan heilivág, ið hevur somu ávirkan á viðgerðina, sum ávísti heilivágurin, uttan so, at § 43, stk. 3 er galdandi, og um:
+1) apotekið ikki hevur ávísta heilivágin ella synonyman heilivág á goymslu, og
+2) heilivágsbrúkari kann fáa álvarsligan skaða, verður heilivágurin við somu ávirkan á viðgerðina ikki útflýggjaður, og viðgerðin av heilivágsbrúkara tí verður seinkað.
+Stk. 5. Apotekið skal, skjótast gjørligt, kunna forskriftaávísara ella lækna hjá heilivágsbrúkara, tá apotekið ikki hevur møguleika fyri at bøta um feilin ella brekið, ella at fáa greiðu á møguligum iva, sbrt. stk. 3.

@@ -1,0 +1,4 @@
+§ 67. Apotekið skal fyriskipa arbeiðsgongdir soleiðis, at eftirlit er við at heilivágsbíleggingar verða avgreiddar rætt, og at móttakari í neyðugan mun verður kunnaður um nýtslu o.a. av útflýggjaðum heilivági. Heilivágsbíleggingar eru fevndar av reglunum í § 40, § 41, stk. 3 og § 52. § 52 er tó ikki galdandi fyri bíleggingar til medisinkistur.
+Stk. 2. Er ein heilivágsbílegging ikki orðað í samsvari við ásetingarnar í hesum kapitli, skal apotekið royna at bøta um hetta. Er tað ikki møguligt at bøta um feilin ella brekið, ella at fáa greiðu á møguligum iva, skal apotekið ikki avgreiða bíleggingina, uttan so at:
+1) ein ella fleiri heilivágsbrúkarar fáa álvarsligar heilsuligar skaðar, um bíleggingin ikki verður avgreidd, og heilivágurin til heilivágsbrúkara tí verður seinkaður, ella
+2) ongin ivi er um, hvat innihald forskriftaávísari hevur ynskt, skal vera í bíleggingini.

@@ -1,0 +1,1 @@
+§ 60. Skjalprógv av notati skal goymast á apotekinum, tá heilivágsbrúkari er forðaður í at heinta skamtanarforskriftir sum vanligt, og apotekið víðkar útflýggjanartíðarskeiðið, sbrt. § 90, stk. 3. Notatið, ið skal innihalda grundgeving fyri víðkaða tíðarskeiðið, skal goymast í 1 ár.
