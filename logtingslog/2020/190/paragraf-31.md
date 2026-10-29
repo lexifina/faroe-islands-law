@@ -1,0 +1,1 @@
+§ 31. Fyritøkur í einum samtaki skulu skifta um upplýsingar við aðrar fyritøkur í samtakinum um, at illgruni er um at peningur er vinningur frá eini brotsgerð ella tengdur at fígging av yvirgangi, og har tað er framd fráboðan eftir § 25, stk. 1 ella 2. Fyritøkur í einum samtaki skulu ikki skifta um persónsupplýsingar sambært 1. pkt. uttan tað sum er neyðugt fyri at lúka kravið.

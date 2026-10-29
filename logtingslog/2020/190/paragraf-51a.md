@@ -1,0 +1,3 @@
+§ 51 a. [^1] Starvsfólk hjá Skráseting Føroya mugu ikki lata upplýsingar víðari um ein persón, tá hesin hevur latið Skráseting Føroya fráboðan um eina fyritøku ella persón fyri brot ella møguligt brot á hesa løgtingslóg, reglur sambært løgtingslógini ella lov for Færøerne om oplysninger, der skal medsendes om betaler ved pengeoverførsler, sbr. tó stk. 2.
+Stk. 2. Stk. 1 er ikki til hindurs fyri, at persónsupplýsingar verða latnar víðari sambært § 51, stk. 3.
+Stk. 3. Øll, sum sambært stk. 2 móttaka persónsupplýsingar, sbr. tó § 51, stk. 5, eru við atliti at hesum upplýsingum áløgd ta í stk. 1 umrøddu tagnarskyldu.

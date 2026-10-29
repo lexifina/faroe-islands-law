@@ -1,0 +1,2 @@
+§ 40 a. [^1] [^2] Tryggingareftirlitið kann áleggja einari fyritøku ella persóni, ið er fevndur av § 1, stk. 1, nr. 1-3, ikki at fáa sær nýggj kundaviðurskifti, tá ið eitt álvarsamt brot á ásetingar í hesi lóg ella reglur ásettar sambært løgtingslógini er staðfest. Er brotið heilt ella partvís framt í einari útlendskari deild hjá einari fyritøku, kann áleggingin víðkast til at fevna um deildina.
+Stk. 2. Ein álegging eftir stk. 1 heldur uppat, tá fyritøkan ella persónurin mótvegis Tryggingareftirlitinum skjalprógvar, at brotið er hildið uppat.

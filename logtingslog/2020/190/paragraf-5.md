@@ -1,0 +1,2 @@
+## Kontantgjaldsbann
+§ 5. Vinnurekandi, sum ikki eru fevnd av § 1, stk. 1 í hesi løgtingslóg, ella av § 1, stk. 1 í anordning om ikrafttræden for Færøerne af lov om forebyggende foranstaltninger mod hvidvask og finansiering af terrorisme, kunnu ikki taka ímóti kontantgjaldingum á 50.000 kr. ella meira, uttan mun til um gjaldingin verður gjørd í einum ella sum fleiri gjaldingar, sum eru ella sýnast at vera sínámillum tengdar.

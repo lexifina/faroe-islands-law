@@ -1,0 +1,2 @@
+§ 47. [^1] [^2] Fyritøkur og persónar, sum nevnd í § 1, stk. 1, nr. 4-7 og 9, skulu geva Skráseting Føroya tær upplýsingar, sum eru neyðugar fyri virksemið hjá Skrásetingini.
+Stk. 2. [^1] [^2] Skráseting Føroya kann, um tað krevst til endamálið, móti hóskandi samleikaprógvi uttan rættarúrskurð, altíð fáa atgongd til fyritøkur og persónar fevndar av § 1, stk. 1, nr. 4-7 og 9, fyri at útvega upplýsingar, undir hesum við eftirlitsvitjan.

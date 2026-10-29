@@ -1,0 +1,2 @@
+§ 19. Fyritøkur og persónar, fevnd av løgtingslógini, kunnu ikki stovna ella halda fram við einum korrespondentsambandi við eitt tómt bankafelag.
+Stk. 2. Fyritøkur og persónar, fevnd av løgtingslógini, skulu fremja hóskandi tiltøk fyri at sleppa undan at stovna korrespondentsambond við fyritøkur, har alment atkomuligar upplýsingar eru um, at respondentsambandið letur tóm bankafeløg brúka kontur hjá respondentsambandinum.

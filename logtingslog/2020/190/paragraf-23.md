@@ -1,0 +1,4 @@
+§ 23. Fyritøkur og persónar, fevnd av hesi løgtingslóg, kunnu velja sambært sáttmála at útveita uppgávur, sum hesi skulu gera fyri at halda hesa løgtingslóg, til ein útvegara. Tað er tó ein treyt fyri hesum, at hesar fyritøkur og persónar, áðrenn avtalan um útveitan er gjørd, tryggja sær, at útvegarin hevur neyðugu evnini og orkuna til at átaka sær uppgávuna á ein nøktandi hátt, og at útvegarin hevur neyðugu loyvini til at átaka sær uppgávuna.
+Stk. 2. Fyritøkan ella persónurin skal, meðan avtalan er, støðugt ansa eftir, at útvegarin fremur uppgávuna í samsvari við krøvini, og við støði í hesum skal støðugt metast um, hvørt útveitanaravtalan er ráðilig.
+Stk. 3. Skyldan at tilnevna ein persón við fulltrú, sbr. § 6, stk. 2, kann ikki útveitast sambært stk. 1.
+Stk. 4. Uttan mun til um útveitan er framd, hevur tann fyritøka ella persónur, sum útveitir, ábyrgd av at lúka skyldur sambært hesi løgtingslóg.

@@ -1,0 +1,1 @@
+§ 57. [^4] Avgerðir, tiknar av Tryggingareftirlitinum og Skráseting Føroya, sambært hesi løgtingslóg og reglum, ásettar sambært løgtingslógini, kunnu av tí, sum avgerðin vendir sær til, verða lagdar fyri Føroya Kærustovn í seinasta lagi 4 vikur eftir, at avgerðin er kunngjørd fyri viðkomandi.

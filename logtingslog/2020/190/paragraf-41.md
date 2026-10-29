@@ -1,0 +1,1 @@
+§ 41. [^2] Landsstýrismaðurin kann mótvegis fyritøkum, nevndar í § 1, stk. 1, nr. 1-3, áseta reglur um skyldur hjá hesum fyritøkum til at almannakunngera upplýsingar um metingina hjá Tryggingareftirlitinum av fyritøkuni og um, at Tryggingareftirlitið hevur møguleika fyri at almannakunngera upplýsingarnar áðrenn fyritøkan almannakunnger.

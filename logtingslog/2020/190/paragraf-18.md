@@ -1,0 +1,6 @@
+§ 18. [^1] Innan stovnan av einum korrespondentsambandi, sum fer um landamørk, ið umfatar gjaldingar við einum respondentstovni uttan fyri Evropeiska Samveldið, sum Samveldið ikki hevur gjørt avtalu við á fíggjarliga økinum, skal korrespondenturin afturat kundakunnleikamannagongdini sambært § 10:
+1) útvega nóg nógvar upplýsingar um respondentin til at fáa greiðu á hvat virksemi respondenturin hevur, og út frá alment atkomuligum upplýsingum meta um umdømið hjá respondentinum og góðskuna av tí eftirliti, ið er av respondentinum, í viðkomandi landi,
+2) útvega nóg nógvar upplýsingar um respondentin til at tryggja, at respondenturin hevur fullgóðar eftirlitsmannagongdir við atliti til at lúka reglur í viðkomandi landi um at stríðast móti hvítvaski og fígging av yvirgangi,
+3) fáa góðkenning til at stovna eitt korrespondentsamband hjá tí persóni, sum er tilnevndur sambært § 6, stk. 2, og
+4) skjalprógva ábyrgdina hjá korrespondentinum ávikavist respondentinum fyri at lúka treytirnar í hesi løgtingslóg.
+Stk. 2. Hevur ein kundi hjá einum respondentsambandi beinleiðis atgongd til at ráða yvir peningi, sum stendur á kontu hjá korrespondentsambandinum, skal korrespondenturin tryggja sær, at respondenturin fremur kundakunnleikamannagongdir og at respondenturin kann lata út kundakunnleikaupplýsingar eftir áheitan frá korrespondentinum.

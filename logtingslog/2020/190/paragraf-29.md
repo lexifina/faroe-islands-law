@@ -1,0 +1,6 @@
+§ 29. [^1] Fyritøkur og persónar, fevnd av hesi løgtingslóg, skulu varðveita fylgjandi upplýsingar:
+1) Upplýsingar, fingnar til vega í sambandi við at lúka krøvini í kapitli 3, undir hesum samleikaupplýsingar og eftirlitsupplýsingar og avrit av vístum samleikaskjølum.
+2) Skjalprógv fyri og skráseting av transaktiónum, sum verða framdar sum partur av einum handilssambandi, ella einari einstakari transaktión.
+3) Skjøl og skrásetingar viðvíkjandi kanningum, gjørdar sambært § 24 stk. 1 og 3.
+Stk. 2. Upplýsingar, skjøl og skrásetingar, sum nevnd í stk. 1, skulu varðveitast í minst 5 ár eftir at handilssambandið er hildið uppat ella einstaka transaktiónin er framd. Persónsupplýsingar skulu strikast 5 ár eftir, at handilssambandið er hildið uppat ella einstaka transaktiónin er framd, um ikki annað er ásett í aðrari lóggávu.
+Stk. 3. [^1] Upplýsingar, skjøl og skrásetingar, sum nevnd í stk. 1, skulu latast víðari, tá Hvidvasksekretariatet ella aðrir skikkaðir myndugleikar venda sær til fyritøkur og persónar, fevnd av løgtingslógini, fyri at fáa upplýst, um hesi hava, ella tey seinastu 5 árini áðrenn fyrispurningin, hava havt handilssambond við nærri tilskilaðar persónar, og hvar hesi sambond eru ella hava verið. Víðarilatanin skal fara fram gjøgnum tryggar rásir og á ein hátt, ið tryggjar fullan trúnað um kanningarnar.

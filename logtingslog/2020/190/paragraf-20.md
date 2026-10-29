@@ -1,0 +1,2 @@
+## Linari krøv
+§ 20. Fyritøkur og persónar, fevnd av løgtingslógini, kunnu viðvíkjandi krøvunum í §§ 10 og 11 hava linari kundakunnleikamannagongdir í teimum førum, har mett verður, at váðin fyri hvítvasking og fígging av yvirgangi er avmarkaður. Fyritøkur og persónar skulu staðfesta, um handilssambandið ella transaktiónin viðførir ein avmarkaðan váða, áðrenn tey fremja linari kundakunnleikamannagongdir. Fyritøkan ella persónurin skal í váðametingini taka við teir lágváðafaktorar, sum koma fram í skjali 1, og aðrar lágváðafaktorar, sum mugu metast at hava týdning.

@@ -1,0 +1,1 @@
+§ 14. [^1] Fær ein fyritøka ella persónur kunnleika til, at tær upplýsingar, sum eru fingnar til vega sambært hesum kapitli, ikki eru nøktandi og ikki kunnu dagførast, skal fyritøkan ella persónurin seta hóskandi tiltøk í verk fyri at forða fyri váðanum fyri hvítvaski og fígging av yvirgangi, undir hesum at umhugsa, um handilssambandið skal niðurlagast, sbr. § 13, stk. 4.

@@ -1,0 +1,2 @@
+§ 8. Samtøk skulu, umframt krøvini í § 7, hava nøktandi skrivligar politikkir um dátuverju umframt nøktandi skrivligar politikkir og mannagongdir fyri at skifta um upplýsingar, sum verða umskiftar við tí endamáli at stríðast móti hvítvasking av peningi og fígging av yvirgangi, innan fyri samtakið.
+Stk. 2. Fyritøkur, sum eru partar av einum samtaki, skulu umframt krøvini í § 7 virka í samsvari við politikkir og mannagongdir hjá samtakinum.

@@ -1,0 +1,1 @@
+§ 27. [^1] Um ein eftirlitsmyndugleiki sambært hesi løgtingslóg ella toll- og skattafyrisitingin fær kunnleika til viðurskifti, sum gevur orsøk til at halda, at hesi kunnu hava tilknýti til hvítvask ella fígging av yvirgangi, sum er fevnt av fráboðanarskylduni í § 25, stk. 1, skal myndugleikin boða Hvidvasksekretariatet frá hesum.

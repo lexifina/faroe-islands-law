@@ -1,0 +1,1 @@
+§ 39. [^2] Tryggingareftirlitið kann áleggja teimum fyritøkum og persónum, sum eru nevnd í § 1, stk. 1, nr. 1-3, innanfyri eina freist, sum Tryggingareftirlitið hevur ásett, at seta neyðug tiltøk í verk í førum, har brot er framt á ásetingar í hesi løgtingslóg, ella reglur ásettar sambært løgtingslógini.

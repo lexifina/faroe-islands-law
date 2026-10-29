@@ -1,0 +1,3 @@
+## TAKS
+§ 51 b. [^1] TAKS kann hóast § 151 í skattalógini lata upplýsingar víðari til myndugleikar, sum luttaka í einum skipaðum samstarvi um fyribyrging av hvítvaski og fígging av yvirgangi, um upplýsingarnar kunnu hava týdning fyri uppgávuna hjá myndugleikunum at fyribyrgja og forða fyri hvítvask og fígging av yvirgangi.
+Stk. 2. Biður ein myndugleiki, ið luttekur í einum skipaðum samstarvi um fyribyrging av hvítvaski og fígging av yvirgangi, um upplýsingar frá TAKS, skal TAKS hóast § 151 í skattalógini, lata víðari upplýsingarnar, um upplýsingarnar hava týdning fyri uppgávuna hjá myndugleikanum at fyribyrgja ella forða fyri hvítvaski og fígging av yvirgangi.
