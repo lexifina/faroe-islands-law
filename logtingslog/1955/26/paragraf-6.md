@@ -1,0 +1,1 @@
+§ 6. [^2] Landsstýrið ger ætlan yvir savnsins inntøkur og útreiðslur eftir tilmæli frá fyristøðufólkinum. Hon gongur inn sum deild í fíggjarlóg landsins, hevur sama roknskaparár, endurlit og góðkenning.
