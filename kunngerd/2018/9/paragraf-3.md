@@ -1,0 +1,3 @@
+§ 3. Ein samskipari samskipar einstøku førleikametingina og vegleiðir tann, ið verður førleikamettur, sbr. § 4, stk. 1 og 5 í løgtingslógini.
+Stk. 2. Samskiparin ger og leggur til rættis, saman við tí, ið verður førleikamettur, skjalamappu, sum er persónlig, við upplýsingum um arbeiðsroyndir, skeið og skúlagongd hjá viðkomandi. Eisini kann skjalamappan fevna um metingarskjal frá aðrari førleikameting, sbr. § 4, stk. 3 í løgtingslógini.
+Stk. 3. Tann, ið verður førleikamettur skal virkin taka lut í at fáa innihaldið í skjalamappuni so fullfíggjað, sum til ber, og hevur ábyrgdina av, at upplýsingarnar í mappuni eru rættar.

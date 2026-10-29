@@ -1,0 +1,4 @@
+## Hvussu førleikametingin verður framd
+§ 6. Tey, sum stíla fyri førleikameting, t.e. samskipari og tann, ið førleikametir, skulu hava nøktandi vitan og venjing í at meta førleika sambært galdandi lóggávu innan avvarðandi øki, sbr. §§ 5-6 í løgtingslógini.
+Stk. 2. Góðkendir útbúgvingarstovnar, sum gera førleikametingar, seta fakbólk við umboðum úr viðkomandi yrkisgrein ella útbúgving, sum skal vera við til at tryggja, at endamálið við førleikametingini verður rokkið, og at úrslitini frá førleikametingini eru í samsvari við tey krøv, sum eru galdandi fyri einstøku útbúgvingina, uttan mun til staðseting.
+Stk. 3. Tey, ið ynskja at verða førleikamett, skulu venda sær til avvarðandi útbúgvingarstovn ella tann stovn, sum hevur yvirskipaðu samskipanina av førleikametingini um hendur, og søkja um at verða førleikamett.
