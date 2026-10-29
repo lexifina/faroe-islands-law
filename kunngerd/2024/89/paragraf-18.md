@@ -1,0 +1,1 @@
+§ 18. Persónur, sum hevur galdandi heilsuprógv, hevur skyldu at fara til nýggja læknakanning, um tað í gildistíðarskeiðnum á heilsupróvnum henda slíkar broytingar í heilsustøðuni, at persónurin má meta tað verða ivasamt, um viðkomandi framhaldandi er skikkaður at arbeiða umborð á skipi, ella er skikkaður at hava kagtænastu.

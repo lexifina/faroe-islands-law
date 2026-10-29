@@ -1,0 +1,10 @@
+## Skjal 4
+Serligt um kanningar, tá ið hin kannaði hevur eitt BMI omanfyri 40
+Um hin kannaði hevur eitt BMI (Body Mass Index) omanfyri 40, skal verða gjørd ein ítøkilig meting av, hvørt viðkomandi er skikkaður at røkja vanligu arbeiðsuppgávurnar og uppgávur í neyðstøðu. Víst verður eisini til skjal 3, ICD-kodurnar E65-68.
+Í hesum sambandi kann verða viðkomandi at gera fysiskar kanningar, sum partur av grundarlagnum undir heildarmetingini av, hvørt hin kannaði er skikkaður til skipstænastu.
+Chester Step Roynd kann verða nýtt sum partur av hesi kanning. Chester Step Roynd er ein reproduserbarur háttur at fáa innlit í hjarta-æðra megina (kardiovaskuler kapasitet) og likamliga førleikan.
+Í staðin fyri Chester Step Roynd kunnu nýtast aðrar meira óbundar royndir. Til dømis ber til at biðja hin kannaða um at ganga tríggjar til seks trappuhæddir og síðani meta um, hvussu hin kannaði megnar hetta. Óbundnu royndirnar eru ikki reproduserbarar royndir, men kunnu nýtast at geva eina skjóta mynd av likamliga førleikanum, heruppií styrki, smidleika og motorikki.
+Sjóvinnulæknin kann nýta niðanfyri ásettu atlit í sambandi við óbundnu royndirnar til tess at meta um, hvørt hin kannaði er skikkaður at røkja vanligu arbeiðsuppgávurnar umborð á skipi og uppgávur í neyðstøðu.
+Vanligar fysiskar uppgávur umborð á skipi | Er hin kannaði, uttan hjálp frá øðrum, førur fyri: - at klíva upp í stigum og trappum - at klíva upp um høgar duragáttir
+Vanligar arbeiðsuppgávur umborð á skipi | Megnar hin kannaði, at: - arbeiða við ørmunum lyftum, - bukka seg og samla lutir upp av gólvinum, - standa uppi og ganga í longri tíðarskeið, - ganga í rúmum og økjum, ið eru trong, og - halda eina vanliga samtalu undir vanligari arbeiðsbyrðu.
+Uppgávur í neyðstøðu | Megnar hin kannaði, at: - lata seg í bjargingarvest ella yvirlivilsisdrakt, - rýma úr rúmi ella øki, sum eru fylt við royki, - hjálpa til í sambandi við evakuering av øðrum sjófólkum ella ferðafólki, - aka seg fram á hondum og knøum, og - handfara eldsløkkingarútgerðina.

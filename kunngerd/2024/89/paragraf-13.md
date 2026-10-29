@@ -1,0 +1,1 @@
+§ 13. Sjúkrahúsverkið kann við støði í frágreiðing um týdningin av niðursettari sjón ella niðursettari hoyrn fyri starv umborð á skipi frá serlækna í eygnasjúkum ella serlækna í oyrna-, næsa- og hálssjúkum víkja frá krøvunum til sjón sambært skjali 1 og krøvunum til hoyrn, sambært skjali 2, samanber § 7.

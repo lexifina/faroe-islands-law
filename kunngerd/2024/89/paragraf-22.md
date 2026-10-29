@@ -1,0 +1,1 @@
+§ 22. Sjóvinnustýrið kann, eftir ráðførslu við Sjúkrahúsverkið, taka aftur eina góðkenning sambært § 17, um sjóvinnulæknin grovliga ella ferð eftir ferð sýnir ósketni í sambandi við læknakanningar sambært hesi kunngerð.
