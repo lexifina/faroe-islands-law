@@ -1,0 +1,1 @@
+§ 4. Øll neyðug skjøl verða útflýggjað í sambandi við eftirlitið, undir hesum avrit av virkisætlan, tilfar, sum lýsir ætlan fyri avvarðandisamstarvi, avrit av skrivligum klagum um tilboð og tænastur, avrit av fundarfrásagnum frá starvsfólkafundum og annað viðkomandi tilfar.

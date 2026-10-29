@@ -1,0 +1,1 @@
+§ 7. Verður í eftirlitsfrágreiðingini staðfest, at tørvur er á ábótum, kann landsstýrismaðurin áleggja teimum, sum eru nevnd í § 2, innan fyri eina nærri ásetta freist at seta neyðug tiltøk í verk fyri at bøta um umstøðurnar.
