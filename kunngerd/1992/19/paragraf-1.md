@@ -1,0 +1,1 @@
+§ 1. Áðrenn landsstýrið velur stýrislimir, fáa tey feløg og stovnar, sum nevnd eru í hesi kunngerð, boð um innan ásetta freist at senda inn uppskotið til landsstýrið um valevni til stýrislimir og tiltakslimir.
