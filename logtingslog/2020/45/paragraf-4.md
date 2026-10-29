@@ -1,0 +1,2 @@
+§ 4. Landsstýrismaðurin ásetur nærri reglur um skipanina, undir hesum um stuðul eftir §§ 1-3, hvørjar fyritøkur koma undir skipanina, hvørjar útreiðslur eru fastar útreiðslur, afturgongd í umsetningi, endurrindan, fylgitreytir fyri at fáa stuðul, rindan av stuðuli, krøv til umsóknir, undir hesum at umsóknir skulu fara gjøgnum Vinnugluggan, skjalprógvan, roknskap, grannskoðan og frágreiðingar.
+Stk. 2. Landsstýrismaðurin kann í reglum sbrt. stk. 1 og eftir avtalu við viðkomandi landsstýrismann leggja stuðulsumsitingina til ein myndugleika undir avvarðandi landsstýrismanni.

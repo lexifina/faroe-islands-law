@@ -1,0 +1,1 @@
+§ 7. Leggur landsstýrismaðurin sínar heimildir eftir lógini til myndugleika undir landsstýrismanninum ella til myndugleika, sum hoyrir undir annan landsstýrismann, sbr. § 4, stk. 2, kann hann áseta, at avgerðir, sum myndugleikin hevur tikið, ikki kunnu kærast til annan fyrisitingarligan myndugleika.
