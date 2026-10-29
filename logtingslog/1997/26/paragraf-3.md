@@ -1,0 +1,2 @@
+§ 3. Landsstýrinum verður heimilað heilt ella lutvíst at gjalda lán ella part av láni sum hava landskassaborgan og umleggja goldnu upphæddina til eitt rentu- og avdráttarfrítt lán, ið verður standandi í fiskifarinum og tryggjað við veðrætti, treytað av, at annar veðhavari niðurskrivar part av láni í fiskifarinum ella at eginpeningurin í fiskifarinum verður hækkaður við eini upphædd ásett av landsstýrinum.
+Stk. 2. Lánið sambært stk. 1 verður niðurskrivað eftir einum áramáli, ið verður ásett av landsstýrinum.

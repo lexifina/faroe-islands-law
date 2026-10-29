@@ -1,0 +1,4 @@
+§ 5. Um so er, at fiskifar, ið hevur fingið umlagt lán v.m. samb. §§ 2-4 skiftir eigara, áðrenn øll skuldin er niðurskrivað, fellur skuldin, heruppií tann parturin, sum er niðurskrivaður, til gjaldingar.
+Stk. 2. Landsstýrið kann eftir umsókn loyva eigara, at um fiskifarið verður selt, kann niðurskriving sambært §§ 2-4 av restskuldini halda fram í fiskifari, ið verður útvegað innan 1 ár eftir søludagin. Verður nýggja fiskifarið selt, áðrenn øll skuldin er niðurskrivað, fellur eisini tann parturin, sum er niðurskrivaður í tí gamla fiskifarinum, til gjaldingar.
+Stk. 3. Landsstýrið kann eftir umsókn loyva keypara, at niðurskriving av restskuldini sambært §§ 2-4 heldur fram.
+Stk. 4. Tryggjað verður landskassanum upprykkjandi pant fyri alla skuldina, heruppií tann partin, sum er niðurskrivaður sambært §§ 2-4.

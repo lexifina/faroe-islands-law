@@ -1,0 +1,2 @@
+§ 4. Landsstýrinum verður heimilað heilt ella lutvíst at umleggja eina av landskassanum goldna borgan í fiskifari til rentu- og avdráttarfrítt lán, treytað av, at eigarin av fisikfarinum hækkar eginpeningin í fiskifarinum við eini upphædd, ið verður ásett av landsstýrinum.
+Stk. 2. Lánið verður tryggjað við veðrætti í fiskifarinum, og verður niðurskrivað eftir einum áramáli, ið verður ásett av landsstýrinum.

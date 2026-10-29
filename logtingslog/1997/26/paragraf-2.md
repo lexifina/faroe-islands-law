@@ -1,0 +1,1 @@
+§ 2. Landsstýrinum verður heimilað heilt ella lutvíst eftir umsókn at umleggja stuðuls-, kurstaps- og serlán í fiskiførum, sum koma undir hesa lóg, til rentu- og avdráttarfrítt studningslán, sum verður niðurskrivað eftir einum áramáli, ið verður ásett av landsstýrinum.
