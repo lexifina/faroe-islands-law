@@ -1,0 +1,2 @@
+§ 3. Kommunan skal senda Umhvørvisstovuni byggisamtyktir, heruppií broyttar byggisamtyktir, í seinasta lagi 4 vikur eftir, at hesar eru góðkendar av landsstýrismanninum sbrt. § 7 a, stk. 2, í løgtingslógini.
+Stk. 2. Í seinasta lagi sama dag, sum kommunan kunnger ætlaða byggisamtykt ella broyting í byggisamtykt, skal kommunan boða Umhvørvisstovuni frá hesum, á tann hátt, sum Umhvørvisstovan ásetir sbrt. § 4.

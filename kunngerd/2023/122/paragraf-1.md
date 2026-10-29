@@ -1,0 +1,2 @@
+§ 1. Í lendisskránni eru skrásettar allar góðkendar byggisamtyktir. Lendisskráin skal vísa øll byggi-samtyktini viðkomandi kort og tekstskjøl.
+Stk. 2. Í lendisskránni eru eisini frámerki um allar ætlaðar byggisamtyktir ella broytingar í byggi-samtyktum, tá hesar eru lýstar við kunngerð sbrt. § 6, stk. 1, í løgtingslógini. Frámerki skal setast í lendisskránna í seinasta lagi dagin eftir, at Umhvørvisstovan hevur fingið boð frá kommununi sbrt. § 3, stk. 2.
