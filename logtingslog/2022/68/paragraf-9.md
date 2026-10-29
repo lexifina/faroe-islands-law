@@ -1,0 +1,3 @@
+§ 9. Í málum um brot sambært § 8, har Arbeiðs- og brunaeftirlitið metir, at nøktandi greidleiki er á veruligu umstøðunum í málinum, at brotið ikki kemur undir strangari revsing enn sekt, kann Arbeiðs- og brunaeftirlitið við einum fyrisitingarligum sektaruppskoti boða frá, at málið kann verða avgjørt uttan rættarmál, um tann, ið hevur framt brotið, játtar seg sekan í brotinum og váttar at gjalda sektina sambært sektaruppskotinum innan nærri ásetta freist.
+Stk. 2. Reglurnar í rættargangslógini um innihald í ákæruritum og um, at skuldsetti ikki hevur skyldu til at úttala seg, verða at nýta samsvarandi.
+Stk. 3. Góðtekur tann, ið hevur framt brotið, sektina, fellur onnur rættarsókn burtur.

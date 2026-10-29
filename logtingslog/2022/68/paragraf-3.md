@@ -1,0 +1,2 @@
+§ 3. Landsstýrismaðurin ásetur nærri reglur um løggilding og akkreditering av virkjum, kanningarstovum og øðrum stovnum og persónum til at gera tekniskar royndir, kanningar og góðkenningar av góðskuskipanum innan mátitekniska økið.
+Stk. 2. Landsstýrismaðurin ásetur nærri reglur um, hvørjar kanningar og tekniskar royndir, ið løggild og akkrediterað virki, kanningarstovur og aðrir stovnar og persónar kunnu gera av tekniskum mátitólum og háttaløgum.
