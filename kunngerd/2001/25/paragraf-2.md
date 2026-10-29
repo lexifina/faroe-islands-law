@@ -1,0 +1,2 @@
+§ 2. Lærari, sum undirvísir í verkligum yrkislærugreinum, skal, fyri at verða settur í starv, hava grundútbúgving sum yrkislærdur innan viðkomandi fakøki, ella hava hægri viðkomandi útbúgving, umframt vanliga í minsta lagi 5 ára viðkomandi og tíðarhóskandi vinnulívsroyndir.
+Stk. 2. Lærari, sum undirvísir í lærugreinum á D-stigi og lægri, skal, fyri at verða settur í starv, í minsta lagi hava hóskandi útbúgving í einum ella fleiri fakøkjum, umframt tíðarhóskandi vinnulívsroyndir.

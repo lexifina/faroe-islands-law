@@ -1,0 +1,3 @@
+6. mars 2001 Nr. 25
+# Kunngerð um undirvísingarførleika á yrkisskúlum
+Við heimild í § 45 í løgtingslóg nr. 94 frá 29. desember 1998 um yrkisútbúgvingar, sum broytt við løgtingslóg nr. 65 frá 10. mai 2000, § 17, stk. 5, í løgtingslóg nr. 107 frá 29. desember 1998 um støðisútbúgving innan fyrisitingar-, handils- og skrivstovuøkið (FHS-útbúgvingar), § 17, stk. 5, í løgtingslóg nr. 41 frá 23. apríl 1999 um støðisútbúgving innan tøkni (SIT-útbúgvingar), § 13, stk. 4, í løgtingslóg nr. 42 frá 23. apríl 1999 um hægri tøkniliga próvtøku (HT-útbúgvingar) og § 13, stk. 4, í løgtingslóg nr. 43 frá 23. apríl 1999 um hægri handilspróvtøku (HH-útbúgvingar), verður ásett:

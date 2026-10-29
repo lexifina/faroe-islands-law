@@ -1,0 +1,1 @@
+§ 10. Landsstýrismaðurin kann eftir umsókn gera undantøk frá ásetingunum í hesi kunngerð, tá ið hildið verður, at heilt serlig viðurskifti gera seg galdandi. Landsstýrismaðurin kann biðja um tilráðing frá skúlanum í slíkum málum.

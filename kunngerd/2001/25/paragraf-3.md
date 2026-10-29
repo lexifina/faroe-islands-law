@@ -1,0 +1,1 @@
+§ 3. Lærari, sum undirvísir á C-stigi, skal, fyri at verða settur í starv, hava eina viðkomandi hægri útbúgving, í minsta lagi á bachelor-stigi. Síðustillaður við bachelor er lærari við aðrari hægri útbúgving og serfrøðingavitan, ið er fingin til vega gjøgnum yrkisliga eftirútbúgving og arbeiðsroyndir, og sum er góðkend av landsstýrismanninum.

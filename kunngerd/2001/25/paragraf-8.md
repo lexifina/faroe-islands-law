@@ -1,0 +1,1 @@
+§ 8. Í seinasta lagi 2 ár eftir at lærari er settur í fast starv, skal hann hava tikið námsfrøðiliga útbúgving, sum landsstýrismaðurin skipar fyri ella hevur góðkent, sbr. Námsfrøðikunngerðina, um henda útbúgving ikki er lokin frammanundan.
