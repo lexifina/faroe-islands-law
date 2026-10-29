@@ -1,0 +1,1 @@
+§ 4. Arbeiðsøkið hjá Heilivágsráðnum fevnir um heilivágsútreiðslur á heilsuøkinum, undantikið útreiðslur til serstakan sjúkrahúsheilivág. Harumframt um útreiðslur til kostískoyti, hjálparráð, medisinska útgerð og annað, sum Heilsutrygd veitir stuðul til.
