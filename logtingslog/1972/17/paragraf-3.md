@@ -1,0 +1,5 @@
+§ 3. Landsantikvarurin hevur eftirlit við bygdasøvnum og veitir teimum hjálp og leiðbeining.
+2. stk. Stuðulssøkjandi bygdasavn sendir landsantikvarinum ársroknskap við frágreiðing, byggiætlanir og ætlanir um keyp av bygningum og jarðføstum fornminnum til fakligar góðkenningar. Landsantikvarurin sendir landsstýrinum tað til fíggjarligar góðkenningar við tilráðing síni, áðrenn studningur verður veittur eftir hesi lóg.
+3. stk. Gevst eitt bygdasavn við virki sínum ella fellur í órøkt, ger landsantikvarurin av, hvussu gripir tess skulu varðveitast, til bygdasavn aftur verður góðkent innan avvarðandi virkisøki, og hvussu skyldur tess annars skulu røkjast.
+4. stk. Fornminni og gripir, sum góðkent bygdasavn eigur, mugu ikki verða latin av hondum aftur uttan góðkenning.
+5. stk. [^1] Innsavnan og varðveitsla av skjølum, bondum o.t. eftir § 1, 2. stk. í hesi lóg, sum bygdasøvn átaka sær, krevja góðkenning av landsskjalavørðinum, og veitir hesin bygdasøvnunum hjálp og leiðbeining. Hann hevur eftirlit við søvnunum í tann mun, tey virka sum skjalasavn.

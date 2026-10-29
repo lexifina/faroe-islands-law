@@ -1,0 +1,3 @@
+§ 1. Bygdasøvn, sum innan avmarkað virkisøki reka mentunarsøguligt virksemi sum nevnt í § 2 í løgtingslóg nr. 32 frá 2. mai 1952 um fornminni, kunnu fáa almennan stuðul, tá tey lúka treytirnar í hesi lóg.
+2. stk. [^1] Bygdasøvn, sum virka eftir hesi lóg, kunnu átaka sær innsavnan og varðveitslu av skjølum, myndum, ljóð- og myndabondum og øðrum tilfari av bygdasøguligum týdningi.
+3. stk. [^1] Tað er skylda hjá alment stuðlaðum bygdasavni at halda viðlíka varðar millum bygdir innan virkisøki sítt. Útreiðslur, sum standast av hesum, verða fult endurgoldnar úr avvarðandi kommunukassa, sbr. reglugerð frá 29. oktober 1940.

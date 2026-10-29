@@ -1,0 +1,5 @@
+§ 4. [^1] Landið letur góðkendum bygdasavni í studningi 60% av rakstrarútreiðslunum.
+2. stk. Upp í hesar verður roknað: Samsýning til starvsfólk, keyp av gripum, røkt av fornminnum, hiti, ljós, reingerð, innbúgv, leiga av høli o.t. ella renta og avskriving av bygningum, savnið hevur, tá tikið verður við, at landið letur 50% í studningi til keyp ella bygging av savnshúsum og til keyp av jarðføstum fornminnum og bygningum, ið kunnu góðtakast sum fornminni.
+3. stk. Studningur verður goldin afturút fyri eitt ár í senn, roknaður eftir góðkendum, grannskoðaðum roknskapi við frágreiðing. Studningsforskot kann verða veitt, grundað á góðkenda rakstrarætlan. Umsóknir um studningsforskot verða viðgjørdar sbr. reglurnar í § 3, stk. 2.
+4. stk. Rakstrarútreiðslur, sum ikki koma undir studningsendurgjald, verða hildnar av avvarðandi bygdasavni og kommunum innan virkisøki savnsins.
+5. stk. [^1] Dokumenteraðar útreiðslur í samband við fyrireikingar til stovnseting av bygdasøvnum kunnu verða tiknar við sum studningsgrundarlag í fyrsta roknskaparári hjá einum bygdasavni ella einum lokalum fornminnisfelag.
