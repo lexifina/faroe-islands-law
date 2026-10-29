@@ -1,0 +1,3 @@
+§ 3. Eigari av skógfriðingarskyldugum lendi hevur skyldu at halda haldgott stik rundan um alt lendi, sum kann halda seyði og stórdýrum úti, líka mikið hvør garðskylduna í grundini hevur. Tað er eisini ein treyt, at lendið er vetrarfriðað og hevur hóskandi nógvar breytir. Tað er eigarans skylda at umsita breytirnar og forkoma tílíkum óruddi, sum kann lýta viðarlundina innan og eisini uttanum.
+Øll forstlig tiltøk eitt nú niðurseting, felling og tynning verða útinnt av skógfriðingarnevndini, sum hevur fullt ræði á øllum vøkstri og dýralívi í viðarlundini.
+Almenningurin hevur onga atgongu uttan eftir loyvi nevndinnar, men nevndini áliggur at loyva atgongu mest gjørligt uttan at nerva vakstrarlíkindi viðarlundinnar.
