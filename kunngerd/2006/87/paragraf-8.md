@@ -1,0 +1,3 @@
+§ 8. Tað áliggur eftirlitsverjanum at hjálpa við ráðum og vegleiðing viðvíkjandi umsorgan og uppaling av barninum og síggja til, at uppalararnir gera sína skyldu mótvegis barninum.
+Stk. 2. Eftirlitsverjin eigur serliga at ansa eftir heilsustøðu barnsins, herundir at kosturin er rættur og regluligur, klæði, svøvnpláss og siðalagnum í heiminum sum heild. Eisini eigur eftitlitsverjin at ansa eftir frítíðarítrivum barnsins, hvønn barnið søkir sær samlag við og fíggjarviðurskiftunum í heiminum.
+Stk. 3. Eftirlitsverjin eigur eisini at geva systkjum og øðrum børnum í heiminum gætur. Um tørvur er á at víðka eftirlitið til eitt ella fleiri av hesum børnum, skal eftirlitsverjin geva barnaverndarnevndini tilmæli um hetta.

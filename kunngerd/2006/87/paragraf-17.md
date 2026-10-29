@@ -1,0 +1,1 @@
+§ 17. Er eftirlit við barni, sum er sett heiman, áðrenn tað er fylt 14 ár, áliggur tað eftirlitsverjanum, í minsta lagi eitt fjórðingsár áðrenn undirvísingarskyldan heldur uppat, at fara undir samráðingar við fosturforeldrini hjá barninum um, hvar barnið framyvir skal vera. Tað eigur at verða tosað við barnið um møguligu broytingina.

@@ -1,0 +1,1 @@
+§ 19. Er barnið sett í læru ella tænastu, skal eftirlitsverjin føra eftirlit við, at lønin verður nýtt á ein ráðiligan hátt. Ein hóskandi upphædd av lønini kann nýtast til lummapening, meðan lønin annars serliga eigur at verða nýtt til rímiligar klæðnaútreiðslur.
