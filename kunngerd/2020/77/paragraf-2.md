@@ -1,0 +1,3 @@
+## Virkisøki
+§ 2. Á øllum fiskiførum undir føroyskum flaggi, tó undantikin fiskifør flokkað í bólki 5, sambært § 19, stk. 1, nr. 6 í løgtingslógini, og fiskifør við fiskiloyvi sambært kunngerð um skipan av fiskiskapinum eftir hummara á føroysku landleiðunum, er tað skylda at hava, føra og senda elektroniska veiðidagbók uttan mun til, hvar fiskað verður. Skyldan at føra og at senda er eisini galdandi, hóast ongin veiða er.
+Stk. 2. Umframt elektroniska veiðidagbók, sambært stk. 1, skulu øll fiskifør undir føroyskum flaggi hava eina veiðidagbók í pappírssniði, sum Vørn hevur løggilt, at nýta í styttri tíðarskeið, um elektroniska veiðidagbókin, vegna brek, er óvirkin.

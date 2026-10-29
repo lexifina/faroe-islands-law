@@ -1,0 +1,5 @@
+## Ásetingar um at senda veiðidagbókaupplýsingar
+§ 4. Skrásettu upplýsingarnar í elektronisku veiðidagbókini um veiðu í tíðarskeiðinum 00.00-23.59 UTC skulu í minsta lagi sendast Vørn eina ferð um samdøgrið í tí samdøgrinum, veitt er, og í seinasta lagi kl. 23.59 UTC sama samdøgur.
+Stk. 2. Upplýsingarnar í elektronisku veiðidagbókini skulu sendast Vørn í elektroniskum XML-sniði, sum skal vera bronglað samsvarandi HTTPS.
+Stk. 3. Veiðidagbókaskipanin hjá Vørn skal kvitta fyri móttøku av elektroniskum fráboðanum móttiknar sambært hesi kunngerð. Kvittanin skal tilskila, um fráboðanin er komin fram uttan villur, ella um fráboðanin hevur villur, sum avsendarin skal rætta og síðan senda fráboðanina umaftur. Fráboðan verður ikki roknað at vera komin fram til Vørn, um avsendarin ikki fær aftursvar, ella um aftursvarið vísir, at fráboðanin er komin fram við villum.
+Stk. 4. Skiparin ella bátsformaðurin hevur ábyrgdina av, at sendiútgerðin kann senda sambært stk. 2, og at elektroniska veiðidagbókin verður send Vørn sambært ásetingum í hesi kunngerð.
