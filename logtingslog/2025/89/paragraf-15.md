@@ -1,0 +1,1 @@
+§ 15. Um grøðin av náttúruávum ella øðrum serligum ávum, undir hesum, tá ið fuglur legst á grøði heilt ella partvíst forferst ella er fyri stórum skaða, hevur framleiðarin rætt til stuðul, sum svarar til ta mistu inntøkuna. Stuðulin skal tá gevast upp sum skattskyldug inntøka.
