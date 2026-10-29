@@ -1,0 +1,3 @@
+§ 3. Uppmáling verður gjørd eftir reglunum í uppískoytinum I í sáttmálanum.
+Stk. 2. Skip, ið er mált upp og hevur fingið málibræv, skal málast upp umaftur, um tað, eftir at skipið er uppmált verða broytingar – eisini í nýtsluni av rúmum ella í ferðafólkatalinum, skipið hevur loyvi til at flyta – ið ávirkar brutto- ella nettotonsatalið. Nettotonsatalið ásett fyri skipið kann tó ikki minkast, áðrenn 12 mánaðir eru farnir frá degnum, málibrævið er givið út, uttan so at gjørdar eru munandi umbyggingar ella broytingar við skipinum.
+Stk. 3. Ummáling verður eisini at gera, tá ið myndugleikin heldur tað vera neyðugt.

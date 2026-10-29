@@ -1,0 +1,3 @@
+§ 7. Málibrævið fer úr gildi, um gjørdar verða tílíkar broytingar í innrætting skipsins, gerð og rúminnihald, nýtslu av rúmi, loyvda ferðafólkatalinum, loyvda fermingarmarki ella loyvdu dýpt skipsins, ið føra við sær eina øking í brutto- ella nettotonsatalinum.
+Stk. 2. Verður skip, ið hevur millumlanda málibræv (1969), føroysk ogn, er málibrævið galdandi, til skipið fyrstu ferð kemur í føroyska havn, tó í mesta lagi í 3 mánaðir frá degnum, skipi› er fráboðað til skipaskránna.
+Stk. 3. Málibræv, sum farið er úr gildi, skal av reiðara skipsins ella førara beinanveg sendast myndugleikanum, uttan so at gildisbrotið er orsaka› av, at skipið er vorðið útlendsk ogn.
