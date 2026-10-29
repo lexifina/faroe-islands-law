@@ -1,0 +1,4 @@
+## Eftirlit o.a. [^7]
+§ 16 a. [^5] [^13] Løgregluni er hvørja og eina tíð loyvt at krevja, at hann, sum koyrir akfar ella ríður á rossi, ger útandingar-, sveitta- ella spýttroynd ella letur eyguni kannað. Løgreglan kann krevja, at ein persónur ger útandingarroynd á øðrum staði, enn komið er fram á hann, um orsøk er til at halda, at hann hevur framt brot á § 15 og § 16.
+Stk. 2. [^5] Løgregluni er loyvt at føra persón fram til at taka blóð- og landroynd, um grund er til at halda, at hann hevur brotið § 15 ella § 16, stk. 1-4, ella hann sýtir ella ikki er førur fyri at vera við til útandingarroynd. Er illgruni um annað enn ávirkan av rúsdrekka, kann løgreglan føra tann, sum um varðar, fram til læknakanningar. Sama er við illgruna um ávirkan av rúsdrekka, tá ið serligar umstøður mæla til tess.
+Stk. 3. Landsstýrið kann gera gjøllari ásetingar um tær royndir og kanningar, sum nevndar eru í 1. stk. og 2. stk.

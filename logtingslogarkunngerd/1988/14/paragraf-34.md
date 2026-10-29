@@ -1,0 +1,6 @@
+## Bákn og tekn
+§ 34. Tá ið neyðugt er til tess at fyribyrgja og verja fyri vanda, skal tann, ið koyrir, gera onnur ferðandi var við vandan við ljóð- ella ljósbákni. Í lyktatendringartíð skal akfar nýta ljósbákn í staðin fyri ljóðbákn, uttan so er, at vandin er hóttandi. Ljóðbákn má ikki verða nýtt í øðrum førum, enn tilskilað í 1. og 2. pkt., og má ikki vara longur enn neyðugt. Ljósbákn verður givið við blunki við fjar- og nærljósum á akfarinum.
+Stk. 2. [^4] Akfar skal geva tekn, áðrenn farið verður avstað frá vegjaðara og áðrenn vent og sneitt verður. Tá ið skift verður um farbreyt ella akfarið verður førkað munandi til viks, skal tekn verða givið, um tað er neyðugt hinari ferðsluni til leiðbeiningar. Teknið verður givið við blunkljósi, har sum tað er kravt ella loyvt at seta tað á akfarinum, og annars við at rætta hondina beint út.
+Stk. 3. [^4] Akfar, ið steðgar ella brádliga minkar ferðina, skal geva tekn, tá ið tað er kravt øðrum til leiðbeiningar. Teknið verður givið við steðglykt, har sum tað er kravt ella loyvt at seta hana á akfarinum, og annars við at hava hondina á loft.
+Stk. 4. Tey tekn, ið nevnd eru í stk. 2 og 3, skulu verða givin í rúmari tíð undan tilætlaðu atgerðini. Steðgað skal vera við tekngevingini í seinasta lagi, tá ið atgerðin er at enda komin.
+Stk. 5. [^4] Landsstýrismaðurin kann áseta reglur um nýtslu av skaðablunki.

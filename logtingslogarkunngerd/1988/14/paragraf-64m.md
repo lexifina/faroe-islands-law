@@ -1,0 +1,2 @@
+§ 64 m. [^27] [^4] [^28] Avgerðir hjá Akstovuni, tiknar við heimild í hesi lóg, ella reglum, givnar við heimild í hesi lóg, kunnu kærast til Føroya Kærustovn innan 4 vikur eftir, at avgerðin er fráboðað viðkomandi.
+Stk. 2. [^4] [^28] Landsstýrismaðurin kann leggja uppgávur sambært lógini til annan almennan stovn ella til ein einskildan felagsskap og avgera, at kærur um avgerðir hjá hesum kunnu kærast til Føroya Kærustovn.

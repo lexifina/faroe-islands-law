@@ -1,0 +1,5 @@
+§ 35 c. [^9] Er akfar í lyktatendringartíðini steðgað ella parkerað á vegi, skal støðuljós (parkeringsljós), baklyktir og nummarspjaldraljós vera tendrað. Landsstýrismaðurin kann áseta reglur um, at eisini aðrar lyktir enn tær, sum nevndar eru í 1. pkt., skulu ella kunnu vera tendraðar.
+Stk. 2. Akfar, sum ikki skal vera útgjørt við lyktum, skal, tá ið tað í lyktatendringartíðini er steðgað ella parkerað á vegi, vera merkt eftir reglum, sum landsstýrismaðurin ásetir.
+Stk. 3. Aðrar lyktir enn tær, sum stk. 1 og 2 fata um, er ikki loyvt at hava tendraðar.
+Stk. 4. Er motordrivið akfar, ið ikki er longri og breiðari enn ávikavist 6 m og 2 m, parkerað fram við vegjaðaranum í fjølbygdum øki, nýtist tað einans at hava støðuljós (parkeringsljós) og baklykt inn móti miðjuni á vegnum tendraðar, uttan so, at akfarið er koplað aftrat øðrum akfari. Landsstýrismaðurin kann áseta reglur um, at serlig síðulykt verður nýtt ístaðin.
+Stk. 5. Tá ið samankoplað akfør steðga ella verða parkerað, hevur ásetingin í § 35, stk. 1, pkt. 2 gildi.

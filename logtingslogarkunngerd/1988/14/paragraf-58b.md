@@ -1,0 +1,5 @@
+## Inndráttur [^9]
+§ 58 b. [^9] [^8] Tá serliga grov ella endurtakandi brot verða framd á ferðslulógina, kann tað við brotinum nýtta akfarið verða inndrigið, um so er, at tað verður mett at vera neyðugt fyri at forða fyri fleiri brotum á ferðslulógina, og um inndrátturin ikki er órímiligur.
+Stk. 2. [^4] Eitt prutl, sum er konstruktivt broytt við tí fyri eyga at økja um ferðina, ella sum er í slíkum ólógligum standi, at tað, tá tað snýr seg um lítið prutl, kann koyra við 43 km/t ella meira, og tað, tá tað snýr seg um stórt prutl, kann koyra við 64 km/t ella meira, skal dragast inn, um eigarin (nýtarin) av prutlinum tvær ferðir áður innan fyri tey seinastu 3 árini, áðrenn nýggja brotið er framt, hevur gjørt seg sekan í líknandi broti á § 4, stk. 2. Sloppið kann vera undan inndrátti, um serligar orsøkir tala fyri hesum.
+Stk. 3. [^6] [^4] Ikki-skrásetingarskyldugt lendisakfar skal dragast inn, um eigarin tvær ferðir áður innan fyri tey seinastu 3 árini hevur gjørt seg sekan í broti á ferðslulógina við at koyra á ferðslulógarinnar øki við ikki-skrásetingarskylduga lendisakfarinum.
+Stk. 4. [^6] [^4] Annars eru reglurnar í borgarligu revsilógini um inndrátt galdandi.

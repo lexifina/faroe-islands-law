@@ -1,0 +1,3 @@
+## Framviðkoyring og farbreytarskifti í tættari ferðslu
+§ 31 d. Er ferðslan tøtt og tekur seg fram í fleiri røðum við ferð, ið verður avgjørd av teimum, ið undan koyra, er tað ikki at rokna fyri framumkoyring, um akfar á eini farbreyt fer fram við akfari á aðrari farbreyt. Í tílíkum førum er ikki loyvt at skifta um akbreyt, uttan so at tað krevst eftir § 29b, stk. 1, § 29c, stk. 1, § 29 d, stk. 3, ella tað er til tess at seta akfarið ella steðga.
+Stk. 2. Fer akfar eftir farbreyt, ið við merking er kannað ávísum slag av ferðslu, fram við akfari á aðrari farbreyt, ið ikki er kannað tílíkum slag av ferðslu, ella verður farið fram við tí, er hetta ikki at skilja sum framumkoyring.

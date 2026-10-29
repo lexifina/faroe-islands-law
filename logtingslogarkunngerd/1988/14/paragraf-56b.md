@@ -1,0 +1,4 @@
+§ 56 b. [^20] Dómur um endurgjaldspurningin kann gerast undan ella eftir avgerð í spurninginum um revsing.
+Stk. 2. [^20] [^21] Tryggingarfelagið, sum tikið hevur við ábyrgdartrygging fyri motorakfarið, ið ákærdi nýtti, ella tann, ið eftir § 55 d, stk. 3, ábyrgist fyri skaðan, ið hendur er, verður, hvat endurgjaldspurninginum viðvíkur, roknaður sum partur í málinum og skal hava komuboð til hvønn rættarfund við freist eftir § 222 í rættargangslógini, sum er galdandi fyri vitnir í revsimálum.
+Stk. 3. [^20] Koma eftir § 54 c onnur enn ákærdi undir endurgjaldsábyrgd, skulu eisini hesi hava tilsøgn um hvønn rættarfund við tí í stk. 2 nevndu freist. Reglurnar í § 56, stk. 1, 2. pkt. og stk. 2 verða nýttar samsvarandi.
+Stk. 4. [^20] [^21] Tá ið endurgjaldspurningurin kemur til avgerðar í málinum, kann rætturin eftir reglunum í kapitli 40 í rættargangslógini, áleggja sakarkostnað.

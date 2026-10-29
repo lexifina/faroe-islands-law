@@ -1,0 +1,3 @@
+## Frákenning av førararætti [^9]
+## Rúsdrekkakoyring og rúsevnakoyring [^5] [^13]
+§ 59. [^9] [^5] [^4] [^13] Rætturin til at koyra motordrivið akfar, sum koyrikort krevst til, tó ikki lítið prutl, skal frádømast førara av slíkum akfari treytaleyst, um hann hevur gjørt seg sekan í rúsdrekkakoyring, og alkoholstyrkin í blóðinum er hægri enn 0,50 promillu, ella alkoholstyrkin í útandingarluftini er hægri enn 0,25 mg pr. litur luft ella gjørt seg sekan í broti á § 15, stk. 1, nr. 1 ella 3, ella § 15, stk. 1, nr. 2 ella 4, har nøgdin av tetrahydrocannabinol (THC) í blóðinum, undir ella aftaná koyring, er omanfyri 0,003 mg THC pr. kg blóð.

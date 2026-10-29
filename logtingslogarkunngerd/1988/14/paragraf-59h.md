@@ -1,0 +1,2 @@
+## Koyriforboð[^8]
+§ 59 h. [^8] [^5] [^2] Um brot, sum er umfatað av § 59 a, stk. 1 ella 5 er gjørt innan fyri trý tey fyrstu árini eftir, at førarin fekk koyrirættindini fyrstu ferð, fær førarin koyriforboð í staðin fyri treytaða frádøming av koyrirættindunum. Tá koyriforboð er givið, verða koyrirættindini at koyra tey í § 59 nevndu akfør tikin aftur, til serlig koyrifrálæra er gjøgnumførd ella luttikið er í skeiði um rúsdrekka, rúsevni og ferðslu, RRF-skeiði, sbr. § 18 d, stk. 1 og 2, og eftiransandi koyriroynd er staðin.

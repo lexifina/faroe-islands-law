@@ -1,0 +1,1 @@
+§ 46 a. Sum gongufólk er eisini at rokna tann, ið skreiðir á skíðum, skoytum, rulluskoytum og tílíkum, og tann, ið koyrir barnavogn ella spælivogn. Tann, ið koyrir á akstól, leiðir súkklu ella prutl, er somuleiðis at rokna sum gongufólk.

@@ -1,0 +1,2 @@
+§ 35 d. [^9] § 35 c hevur ikki gildi, um vegurin hevur so gott ljós, at akfarið skilliga sæst nóg langt burturi, ella um tað er steðgað ella parkerað á parkeringsplássi ella øðrum øki, ið er merkt av til parkering.
+Stk. 2. [^4] Ljós nýtist heldur ikki at vera tendrað á tvíhjólaðari súkklu, tvíhjólaðum prutli ella tvíhjólaðari motorsúkklu við ongum síðuvogni, um so er, at akfarið verður sett uttast við vegjaðaran.

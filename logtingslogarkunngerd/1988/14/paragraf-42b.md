@@ -1,0 +1,5 @@
+## Talið á ferðandi, ið lógliga kunnu verða flutt
+§ 42 b. Talið á ferðandi á forsetrinum í einum bili, má ikki fara upp um talið á sitiplássum til ferðandi, sum hava trygdarbelti. Ásetingin í 1. pkt. verður at nýta samsvarandi viðvíkjandi flutningi av ferðandi á baksetrinum ella baksetrunum í einum bili.
+Stk. 2. Ásetingin í stk. 1, 1. pkt. verður ikki at nýta á flutning í bilum, har sitiplássini til ferðandi á forsetrinum ikki hava trygdarbelti. Ásetingin í stk. 1, 2. pkt. verður ikki at nýta á flutning av ferðandi í bilum, har sitiplássini á baksetrinum ella baksetrunum ikki hava trygdarbelti.
+Stk. 3. Landsstýrismaðurin kann áseta reglur um, at stk. 1 ikki skal verða nýtt í serligum førum, heruppií tá flutt verða ferðandi, sum sambært reglum, ásettar sambært § 42, stk. 3 og § 42 a, stk. 5, sleppa undan at nýta trygdarútgerð, og tá tað snýr seg um serstøk sløg av koyring.
+Stk. 4. Tann ferðandi hevur skyldu til at ansa eftir, at ásetingin í stk. 1 og reglur, ásettar sambært stk. 3, verða hildnar. Fyri ferðandi, ið ikki eru fylt 15 ár, skal førarin tó síggja til, at reglan í stk. 1 og reglur, ásettar sambært stk. 3, verða hildnar.

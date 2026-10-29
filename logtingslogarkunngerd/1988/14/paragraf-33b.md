@@ -1,0 +1,1 @@
+§ 33 b. §§ 33 og 33 a eru ikki galdandi fyri akfør, ið nýtt verða til vegarbeiði, um so er, at steðgur ella parkering er neyðug vegna arbeiðið, og neyðug trygdartiltøk verða framd. Sama er galdandi fyri steðg ella parkering, tá ið hetta verður gjørt av politivaldi, sløkkiliði ella bjargingarliði.

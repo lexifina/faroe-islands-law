@@ -1,0 +1,9 @@
+## Mesta ferð hjá ymsum akfarssløgum
+§ 30 b. [^9] [^8] Fyri bussar, hvørs loyvda heildarvekt er yvir 3.500 kg., og liðbussar má ferðin óansæð § 30 a ongantíð fara upp um 70 km/t. Í fjølbygdum øki má ferðin ikki fara upp um 50 km/t, sjálvt um ein hægri staðbundin hámarksferð er ásett.
+Stk. 2. [^8] Fyri aðrar bilar, hvørs loyvda heildarvekt er yvir 3.500 kg (lastbilar), og fyri vognarøð, samansett av einum lastbili ella bussi, hvørs loyvda heildarvekt er yvir 3.500 kg, og einum skrásetingarskyldugum, viðfestum akfari, má ferðin óansæð § 30a ongantíð fara upp um 70 km/t. Í fjølbygdum øki má ferðin ikki fara upp um 50 km/t, sjálvt um ein hægri staðbundin hámarksferð er ásett.
+Stk. 3. [^8] Fyri bilar við eini loyvdari heildarvekt upp á ikki yvir 3.500 kg má ferðin hóast § 30a ongantíð fara upp um 70 km/t, um viðfestur er vognur, leguvognur ella skrásetingarskyldugt, viðfest amboð, herímillum húsvognur.
+Stk. 4. Fyri bilar, ið hava viðfest eitt ikki skrásetingarskyldugt amboð, og fyri traktorar og motoramboð má ferðin óansæð § 30a ongantíð fara upp um 30 km/t.
+Stk. 5. Fyri motordrivið akfar ella vognarøð við einum ella fleiri hjólpørum við massivari hjólklæðing má ferðin óansæð § 30a ongantíð fara upp um 15 km/t.
+Stk. 6. [^6] Fyri lendisakfar og vognarað, samansett av lendisakfari og skrásetingarskyldugum viðfestum akfari, má ferðin uttan mun til § 30 a ongantíð fara upp um 60 km/t.
+Stk. 7. [^6] Tá motordrivið akfar verður skrásett ella góðkent, kann serligt, lægri hægstamark setast fyri ferð, um so er, at tess tilgerð ger tað neyðugt.
+Stk. 8. [^6] Landsstýrismaðurin kann, um viðurskiftini tala fyri hesum, seta hægri hámarksferð enn fyrisett eftir stk. 1-5, galdandi fyri serlig sløg av akførum, um so er, at ferðslutrygdarligar ella akfarstekniskar grundir ikki tala ímóti hesum.

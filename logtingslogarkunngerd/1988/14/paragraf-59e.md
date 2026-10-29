@@ -1,0 +1,3 @@
+## Virkan av kæru o.ø. [^9]
+§ 59 e. [^9] Kæra um dóm, har tað er hend frádøming, aftaná at koyrirætturin hevur verið tikin aftur sambært § 59 d, virkar ikki frestandi fyri avgerðina í dóminum um frádøming, uttan so at undirrætturin ger annað av við úrskurði. Í øðrum førum kann undirrætturin eftir áheitan frá ákæruvaldinum við úrskurði gera av, at kæra skal ikki virka frestandi.
+Stk. 2. Verður í máli, har koyrirætturin er tikin aftur eftir § 59 d, fríkennandi dómur sagdur við atliti at spurninginum um frádøming, ella hendir frádøming treytað, skal koyrikortið útflýggjast, hóast dómurin verður kærdur.

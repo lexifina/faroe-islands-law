@@ -1,0 +1,5 @@
+## Nýtsla av handhildnari teleútgerð og øðrum handhildnum samskiftistólum [^9] [^2]
+§ 16 b. [^2] Førari av akfari má ikki, meðan hann koyrir, nýta handhildna teleútgerð og onnur handhildin samskiftistól, sbr. tó stk. 2-4.
+Stk. 2. [^2] Ásetingarnar í stk. 1 eru ikki galdandi fyri nýtsluna av handhildnari mikrofon, sum hevur samband við samskiftisútgerð hjá løgregluni, um nýtslan er neyðug orsakað av arbeiðsuppgávum hjá løgregluni.
+Stk. 3. [^2] Ásetingarnar í stk. 1 eru ikki galdandi fyri nýtslu av handhildnari mikrofon, sum hevur samband við ísetta teleútgerð í akførum hjá tilbúgvingunum, bjargingarliðunum, sjúkraflutningstænastunum ella vegamyndugleikunum, um nýtslan er neyðug orsakað av arbeiðsuppgávum hjá eindunum. Sama er galdandi fyri nýtsluna hjá vinnuførarum av handhildnari mikrofon, sum hevur samband við ísetta teleútgerð í akfarinum, um nýtslan er neyðug orsakað av vinnuligum flutningi.
+Stk. 4. [^2] Ásetingarnar í stk. 1 eru ikki galdandi fyri nýtsluna av handhildnari mikrofon hjá koyrilærarum og próvdómarum, um nýtslan er neyðug fyri koyrifrálæruna og próvdømingina til lítið prutl, stórt prutl, motorsúkklu, traktor ella motoramboð.

@@ -1,0 +1,7 @@
+§ 46. Gongufólk skal nýta gongubreyt ella vegøksl, tó ikki miðøksl. Súkklubreyt ella akbreyt kunnu bert verða nýtt, um eingin gongubreyt er ella hóskandi vegøksl.
+Stk. 2. Gongufólk, ið nýtir akbreytina, skal ganga ytst vinstrumegin tann vegin, ferðslan gongur, ella um ein leiðir súkklu ella prutl, ytst høgrumegin. Gongufólk kann tó ganga hinumegin, um tað annars hevði verið vandamikið, ella um serstakar umstøður eru fyri tí.
+Stk. 3. Á gongubreyt ella vegøksl má eingin leiða súkklu ella prutl ella bera rúgvumiklar lutir, um tað kann vera til ampa fyri onnur til gongu. Tann, ið gongur eftir súkklubreyt, má ikki vera teimum, ið súkkla, til ampa.
+Stk. 4. Fólk, ið fer til gongu tvørtur um akbreyt ella súkklubreyt, skal, tá ið stigið verður út á akbreyt ella súkklubreyt, sýna tað varsemi, ið krevst, við ansi fyri fráleikanum frá akførum, ið nærkast staðnum, og ferð teirra. Gingið skal verða tvørturum uttan óneyðugan steðg.
+Stk. 5. Tá ið gingið verður um akbreyt ella súkklubreyt, skal gonguteigur verða nýttur, um nakar er í nánd. Er gongubrúgv ella -smoga í nánd, eiga brúgvin ella smogan at verða nýtt, um til ber.
+Stk. 6. Í øðrum førum, enn nevnt í stk. 5, skal verða gingið beina leið tvørtur um akbreyt ella súkklubreyt og helst nærindis krossveg.
+Stk. 7. Á støðum, har sum ferðslan er stýrd av løgreglu ella við ferðsluljósum, kann ikki verða stigið út á akbreyt og súkklubreyt, fyrr enn tað bákn, ið geldur fyri fólk til gongu, vísir grønt ljós, ella fyrr enn løgreglumaður við tekni ger vart við, at frítt er at fara.

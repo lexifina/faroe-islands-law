@@ -1,0 +1,7 @@
+## Serreglur fyri prutl
+§ 44. Prutl má ikki koyra undir liðini á øðrum akfari í akstri.
+Stk. 2. [^5] § 45, stk. 2 og 3 um pláss á vegnum og koyring um krossveg er eisini galdandi fyri prutl, tó soleiðis, at um prutl skal sneiða til vinstru á krossvegi við meira enn einari farbreyt, har tann eina er til sneiðing til vinstru, kann prutlið stilla seg mitt í hesi farbreyt. Prutlið skal tá sneiða soleiðis, at tá tað fer av krossvegnum, skal tað vera statt høgrumegin á teirri akbreyt, ið tað sneiðir inn á. § 29 b, stk. 2 er galdandi, tá sneitt verður til vinstru.
+Stk. 3. [^4] Tann, ið koyrir á prutli, skal hava báðar føtur á ástigur ella fótskørum og ið hvussu er aðra hond á stýrinum.
+Stk. 4. [^4] Tann, ið koyrir á prutli, má ikki halda í annað akfar ella í førara ella eyksfólk á øðrum akfari.
+Stk. 5. [^19] [^4] Á tveyhjólaðum prutli má bert førarin vera. Á øðrum prutli mugu ikki vera fleiri persónar enn tað er ætlað til.
+Stk. 6. [^19] [^8] [^4] Á prutli mega ikki havast við lutir, ið eru meira enn 2 m langir ella 70 cm breiðir. Lutir, ið við eru havdir, mega ikki forða føraranum í at hava fult ræði á prutlinum ella í at gera tey tekn, hann eigur. Tann, ið koyrir á prutli, má heldur ikki hava við sær lutir, i annars eru til ampa fyri hina ferðsluna. Landsstýrið kann seta reglur um mestu longd, breidd, hædd og vekt á lutum, ið fluttir verða á prutlum, ið eru serliga útgjørd til vøruflutnings ella sum avlamisakfør.

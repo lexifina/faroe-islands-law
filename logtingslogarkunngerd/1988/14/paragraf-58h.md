@@ -1,0 +1,1 @@
+§ 58 h. [^9] [^21] Í sambandi við fráboðan eftir § 58 g, stk. 1, skal løgreglan kunna hin skuldsetta um, at hann, áðrenn hann tekur støðu til spurningin um samtykki, kann fáa løgfrøðiliga hjálp frá einum almennum verja, sbrt. § 741, stk. 1, í rættargangslógini. Verjanum verður latin samsýning eftir teim av løgmálaráðnum í Danmark ásettu takstum fyri samsýning í samsvarandi málum.

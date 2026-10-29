@@ -1,0 +1,8 @@
+## Skyldur móti gangandi
+§ 32 a. Akandi, sum møta ella fara framum gangandi, skulu geva tí gangandi stundir til at fara til viks og annars geva tí gangandi neyðugt pláss á vegnum.
+Stk. 2. Akandi, sum koyra tvørtur um gongubreyt ella gongugøtu, ella føra akfar inn á akbreytina frá útakstri frá eigindómi við veg, skulu steðga fyri gangandi. Sama er galdandi fyri koyring inn á ella tvørtur um gonguveg.
+Stk. 3. Tá ið koyrt verður á gonguvegi, skal akandi vísa serstakt varsemi og fyrilit ímóti gangandi.
+Stk. 4. Tá ið snarað verður á krossveg, mugu akandi ansa eftir, at hetta er uttan vanda fyri gangandi, ið fara yvir um vegin, sum skal nýtast til framhaldandi akstur. Sama er galdandi fyri akstur tvørtur um veg ella av akbreytini uttan fyri krossveg.
+Stk. 5. Akandi, sum nærkast gonguteigi, uttan regulering, skulu laga ferðina soleiðis, at hetta hevur ikki við sær vanda fyri gangandi, sum stødd eru á teiginum ella eru á veg út á hann. Tann akandi skal um neyðugt steðga og lata tann gangandi fara tvørtur um.
+Stk. 6. Við gonguteig, har ferðslan verður regulerað av politivaldi ella signali, skal akandi, sjálvt um hann annars eftir signali ella polititekni kann fara yvir um gonguteigin, steðga, so gangandi, sum eru stødd á gonguteiginum, kunnu fara yvirum. Liggur tílíkur teigur við krossveg, skal akandi, sum aftaná sneiðing á krossvegi skal fara yvir um teigin, koyra við hóskandi lítlari ferð og um neyðugt steðga, so at gangandi kunnu fara yvirum, sum eru stødd á gonguteiginum ella eru á veg út á teigin.
+Stk. 7. Akandi skulu um gjørligt royna at sleppa undan, at akfarið verður steðgað á gonguteiginum.

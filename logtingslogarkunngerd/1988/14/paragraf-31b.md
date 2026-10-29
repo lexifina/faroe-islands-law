@@ -1,0 +1,2 @@
+§ 31 b. Tá ið ein, ið koyrir, varnast, at akfar, ið kemur aftanífrá, ætlar at fara framum vinstrumegin, skal hann taka seg so langt til høgru, sum gerst, og má ikki seta meiri ferð á.
+Stk. 2. Um akfar hevur lítla ferð ella tekur upp nógv rúm, og akbreytin er mjá ella bugut ella ferðsla er ímóti, skal førarin vera serliga varin fyri ferðslu, ið kemur aftanífrá. Um tað kann lætta um framumkoyringina, skal hann minka um ferðina, og, um neyðugt er, hava akfarið til viks, fyrst tað ber til, og møguliga steðga heilt.

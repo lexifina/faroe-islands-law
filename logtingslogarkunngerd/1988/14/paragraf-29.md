@@ -1,0 +1,6 @@
+## Nýtsla av ymsum farbreytum á vegum
+§ 29. Hevur vegur serstakar farbreytir til ymisk sløg av ferðslu, skulu tey, ið koyra, nýta ta breyt, ið ætlað er til ferðslu við akfari av avvarðandi slagi.
+Stk. 2. Prutl skal fara eftir súkklubreyt, er ikki annað tilskilað við merking. Ferðin á súkklubreyt skal vera soleiðis háttað, at hon er ikki til vanda ella ampa fyri aðra ferðslu á hesi breyt. Súkkla og prutl mega bert fara eftir súkklubreyt høgrumegin við vegin ferðsluleiðina, um ikki annað er tilskilað við merking.
+Stk. 3. Súkkla ella prutl mega ikki ferðast á súkklubreyt, um so er, at akfarið vegna breidd sína, tá ið tað er laðið, kann vera til munandi ampa fyri onnur ferðandi á súkklubreytini.
+Stk. 4. Landsstýrið kann seta reglur um ferðing hjá súkklum á gongubreytum. Í tílíkum førum eigur greiniligt mark at vera millum tann partin av gongubreytini, sum súkklur kunnu ferðast eftir, og tann partin, ið er kannaður fólki til gongu.
+Stk. 5. Har, sum skriðspor er, skal tað verða nýtt av akførum, ið ferðast við minni ferð enn teirri, ið tilskilað er á ferðslutalvuni við skriðsporið. Annað akfar má ikki ferðast á skriðspori. Tá ið farið verður út av skriðspori, skal førarin vissa sær, at atgerðin kann verða framd uttan vanda ella bága fyri onnur.

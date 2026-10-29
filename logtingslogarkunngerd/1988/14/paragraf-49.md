@@ -1,0 +1,3 @@
+## Ikki-reglulig ella villandi avmerking v.m.
+§ 49. Uttanfyri tey í §§ 47-48 nevndu førum er tað forboðið at seta upp ferðslutalvur, signal ella tílíkt við veg, sum tað almenna situr fyri, til eftirlits við ella til varskógvingar ella til leiðbeining fyri ferðsluna.
+Stk. 2. Skelt, uppsløg, reklamur o.t. mugu ikki setast upp á ella í samanhang við avmerking eftir § 48. Skelt, reklamur, ljósvæl o.t. sum sæst frá gøtu, veg ella plássi kann politivaldið krevja burtur um so er, at tey eru átøk avmerking, sum fyrisett í § 48 ella um so er, at tey eru villandi ella til stórvegis bága fyri ferðsluna. Refleksgløs ella annað evni, sum kastar aftur, má ikki setast upp sum reklama soleiðis, at tað kastar aftur ljós frá akførum, sum fara eftir vegnum.

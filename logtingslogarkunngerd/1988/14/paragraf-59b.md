@@ -1,0 +1,4 @@
+## Frádømingartíðin [^9]
+§ 59 b. [^9] [^5] Treytaleys frádøming verður gjørd fyri eitt tíðarskeið upp á millum 6 mánaðir og 10 ár, sbr. tó stk. 2 og 3.
+Stk. 2. [^13] Treytaleys frádøming fyri rúsdrekkakoyring við eini alkoholstyrki upp á omanfyri 1,20 promillu í blóðinum, ella 0,60 mg pr. litur luft í útandingarluft ella koyring ávirkaður av tetrahydrocannabinol (THC), um nøgdin av THC í blóðinum er omanfyri 0,009 mg THC pr. kg blóð ella fyri brot á § 15, stk. 2, ið er fevnt av § 59 a, stk. 2, nr. 5 og er dømt at geva treytaleysa frádøming, verður gjørd fyri eitt tíðarskeið, sum í minsta lagi er 3 ár.
+Stk. 3. Frádømingin kann verða gjørd fyri alla tíð, um førarin undir koyringini hevur framt grovt koyrimistak, koyringin hevur elvt til álvarsaman persónsskaða, og slíkar upplýsingar eru um brot, sum førarin áður hevur framt á ferðslulógina, at ein frádøming av førararættinum fyri alla tíð, verður mett neyðug við fyriliti fyri ferðslutrygdini og rættarverjuni.

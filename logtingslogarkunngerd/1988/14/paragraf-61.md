@@ -1,0 +1,10 @@
+## Burturbeining og søla av akførum
+§ 61. Løgregluni er heimilt at fáa beint burtur tey akfør, sum nevnd eru í nr. 1-3, um tey standa á staði, sum ferðslulógin fatar um:
+1) akfar, sum maður hevur sett frá sær ímóti galdandi ásetingum um steðg ella parkering,
+2) akfar, ið er fyrigingið ella aðramáta brekað og
+3) skrásetingarskyldugt akfar, sum stendur uttan nummarplátur.
+Stk. 2. Akfarið verður flutt á pláss, løgreglan vísir á, uttan so at bilførari ella eigari (brúkari) er hjástaddur og alt fyri eitt beinir akfarið burtur ella vísir á annað pláss. Tær útreiðslur, sum løgreglan hevur av flutningi og goymslu, liggja á honum, ið koyrdi. Er førarin ókendur, ella rindar hann ikki, tá kravt er, ber eigarin (brúkarin) eisini ábyrgd fyri gjaldingini, uttan so at sannað verður, at førarin av órættum hevði akfarið. Peningurin kann heintast inn við panting.
+Stk. 3. Tað liggur á løgregluni at siga eigaranum av akfari, sum er beint burtur og sett, har løgreglan hevur ávíst, frá, nær akfarið er beint burtur, og hvar tað stendur. Henda frásøgn kann eisini gera kunnugt, at akfarið, um ikki verður komið eftir tí, áðrenn ásett freist er liðin, verður selt sambært 4. stk. Ber ikki til at siga eigaranum frá, av tí at hann er ókunnugur, er heimilt at selja, tá ið 14 dagar eru lidnir frá tí, at løgreglan beindi akfarið burtur.
+Stk. 4. Løgreglan hevur, tá ið tann sambært 3. stk. ásetta freist er liðin, rætt til at selja akfarið á almennum uppboði ella til at høgga upp, um hetta verður hildið at geva størri peningahædd. Møguligt avlop fellur til landskassan, tó hevur eigarin í 1 ár frá søludegi rætt at krevja hetta goldið sær, tá ið tær útreiðslur, ið standast av flutningi, goymslu og sølu, eru frá.
+Stk. 5. Landsstýrið kann áseta gjøllari reglur fyri mannagongdini viðvíkjandi burturbeining av akførum, kunngerð av teirri í 3. stk. nevndu frásøgn til eigarans, gjaldi fyri at goyma akfør og at selja tey.
+Stk. 6. Landsstýrið kann áseta reglur um tað, at akfør, sum løgreglan ella bileftirlitið hevur í varðveitslu, tó tey ikki koma undir reglurnar í 1. stk., er heimild at selja sambært tí, sum ásett er í 3. og 4. stk.
