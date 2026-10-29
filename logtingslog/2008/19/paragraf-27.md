@@ -1,0 +1,4 @@
+## Fyribils forboð
+§ 27. [^6] Brúkaraumboðið kann seta fyribils forboð, tá greiður vandi er fyri, at endamálið við einum forboði, sum nevnt í § 20, stk. 1, fer fyri skeyti, um bíðast skal eftir rættarinnar avgerð. Sak til staðfestingar av forboðnum skal leggjast í seinasta lagi næstkomandi gerandisdag. Reglurnar í retsplejeloven for Færøerne kapittul 50 verða nýttar við neyðugum tillagingum.
+Stk. 2. Um ein sak til staðfestingar av einum forboði eftir stk. 1 ikki kann avgerast við dómi seinast 5 gerandisdagar eftir, at sakin er løgd, kann rætturin, meðan sakin verður fyrireikað, áðrenn nevnda freist er úti, við úrskurði avgera, at forboðið framhaldandi skal standa við. Áðrenn ein slík avgerð verður tikin, skal rætturin so vítt møguligt geva pørtunum høvi at úttala seg.
+Verður forboðið ikki staðfest, áðrenn freistin er úti, fellur tað burtur.

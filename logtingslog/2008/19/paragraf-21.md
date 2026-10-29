@@ -1,0 +1,7 @@
+## Kapittul 6
+## Virksemið hjá Brúkaraumboðnum
+§ 21. Brúkaraumboðið umsitur lógina og hevur í tí sambandi eftirlit við, at lógin og reglur við heimild í lógini verða hildnar.
+Stk. 2. Brúkaraumboðið kann krevja at fáa útflýggjað allar upplýsingar, sum verða mettar at vera neyðugar fyri virksemið hjá Brúkaraumboðnum, frá teimum, sum lógin er galdandi fyri, fyri m.a. at kunna gera av, um ávís viðurskifti koma undir ásetingarnar í lógini. Eisini hevur Brúkaraumboðið heimild at biðja um viðkomandi upplýsingar frá øðrum almennum myndugleikum, herundir TAKS. Upplýsingarnar frá vinnurekandi, og øðrum, sum lógin er galdandi fyri, kunnu krevjast útflýggjaðar innan eina stutta freist, tá talan er um samanberandi lýsingar, ella tá tað eftir umstøðunum verður mett at vera neyðugt.
+Stk. 3. Landsstýrismaðurin setir Brúkaraumboðið fyri eitt 5-ára tíðarskeið, og Brúkaraumboðið kann bert verða uppsagt uttan umsókn til landsstýrismannin, um uppsøgnin er grundað á heilsuviðurskifti, ella um viðkomandi orsakað av revsing, tænastumisbroti ella órøkt ikki er skikkaður at verða sitandi í starvinum. Setanin steðgar av sær sjálvari við endanum av mánaðinum, viðkomandi fyllir 70 ár. Brúkaraumboðið skal hava útbúgving á kandidatstøði.
+Stk. 4. Avgerðir hjá Brúkaraumboðnum eftir hesi lóg kunnu ikki leggjast fyri annan fyrisitingarligan myndugleika.
+Stk. 5. Landsstýrismaðurin ásetir nærri reglur um virksemið hjá Brúkaraumboðnum.

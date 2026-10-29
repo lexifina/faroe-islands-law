@@ -1,0 +1,4 @@
+## Forhandarmeting
+§ 24. Brúkaraumboðið ger eftir áheitan eina meting av, um ætlað marknaðarføringstiltøk kunnu metast at vera lóglig ella ikki. Ein slík meting verður tó ikki gjørd, um støðutakanin kann skapa serligan iva, ella onnur serlig viðurskifti gera seg galdandi. Ein tílík forhandarmeting er ikki ein endalig støðutakan til, um tiltakið er lógligt.
+Stk. 2. Tá Brúkaraumboðið hevur latið eina forhandarmeting til ein vinnurekandi um, at eitt ætlað marknaðarføringstiltak eftir fatanini hjá Brúkaraumboðnum er lógligt, kann Brúkaraumboðið ikki av sínum eintingum mótvegis tí vinnurekandi reisa eitt mál í sambandi við eitt átak, sum er umfatað av forhandarmetingini og sett í verk innan rímiliga tíð eftir, at forhandarmetingin er latin.
+Stk. 3. Landstýrismaðurin kann áseta nærri reglur um gjald fyri eina forhandarmeting frá Brúkaraumboðnum.

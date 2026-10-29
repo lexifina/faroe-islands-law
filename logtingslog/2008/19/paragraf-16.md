@@ -1,0 +1,6 @@
+## Skipaður avsláttur
+§ 16. Vinnurekandi, sum veita skipaðan avslátt, sum avslátt í prísi ella aðrar serligar fyrimunir, til limirnar í feløgum ella felagsskapum ella til aðrar ávísar bólkar í sambandi við sølu av vørum ella tænastum, umfataðar av § 13, stk. 1 og 2, skulu við týðiligari skelting við allar inngongdir til handilshølini kunna um, hvørjir bólkar fáa skipaðan avslátt, og hvussu stórur avslátturin er.
+Stk. 2. Tann vinnurekandi skal eftir áheitan vísa fram eitt yvirlit yvir vørur og tænastur, sum eru umfataðar av tí skipaða avslátrinum, umframt støddina á avslátrinum.
+Stk. 3. Í sambandi við fjarsølu skulu upplýsingarnar í stk. 1 gevast í sambandi við prísupplýsing, meðan upplýsingarnar, nevndar í stk. 2, skulu gevast eftir áheitan.
+Stk. 4. Ásetingarnar í stk. 1-3 eru ikki galdandi fyri skipaðan avslátt, sum verður veittur persóni, ið er í starvi hjá tí, sum letur avsláttin.
+Stk. 5. Landsstýrismaðurin kann áseta reglur um, hvussu skeltast skal um skipaðan avslátt og um innhaldið í skeltingini, og um at ein tænastuveitari, sum ikki er umfataður av § 13, stk. 2, skal lata upplýsingar um, at hann gevur skipaðan avslátt. Viðkomandi vinnu- og brúkarafeløg skulu hava slíkar reglur til ummælis, áðrenn tær verða settar í gildi.

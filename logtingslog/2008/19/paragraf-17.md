@@ -1,0 +1,5 @@
+## Merking og innpakking
+§ 17. Landsstýrismaðurin kann gera ásetingar um, at ávísar vørur, sum verða bodnar út vinnuliga til brúkaran, bert kunnu seljast ella bjóðast út til sølu við tilskilan um, hvørt vøran er føroysk ella útlendsk, ella við tilskilan um framleiðslu– ella upprunastað. Landsstýrismaðurin kann áseta nærri, hvussu ávísu tilskilanirnar skulu setast á vøruna, og hvussu framleiðslu- ella upprunastað skal skiljast í hvørjum einstøkum føri. Viðkomandi vinnu- og brúkarafeløg skulu hava tílíkar reglur til ummælis, áðrenn tær verða settar í gildi.
+Stk. 2. Landsstýrismaðurin kann eftir samráðingar við umboð fyri brúkarar og viðkomandi vinnufeløg gera ásetingar um,
+1) at ávís vøruheiti ella symbolir eru avmarkað til, ella skulu brúkast til, vørur, sum lúka ávísar nærri fráboðaðar treytir og
+2) at ávísar vørur bert kunnu seljast ella bjóðast út til sølu, um vørurnar ella innpakkingin, á ein av landsstýrismanninum nærri ásettan hátt, hevur upplýsingar um innihaldið og samansetingina av vørunum, umframt haldføri, viðgerðarhátt og aðrar eginleikar.

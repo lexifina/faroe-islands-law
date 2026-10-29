@@ -1,0 +1,5 @@
+## Sølufremjandi tiltøk
+§ 9. [^4] Sølufremjandi tiltøk, eisini slík, ið geva eitthvørt framíhjá, t.d. avsláttarmerki, avsláttur, skipanir við eykaágóða og virðislønarkappingar, skulu marknaðarførast soleiðis, at tilboðstreytirnar eru týðiligar og greiðar fyri brúkaran og soleiðis, at brúkarin lættliga kann kunna seg um treytirnar. Týðandi upplýsingar, t.d. virði á eykaveitingum, sum greidliga kunnu avlaga búskaparligu atferð brúkarans, mugu ikki leggjast burturímillum.
+Stk. 2. [^4] Útsøla ella onnur søla, har søluprísir eru lækkaðir, má bert fráboðast, um so er, at príslækkingin er verulig. Príslækkingin skal, um neyðugt, skjalprógvast.
+Stk. 3. [^4] Tá søluprísir eru lækkaðir, skal prísmerkingin týðiliga vísa tann upprunaliga prísin á vørunum.
+Stk. 4. [^4] Um ein vinnurekandi bjóðar eina vøru ella tænastu fyri ein ávísan prís, og tann vinnurekandi hevur rímiliga orsøk til at halda, at tað ikki ber til at bjóða tær nøgdirnar, sum verða eftirspurdar og eru rímiligar í mun til tað, sum bjóðað verður, og í mun til vavið á marknaðaføringini, skal tann vinnurekandi taka greitt fyrivarni fyri hesum í marknaðarføringini.
