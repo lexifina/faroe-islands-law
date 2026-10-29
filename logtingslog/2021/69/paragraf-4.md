@@ -1,0 +1,3 @@
+## Leiguinntøkur
+§ 4. Til almannagagnligar felagsskapir og áhugafeløg, sum fáa munandi part av sínum inntøkum frá hølisútleigan, og sum hava mist leiguinntøku vegna almennu tilmælini um fyribyrging av COVID-19, verður stuðul latin.
+Stk. 2. Stuðulin sbrt. stk. 1 kann í mesta lagi vera 75% av staðfestum og skjalprógvaðum tapi av mistari leiguinntøku í tíðarskeiðinum 1. september 2020 til 30. apríl 2021, men kann tó ongantíð vera meira enn 80.000 kr. tilsamans fyri hvønn felagsskap ella hvørt áhugafelag. Mista leiguinntøkan verður útroknað við støði í miðal inntøkuni fyri árini 2019 og 2018, sum skal vera skjalprógvað og staðfest.

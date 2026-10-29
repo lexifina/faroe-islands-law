@@ -1,0 +1,5 @@
+§ 3. Til almannagagnligar felagsskapir, hvørs tiltøk sbrt. § 2 eru avlýst ella nógv avmarkað vegna almennu tilmælini um fyribyrging av COVID-19 í tíðarskeiðinum 1. september 2020 til 30. apríl 2021, verður stuðul latin til at endurrinda mista inntøku.
+Stk. 2. Stuðulin sbrt. stk. 1 kann í mesta lagi vera 75% av mistu inntøkuni, men kann tó ongantíð vera meira enn 300.000 kr. fyri hvønn felagsskap. Mista inntøkan verður útroknað við støði í miðal inntøkuni fyri árini 2019 og 2018, sum skal vera skjalprógvað og staðfest.
+Stk. 3. Er ikki gjørligt at rokna mistu inntøkuna sbrt. stk. 2, fær almannagagnligi felagsskapurin stuðul svarandi til 75% av skjalprógvaðum og staðfestum útreiðslum.
+Stk. 4. Stuðulin sbrt. stk. 1 er treytaður av, at avlýstu tiltøkini ikki verða hildin seinni í 2021.
+Stk. 5. Harumframt er stuðul sbrt. stk. 1 treytaður av, at metta inntøkan sbrt. stk. 2 er í minsta lagi 30.000 kr. Er talan um ein felagsskap, ið hevur fleiri smærri tiltøk, skal inntøkan fyri tiltøkini tilsamans vera í minsta lagi 30.000 kr.
