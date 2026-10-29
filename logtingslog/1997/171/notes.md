@@ -1,0 +1,6 @@
+[^1]: Broytt við løgtingslóg nr. 77 frá 22. mai 2015, har § 3 ljóðar soleiðis: “Henda løgtingslóg kemur í gildi 1. januar 2016.”
+[^2]: Broytt við løgtingslóg nr. 45 frá 8. apríl 1998, har § 2 ljóðar soleiðis: “Henda lóg kemur í gildi dagin eftir, at hon er kunngjørd, og er galdandi frá 1. januar 1998.”
+[^3]: Broytt við løgtingslóg nr. 172 frá 21. desember 2001, har § 2 ljóðar soleiðis: “Henda lóg kemur í gildi dagin eftir, at hon er kunngjørd og hevur virknað frá 16. november 2001.”
+[^4]: Broytt við løgtingslóg nr. 188 frá 21. desember 2018, har § 2 ljóðar soleiðis: “Stk. 1. Henda løgtingslóg kemur í gildi dagin eftir, at hon er kunngjørd og hevur virknað frá framløgudegnum. Stk. 2. Kærur eftir hesi løgtingslóg, sum ikki eru avgreiddar, verða eisini viðgjørdar av Skatta- og Avgjaldskærunevndini, hóast tær eru innlatnar, áðrenn henda løgtingslóg kom í gildi.”
+[^5]: Broytt við løgtingslóg nr. 120 frá 1. december 2003, har § 2 ljóðar soleiðis: “Henda løgtingslóg kemur í gildi dagin eftir, at hon er kunngjørd, og hevur virknað frá 1. januar 2003.”
+[^6]: Broytt við løgtingslóg nr. 159 frá 10. desember 2021, har § 43 ljóðar soleiðis: “Henda løgtingslóg kemur í gildi 1. januar 2022. Samstundis fer løgtingslóg nr. 47 frá 23. mars 1993 um kærunevnd í almanna-, familju- og heilsumálum úr gildi.”

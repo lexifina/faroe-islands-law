@@ -1,0 +1,5 @@
+§ 6. [^1] Um samanleggingin verður framd á tann hátt, at eitt móðurfelag yvirtekur alla ogn og alla skuld hjá einum dótturfelagi, kann landsstýrismaðurin í skattamálum áseta reglur, ið greitt nevna hvørjir upplýsingar skulu latast viðvíkjandi samanleggingini.
+Stk. 2. [^1] Landsstýrismanninum í skatta-málum er heimilað at áseta reglur, sum greitt siga frá, hvørjar aðrar upplýsingar viðvíkjandi samanleggingini, sum móttakandi felagið skal lata TAKS.
+Stk. 3. [^1] Fyri at kunna nýta ásetingarnar í hesi lóg, er tað ein treyt, at tey skjøl og tær upplýsingar, sum nevndar eru í stk. 1 - 3, verða latnar TAKS í seinasta lagi 6 mánaðar eftir samanleggingardagin.
+Stk. 4. [^1] Um fíggjarstovnar leggja saman eftir § 204 í bekendtgørelse af anordning om ikrafttræden for Færøerne af lov om finansiel virksomhed, skulu skjølini og tær upplýsingar, sum nevndar eru í stk. 1 og 2, verða latnar TAKS í seinasta lagi 1 mánað eftir samanleggingardagin.
+Stk. 5. [^1] Undir serligum viðurskiftum kann Toll- og Skattaráð Føroya loyva, at víkt verður frá tíðarfreistini í stk. 4 og 5.

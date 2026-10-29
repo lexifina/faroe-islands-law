@@ -1,0 +1,2 @@
+§ 2. Fyri at kunna nýta ásetingarnar um skattseting í hesi lóg, er tað ein fyritreyt, at felagsluttakararnir í felagnum, sum letur sína ogn til eitt annað felag, bert fáa partabrøv, innskotsprógv, lutaprógv ella ábyrgdarprógv afturfyri í felagnum, sum tekur ímóti ognini. Tó kunnu teir fáa upp til 10% av áljóðandi virðinum í tøkum peningi. Um tað ikki er nakað áljóðandi virði, so av bókaða virðinum.
+Stk. 2. [^1] Ásetingarnar í stk. 1 eru tó ikki galdandi fyri teir kapitalpartar í innskjótandi felagnum, sum móttakandi felagið eigur.

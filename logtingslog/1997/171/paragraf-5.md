@@ -1,0 +1,1 @@
+§ 5. [^1] Tann dagur, sum byrjunarfíggjarstøðan hjá móttakandi felagnum er sett upp fyri í sambandi við samanleggingina, er tann skattligi samanleggingardagurin. Fyri at kunna nýta ásetingarnar í hesi lóg, skal samanleggingardagurin vera tann sami dagurin, sum roknskaparárið hjá móttakandi felagnum byrjar.
