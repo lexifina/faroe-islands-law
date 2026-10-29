@@ -1,0 +1,3 @@
+## Samleikaupplýsingar
+§ 9. Um umsitari fær fráboðan um, at grundaður illgruni er um, at samleikaupplýsingarnar hjá skrásetara av einum økisnavni í WHOIS-dátugrunni umsitarans ikki eru rættar, kannar umsitari rættleikan í skrásettu samleikaupplýsingunum í WHOIS-dátugrunninum fyri viðkomandi økisnavn.
+Stk. 2. Um so er, at úrslitið av kanning umsitarans sambært stk. 1 vísir, at samleikaupplýsingarnar aftan fyri eitt økisnavn ikki eru rættar, áliggur tað umsitara í seinasta lagi 30 dagar aftaná, at fráboðanin er móttikin, at tryggja, antin at samleikaupplýsingarnar í WHOIS-dátugrunninum hjá skrásetara av økisnavninum eru rættar, ella at økisnavnið verður fyribils sett úr gildi og strikað, tá tað eru gingnir 30 dagar afturat.

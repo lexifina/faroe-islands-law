@@ -1,0 +1,6 @@
+## Tryggur og støðugur rakstur
+§ 8. Umsitari skal í minsta lagi tryggja brúkarunum 99% gagntíð til umsitingarligu skipanirnar og miða eftir 100% gagntíð til økisnavnaambætaratænastuna mátað mánaðarliga.
+Stk. 2. Umsitari kann fyri hvørt kalendaraár hava upp í fýra umvælingartíðarskeið fyri umsitingarligu skipanirnar, hvørt við mest loyvdari longd upp á 12 tímar í tíðarbilinum 19:00 til 07:00, uttan at vantandi atgongdin til umsitingarligu skipanirnar í umvælingartíðarskeiðinum eru partur av útrokningini av gagntíðini upp á 99,0%, sbr. tó stk. 3.
+Stk. 3. Eitt umvælingartíðarskeið fevnt av stk. 2 skal vera fráboðað í minsta lagi 14 dagar frammanundan á heimasíðu umsitarans uttan so, at umvælingartíðarskeiðið er grundað á neyðuga trygdardagføring.
+Stk. 4. Ein og hvør ótilætlaður rakstrarsteðgur og samanbrot í økisnavnaambætaratænastuni skal uttan óneyðugt drál fráboðast Fjarskiftiseftirlitinum.
+Stk. 5. Umsitari skal á hvørjum ári, í seinasta lagi tann 31. mai, senda Fjarskiftiseftirlitinum rakstrarhagtøl. Rakstrarhagtølini skulu vera gjøgnumgingin og áteknað av einum kt-grannskoðara, ið er góðkendur grannskoðari, og sum skjalprógvar hvønn ársfjórðing mánaðarligt samansavnaðar mátingar av rakstrarstøðufestinum í umsitingarligu skipanunum og atgongdini til økisnavnaambætaratænastuna.
