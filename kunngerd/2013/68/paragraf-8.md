@@ -1,0 +1,1 @@
+§ 8. Hýru- og ávísingartænastan skal hava eina skrá yvir øll sjófólk, ið eru hýrað ella ávíst gjøgnum tænastuna. Skráin skal vera tøk til eftirlit hjá Sjóvinnustýrinum ella øðrum, sum Sjóvinnustýrið hevur heimilað at gera eftirlit.

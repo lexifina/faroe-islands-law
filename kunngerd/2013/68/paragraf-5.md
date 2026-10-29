@@ -1,0 +1,2 @@
+§ 5. Ein hýru- og ávísingartænasta kann hvørki beinleiðis ella óbeinleiðis, heilt ella partvís krevja gjald frá sjófólkinum, sbr. tó stk. 2.
+Stk. 2. Stk. 1 er ikki galdandi fyri útreiðslur, ið standast av krøvum frá flaggstatinum um at hava sjóvinnubræv, siglingarbók ella onnur samsvarandi prógv, umframt útreiðslur til pass ella onnur persónlig ferðaskjøl, tó undantikið útreiðslur til neyðugt visum, ið reiðarin ber.
