@@ -1,0 +1,1 @@
+§ 3. Avtala millum landsstýrismannin og Føroya Realkreditstovn, gjørd við heimild í hesi lóg, fær gildi frá 1. november 1998 at rokna, og verður í gildi til 1. mai ár 2010. Nevnda avtala skal m.a. áseta treytir um rentu til landsstýrið og umsitingina annars.

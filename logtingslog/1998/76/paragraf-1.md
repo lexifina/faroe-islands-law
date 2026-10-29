@@ -1,0 +1,1 @@
+§ 1. Landsstýrismanninum verður heimilað at gera avtalu við Føroya Realkreditstovn um framhaldandi umsiting av gjaldførislánum, sum eru veitt ella játtað sambært løgtingslóg nr. 24 frá 1. juni 1978 um endurnýggjan av fiskiskipaflotanum sum m.a. broytt við løgtingslóg nr. 35 frá 3. mai 1984.

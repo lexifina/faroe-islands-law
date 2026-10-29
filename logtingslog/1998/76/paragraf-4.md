@@ -1,0 +1,1 @@
+§ 4. Áðrenn 1. mai ár 2009 skulu samráðingar millum landsstýrismannin og Føroya Realkreditstovn verða loknar og avgerð tikin um, hvørt umsitingaravtalan sambært hesi lóg skal halda fram ella afturgjalding byrja eftir teimum treytum, ið galdandi verða fyri einstøku lánini.
