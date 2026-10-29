@@ -1,0 +1,2 @@
+§ 8. Hann, sum uttan heimild eftir frammanfyri standandi reglum ger nakað arbeiði, sum eftir hesi lóg er tilskilað persónum, sum hava heimild til tess, kemur undir sekt, sum ikki fer undir kr. 50.-. Undir sekt, sum ikki fer undir kr. 25.-, kemur bæði hann sum fingið hevur heimild, men sum ikki heldur tær forskriftir, sum givnar eru eftir § 4 og hann sum letur persónar uttan heimild gera arbeiði, sum eftir hesi lóg eru tilskilaði persónum, sum hava heimild til tess.
+[^2] [^3] [^4] Sektir sum standast av hesi lóg fara í landskassan.

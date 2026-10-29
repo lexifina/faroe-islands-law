@@ -1,0 +1,1 @@
+§ 5. Ein givin heimild til gerð av arbeiðum, sum koma undir hesa lóg, kann takast aftur av tí leiðslu ella tí kommunustýri, sum givið hevur heimildina, tá leiðsla ella kommunustýri heldur, at viðkomandi innleggjari er grovliga ella íðuliga órøkin í útinning av einum ella fleiri arbeiðum, sum gjørd eru eftir heimildini.
