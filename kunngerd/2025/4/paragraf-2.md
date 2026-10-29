@@ -1,0 +1,2 @@
+§ 2. Váðin verður avmarkaður við at áseta hámark sum prosentpart av samlaðu ognunum fyri hvønn aktivklassa. Hámarkini eru ásett í skjali 1.
+Stk. 2. Íløgurøktin skal leggjast soleiðis til rættis, at grunnurin altíð hevur gjaldføri tøkt til útgjaldingar. Í íløgurøktini skal atlit somuleiðis takast at rentuváða, kreditváða, gjaldoyraváða, partabrævaváða og mótpartsváða. Stýrið ger nærri reglur um avmarking av váða.

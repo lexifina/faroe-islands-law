@@ -1,0 +1,1 @@
+§ 1. Stýrið fyri Arbeiðsmarknaðareftirlønargrunnin skal umsita fæ eftirlønargrunsins soleiðis, at tað verður til størst møguligt gagn fyri eftirlønarskipanina. Endamálið við íløgurøktini er at útvega grunninum so gott avkast sum gjørligt við tí váða, sum stýrið metir vera ráðiligan, og sum er innanfyri íløgukarmarnar í skjali 1.
