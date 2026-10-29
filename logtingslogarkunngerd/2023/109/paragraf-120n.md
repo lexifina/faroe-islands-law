@@ -1,0 +1,1 @@
+§ 120 n. Har, sum tað í hesi løgtingslóg er heimilað líkningarmyndugleikunum at krevja upplýsingar í samband við skattaálíkningina, hava kommunalu skattakærunevndirnar og Føroya Kærustovnur sama rætt í kæruviðgerð.

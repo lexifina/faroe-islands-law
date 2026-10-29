@@ -1,0 +1,1 @@
+§ 56. Landsstýrismaðurin í skattamálum fyrisetir nærri reglur um innheintingina. Kommunustýrini hava skyldu til uttan tarn at útvega innheintingarvaldinum allar tær upplýsingar, ið tað heldur verða neyðugt fyri innkrevjingina.

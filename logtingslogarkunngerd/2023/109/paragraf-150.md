@@ -1,0 +1,1 @@
+§ 150. [^1] Er eitt av teimum í hesum kapitli umrøddu lógarbrotum framt av einum løgfrøðiligum persóni, kann hesum verða álagt sektarábyrgd. Er lógarbrotið framt av eini kommunu ella kommunalum felagsskapi, kann áleggjast kommununi ella kommunala felagsskapinum sektarábyrgd.

@@ -1,0 +1,1 @@
+§ 159. Øll mál viðvíkjandi skattgjaldi fyri skattaskeiði áðrenn henda lóg kemur í gildi, og sakarábyrgd fyri upplýsingar, sum givnar eru, áður enn henda lóg kemur í gildi, skulu framvegis verða viðgjørd eftir higartil galdandi reglum, um so er, at annað ikki er ásett í løgtingslóg.

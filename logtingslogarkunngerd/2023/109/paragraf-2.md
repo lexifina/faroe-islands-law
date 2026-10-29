@@ -1,0 +1,16 @@
+§ 2. Avmarkaða skattskyldu hevur hvør persónur, og hvørt felag v.m., sum ikki kemur undir fyrimælini í 1. §, og deyðsbúgv undir skiftisviðgerð uttanlands, í tann mun tey her nevndu:
+a) hava inntøku her í landinum av slíkum slag, sum er umrøtt í 60. §, 1. stk. nr. 1, og stavar frá virksemi her á landi,
+b) hava inntøku her í landinum, sum sambært 60. §, 1. stk., nr. 2-7 er A-inntøka, ella smb. 60. §, 2. stk. verður at rokna sum A-inntøka,
+c) fáa gjald fyri nýtslugjald (royalty) úr Føroyum. Málberingin nýtslugjald merkir í hesi grein gjalding av øllum slag, sum fæst sum samsýning fyri at nýta ella hava rættin til at nýta hvønn ein upphavsrætt til bókmentalig, listarligt ella vísindaligt verk, heruppií spælifilmar, filmar og bond til útvarps- og sjónvarpssendingar, øll einkarrættindi, vørumerki, mynstur ella fyrimyndir, tekningar, loyniligan formála (“formel”) ella framleiðsluhátt ella fyri upplýsingar um ídnaðar-, handils- ella vísindaligar royndir.
+d) sum eigarar ella sameigarar reka ella taka lut í vinnu, ið hevur fast rakstrarstað í Føroyum, ella sum á annan hátt eiga lut í avlopinum av slíkari vinnu, ella sum samløgumenn ella samútgerðamenn eiga lut í samløgufelag ella samútgerðarfelag, ið er skrásett í Føroyum,
+e) sum ánarar, samánarar, nýtarar ella inntøkunjótarar fáa inntøku ella avgjald av fastogn í Føroyum,
+f) fáa inntøku við at lata annan hava í hondum virki ella fasta ogn í Føroyum,
+g) fáa vinningsbýti úr Føroyum ella fáa avhendingarupphæddir fevndar av § 5 í kapitalvinningsskattalógini.
+h) fær inntøkur stavandi frá arbeiði, sum er gjørt her í landinum, sum sambært § 60, 1. stk., nr. 8 skal roknast sum A- inntøka,
+i) fær inntøkur, sum ikki eru umfataðar av litra a), b), d) ella h), fyri arbeiði, gjørt í Føroyum fyri vinnuvirki, sum eru umfatað av litra d) og 3. stk.,
+j) hava inntøku av slíkum slag, sum í § 60, stk. 1, nr. 1 umrøtt, og sum stavar frá virksemi umborð á skipi, skrásett við heimstaði í Føroyum. Skip, tó ikki fiskiskip, sum eru skrásett við heimstaði í Danmark, Grønlandi ella øðrum landi, verða javnmett við skip, sum eru skrásett við heimstaði í Føroyum, um tey við ongari manning verða leigað av føroyskum reiðaravirki. Skip, skrásett við heimstaði í Føroyum, sum við ongari manning verða leigað til reiðaravirki í Danmark, Grønlandi ella øðrum landi til ferðafólka- og/ella farmaflutning, verður ikki mett sum skip, skrásett við heimstaði í Føroyum. 1. pkt. er ikki galdandi, um talan er um inntøku frá virksemi umborð á fiskiskipi, sum siglir uttan fyri føroysku landleiðirnar, og sum fiskar av kvotum, sum reiðaríið sjálvt hevur útvegað sær.
+k) (Strikað).
+l) fáa inntøku fyri arbeiði innt umborð á flogfari, sum er rikið av persóni ella felagi fevndum av § 1.
+m) fáa vinning ella tap við sølu ella aðrari avhendan av partabrøvum og øðrum virðisbrøvum fevnd av § 1, nr. 1 í kapitalvinningsskattalógini.
+Stk. 2. Skattskyldan fevnir einans um tílíkar inntøkur, sum nevndar eru í 1. stk., og bert tær útreiðslur, sum standast av at vinna hesar inntøkur, kunnu verða frádrignar.
+Stk. 3. Reglurnar í 1. stk., litra d) eru eisini galdandi fyri byggi-, nýgerðar-, innleggingar ella uppsetingarætlanir, ið vara longur enn 30 dagar. Sama er galdandi fyri virksemi, sum fevna um ráðlegging, eftirlit, ráðgeving ella aðra persónliga hjálp í sambandi við slíkar ætlanir.

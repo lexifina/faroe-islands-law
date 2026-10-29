@@ -1,0 +1,14 @@
+## 11. KAPITTUL
+## Ognaruppgerðin
+§ 110. [^1] Øll, sum eru undir skattskyldu til inntøkuskatt eftir hesi lóg, hava við teimum undantøkum og avmarkanum, ið sett eru niðanfyri, skyldu til at lata TAKS fullfíggjaða ognaruppgerð, sum er yvirlit yvir allar ognir og øll fíggjarlig rættindi við tilskilan av virðinum. Skattskyldugir persónar, ið ikki hava bókhalds- og roknskaparskyldu, kunnu lata verða við at lata inn ognaruppgerð, um so er, at tað í mun til seinast innlatnu ognaruppgerð ikki eru broytingar í árinum í ognum og rættindum. Landsstýrismaðurin í skattamálum kann í samráð við TAKS gera reglur fyri í hvønn mun skattskyldugur hóast broytingar í ognarviðurskiftunum kann lata verða við at lata inn ognaruppgerð. Skattskyldugur, ið eigur ognir uttanlands av slíkum slag, sum umrøddar eru í stk. 3, skal tó altíð lata inn ognaruppgerð.
+Stk. 2. Reglurnar í stk. 1, 2. pkt. eru tó ikki galdandi fyri skattskyldugar persónar, sum á fyrsta sinni skullu lata inn ognaruppgerð.
+Stk. 3. Ognir og rættindi umrødd í stk. 1 eru millum annað:
+1) Fastognir (grundøki við húsum ella uttan, eins og hús á annara manna øki),
+2) motorakfør, bátar, innbúgv og annað leysafæ
+3) vørur, ráevni, maskinur, innbúgv, innistøða og leysafæ, ið nýtt er í vinnu,
+4) peningur og peningagildi, útistandandi skuldir, skuldarbrøv, inniogn í banka, sparikassa ella aðrari peningastovnan, partabrøv, lutaprógv og aðrir partar í feløgum, somuleiðis lista- og frímerkjasøvn eins og skartgripir, tá ið virðið teirra eru meira enn 25.000 kr.
+Stk. 4. [^1] Oyðubløð til ta í stk. 1 nevndu ognaruppgerð verða gjørd eftir skipan landsstýrismansins í skattamálum í samráð við TAKS.
+Stk. 5. Til ogn í deyðsbúgvi, sum er tikið til almenna skiftisviðgerð her á landi, teljast allar ognir eftir hin deyða, sum verða tiknar til skiftis. Til ognina verða ikki tald tey virðir, sum eru útlutaðið arvingunum frammanundan uppgerðardegnum. Er útlutan av arvaforskoti ella gávum farin fram í deyðaárinum, skal hetta takast við í uppgerðina, men ikki teljast upp í ognina.
+Stk. 6. Letur persónur ikki inn ognaruppgerð yvir ogn síni í rættari tíð, soleiðis sum fyriskipað er í § 100, stk. 5 og § 110, stk. 1, ger tað sjálvuppgávu hansara av inntøkuni til einkis, jbr. tó stk. 1, 2. pkt. Økisskrivstovurnar fremja tá skattseting eftir reglunum í § 104, stk. 1.
+Stk. 7. Í teim førum, ið nevnd eru í stk. 1, 2. pkt., kunnu økisskrivstovurnar áleggja einum skattskyldugum at lata inn fullfíggjaða ognaruppgerð sambært stk. 1, 1. pkt., tá ið hetta verður hildið neyðugt fyri at fáa greiðu á serliga truplum og fløktum málum.
+Stk. 8. Um persónur ikki letur inn ognaruppgerð fyri ogn sína, tá ið hann verður kravdur eftir henni sambært reglunum í stk. 7 ger tað sjálvuppgávu hansara av inntøkuni til einkis. Økisskrivstovurnar kunnu tá fremja skattseting eftir reglunum í § 104, stk. 1.

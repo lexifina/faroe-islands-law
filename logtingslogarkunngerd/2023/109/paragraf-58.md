@@ -1,0 +1,1 @@
+§ 58. Samanlagdur fyribilsskattur í einum álmanakkaári skal um gjørligt verða ájavnur við skattin, sum verður álíknaður aftan á at álmanakkaárið er lokið. Hesin skattur verður nevndur “endaligur skattur”.

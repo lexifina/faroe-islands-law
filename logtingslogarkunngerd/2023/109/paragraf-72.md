@@ -1,0 +1,2 @@
+§ 72. Um skattskylduga inntøkan hjá persóni í inntøkuárinum ikki verður mett at verða so stór, at skattur skal gjaldast, kann líkningarvaldið gera av, at skattur ikki skal haldast eftir í A-inntøkuni. Reglan kann tó bert verða nýtt upp til eina ávísa inntøkuupphædd, sum er ájøvn við teir samanløgdu árligu frádráttirnar.
+Stk. 2. Hin skattskyldugi kann eftir áheitan fáa upplýsingar um, hvussu stór inntøka hansara kann verða, áðrenn A-skattur verður eftirhildin.

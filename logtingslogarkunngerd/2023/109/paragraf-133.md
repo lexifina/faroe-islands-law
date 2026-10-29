@@ -1,0 +1,1 @@
+§ 133. Teir skattir, sum verða álíknaðir einum persóni aftan á at hann er deyður, hevur búgvið ella arvingarnir ábyrgd av verða goldin. Arvingarnir hava samábyrgd, men bert í mun til ta upphædd, teir móttaka ella hava fingið frammanundan av arvi ella arvaforskoti, hjúnafelagin tó eisini við sínum búluti.

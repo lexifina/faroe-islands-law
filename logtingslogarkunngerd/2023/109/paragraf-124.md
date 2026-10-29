@@ -1,0 +1,1 @@
+§ 124. Føroya Gjaldstova og Almannastovan hava skyldu til at veita líkningarvaldinum upplýsingar um viðurskifti, sum kunnu hava týdning fyri skattaálíkningina. Landsstýrismaðurin í skattamálum kann gera nærri reglur í hesum sambandi.

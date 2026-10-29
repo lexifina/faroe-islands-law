@@ -1,0 +1,1 @@
+§ 121. Somu reglur, sum nevndar eru í § 120, 3. stk., galda eisini fyri nevndir fyri feløgum v.m., komanditfeløgum, partsreiðaríum, felagsskapum av einum og hvørjum slag, stovnum, gávufægrunnum og øðrum stovnanum og grunnum, hetta uttan mun til um tey eru skattskyldug ella ikki.

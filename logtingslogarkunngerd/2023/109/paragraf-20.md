@@ -1,0 +1,2 @@
+§ 20. Landsstýrismaðurin í skattamálum ásetir nærri reglur viðvíkjandi sjálvuppgávuni hjá búnum og endaligar búsuppgerðir, og um frágreiðingar frá skiftirættinum til líkningarvaldið.
+Stk. 2. Áðrenn eitt búgv verður latið til privat skifti, verður álagt arvingunum og hjúnafelaga, ið eigur lut í búnum, at skjóta ein persón upp teirra vegna, sum øll krøv eftir 14. § 2. stk., um endaliga álíkning og regulering av fyribils skattgjalding kunnu beinast til, og annars allar aðrar fráboðanir, um skattligu viðurskifti hjá tí deyða og búnum.

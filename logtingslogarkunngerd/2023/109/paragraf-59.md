@@ -1,0 +1,1 @@
+§ 59. Um lands-, kommunu- og kirkjuskattaprosentið fyri eitt inntøkuár ikki er ásett í seinasta lagi 1. desember sum galdandi fyri komandi inntøkuár, kann landsstýrismaðurin í skattamálum gera av, at fyribilsskatturin verður útroknaður eftir teimum seinast ásettu skattaprosentum.

@@ -1,0 +1,1 @@
+§ 53. Heldur líkningarvaldið í atvinnukommununi, at tann skattur, ið eftir reglunum frammanfyri kann verða álíknaður í atvinnukommununi, verður so lítil, at hann lønir ikki ómakin og útreiðslurnar, ið standast av at siga frá skattaálíkningini, er henni loyvt at sleppa hesum kravi.

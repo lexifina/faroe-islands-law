@@ -1,0 +1,2 @@
+§ 118 c. [^1] Ultimativa móðurfelagið í einum fleirtjóða samtaki, sum er skattskyldugt í Føroyum, skal handa TAKS eina land fyri land frágreiðing fyri eitt inntøkuár, har samtakið hevur ein konsolideraðan umsetning á í minsta lagi 5,6 mia. kr. roknskaparárið frammanundan inntøkuárinum, sum tað skal fráboðast um.
+Stk. 2. Land fyri land frágreiðingin skal í seinasta lagi vera latin inn 12 mánaðir eftir síðsta dag í tí inntøkuári, sum hon skal greiða frá.

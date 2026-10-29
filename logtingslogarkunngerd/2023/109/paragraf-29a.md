@@ -1,0 +1,4 @@
+§ 29 a. [^1] TAKS kann eftir umsókn loyva, at persónur undir fullari skattskyldu til Føroya verður frítikin fyri inntøkuskatt av løn og aðrari samsýning, vunnin fyri arbeiði, sum stovnur, ið fremur altjóða menningarsamstarv, skipar fyri og fíggjar, um so er, at arbeiðið fyri lønina og samsýningina er gjørt í einum menningarlandi, og persónurin er útsendur av slíkum stovni.
+Stk. 2. Persónur, sum verður útsendur og løntur av fyritøku, ið hevur gjørt avtalu við stovn, ið fremur altjóða menningarsamstarv, er eisini fevndur av stk. 1.
+Stk. 3. Landsstýrismaðurin kann í kunngerð áseta nærri reglur fyri skattafrítøku eftir hesi grein, og fyri hvørji skjalprógv o.a. skulu viðleggjast umsóknini.
+Stk. 4. [^1] Avgerðir hjá TAKS eftir stk. 1 og stk. 2 kunnu innan 4 vikur kærast til Skatta- og Avgjaldskærunevndina. Kæran skal vera skrivlig og grundgivin. Freistin verður roknað frá tí degi, at kærarin hevur fingið fráboðan um avgerðina.

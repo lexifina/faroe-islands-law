@@ -1,0 +1,5 @@
+## 15. KAPITTUL
+## Ymisk fyrimæli
+§ 151. Skattavaldinum, herundir eins væl líkningarvaldini sum limir í kommunalu skattakærunevndunum og Føroya Kærustovni og tey ið innheinta, er bannað, undir ábyrgd í borgarligari revsilóg fyri Føroyar, at siga óviðkomandi frá nøkrum av tí, sum teir fáa at vita um inntøku- og ognarviðurskifti, vinnuviðurskifti ella viðurskifti sum viðkoma heimlívinum hjá skattskyldugum ella ávísingarskyldugum, meðan teir røkja starv sítt sambært hesi lóg. Tað sama hevur gildi fyri tað hjálparfólk, sum starvar hjá skattavaldinum og annars hvønn og ein, sum hevur gjørt avtalu við tað almenna um at átaka sær eitt arbeiði og fær at vita um slík viðurskiftir. Er avtalan gjørd við eitt virki, so fevnir tagnarskyldan um øll tey í virkinum, sum fáa at vita um slík viðurskiftir.
+Stk. 2. Tey, sum koma undir hetta, skulu, tá tey taka við starvi, skrivliga lova at halda hesa tagnarskyldu.
+Stk. 3. Almannakunngerð av tílíkum, sum eftir lóg ikki er loyvt at gera almannakunnugt verður revsað við sektum. Ákæra kann reisast bæði um skattgjaldarin ella um landsstýrismaðurin í skattamálum krevur tað.

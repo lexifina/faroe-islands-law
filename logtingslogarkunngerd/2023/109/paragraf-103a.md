@@ -1,0 +1,1 @@
+§ 103 a. Landsstýrismaðurin kann áseta reglur um, at tær upplýsingar, sum nevndar eru í § 103, skulu fráboðast talgilt, og at dátuflutningur ímillum Hagstovu Føroya og TAKS skal fara fram talgilt. Landsstýrismaðurin kann eisini áseta reglur um talgilda fráboðan og um nýtslu av ávísum kt-skipanum, serliga við atliti at talgildum sniði og talgildari undirskrift.

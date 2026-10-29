@@ -1,0 +1,1 @@
+§ 76. Skattskyldugur kann gjalda meira í fyribilsskatti enn tað, sum kravt er inn við skattarokning ella er eftirhildið. Tílík inngjalding kann eisini verða gjørd aftan á at inntøkuárið er lokið, tó í seinasta lagi 31. januar í tí ári, sum líknað verður í.

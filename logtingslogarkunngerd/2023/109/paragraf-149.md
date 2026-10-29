@@ -1,0 +1,1 @@
+§ 149. Hann, sum ikki ger eftir fyriskipan, sum er fráboðað av landsstýrismanninum í skattamálum sambært § 103, stk. 1 og stk. 2. um at føra roknskap, ella ger seg sekan í stórari ógreiðslu við at føra slíkan roknskap, ella við at goyma henda við tilhoyrandi skjølum, sum ásett verða í krøvunum, kann verða dømdur í sekt.

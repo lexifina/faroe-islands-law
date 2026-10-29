@@ -1,0 +1,1 @@
+§ 109. Sambúgvandi hjúnafelagar hava rætt til at gera seg kunnugan við sjálvuppgávuna og ognaruppgerðina hjá hvørjum øðrum, áðrenn tær verða latnar líkningarvaldinum. Eisini hevur líkningarvaldið skyldu til, um biðið verður um tað, at lata hjúnafelaga fáa upplýsingar um inntøkuna og skattaútrokningina hjá hinum hjúnafelagnum.

@@ -1,0 +1,1 @@
+§ 65. Um hann, hvørs vegna tann umrødda inntøkan verður útgoldin, ikki hevur heimating í Føroyum, smb. 61. §, b), og útgjalding verður gjørd av fulltrúa hansara, sum hevur heimating her, er hesin skyldugur at ávísa inntøkuna gjøgnum tey í 63. §, 1. stk. nevndu avrokningarstøð.

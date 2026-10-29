@@ -1,0 +1,1 @@
+§ 128. Har líkningarvaldini sambært hesi lóg hava fingið rætt til at krevja upplýsingar, sum tey skulu nýta, tá skattur verður lagdur á, eiga kommunalu skattakærunevndirnar og Føroya Kærustovnur sama rætt, tá hon viðger kærur.

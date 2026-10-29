@@ -1,0 +1,1 @@
+§ 140. Á sama hátt sum tilskilað í § 139 verður tann persónur revsaður, sum við vilja ella av stórum gáloysni gevur skeivar ella villeiðandi upplýsingar at nýta í samband við eftiransingini av skattaálíkningini og skattaútrokningini.

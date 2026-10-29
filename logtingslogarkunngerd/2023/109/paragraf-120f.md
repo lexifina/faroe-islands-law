@@ -1,0 +1,2 @@
+§ 120 f. Teir, sum hava upplýsingarskyldu eftir §§ 120 b, 120 h og 120 j skulu leggja teirra roknskapir soleiðis til rættis, at tær upplýsingar, sum eru latnar sambært nevndu greinir, kunnu samanberast við roknskapirnar.
+Stk. 2. Teir, sum hava upplýsingarskyldu, skulu eftir áheitan senda inn roknskapartilfar ella annað skjalprógv, ið hevur verið nýtt sum grundarlag fyri teimum upplýsingum, sum latnar eru líkningarvøldunum. Líkningarvaldið kann á staðnum kanna nevnda roknskapartilfar og onnur skjalprógv.

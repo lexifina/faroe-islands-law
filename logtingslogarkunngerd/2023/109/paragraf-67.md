@@ -1,0 +1,4 @@
+§ 67. Grundarlagið undir fyribils skattgjaldingini er fyribilsskattaskrásetingin, sum verður gjørd eftir reglunum í 67.-76. §§.
+Stk. 2. [^1] TAKS skipar fyri stovnseting og umsiting av eini skattgjaldaraskrá, sum myndar grundarlagið undir tí tilfari, ið fyribilsskattaskrásetingin verður gjørd eftir. Í skattgjaldaraskránni verða tær upplýsingar skrásettar, sum fyri hvønn skattgjaldara sær mynda grundarlagið undir fyribils skattgjaldingini.
+Stk. 3. Við skattgjaldaraskránni sum grundarlag verða fyri hvørt inntøkuár sær tey fólk skrivað í manntal, sum væntandi skulu forskotsskrásetast. Landsstýrismaðurin í skattamálum ásetir nærri reglur fyri, í hvørji kommunu persónur skal fyribilsskrásetast.
+Stk. 4. Fyribilsskattaskrásetingin verður gjørd, um ikki reglurnar í 68. og 69. §§ eru galdandi, sambært teimum upplýsingum, líkningarvaldið hevur um inntøkuviðurskiftini hjá tí skattskylduga við seinastu álíkning ella fyribilsskattaskráseting.

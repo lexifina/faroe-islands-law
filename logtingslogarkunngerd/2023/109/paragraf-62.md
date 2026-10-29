@@ -1,0 +1,2 @@
+§ 62. Landsstýrismaðurin í skattamálum kann, tá serligar grundir eru til tess, gera av, at ein ávís inntøka ella eitt ávíst slag av inntøkum, sum koma undir 60. §, 1. stk., ikki skulu verða A-inntøkur. Fyri inntøku, sum sambært avgerð landsstýrismansins í skattamálum ikki er A-inntøka, verður upplýsingarskyldan sambært § 118 varðveitt.
+Stk. 2. [^1] Í øllum ivamálum ger TAKS av, um ein inntøka er A-inntøka. Avgerðin hjá TAKS kann kærast til landsstýrismannin.

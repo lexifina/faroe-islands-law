@@ -1,0 +1,3 @@
+§ 114. Ogn, sum persónur hevur inntøkurnar av ella nýtir, meðan annar persónur hevur fingið ognarrættin, tó uttan at hava ráð á henni, so leingi hin fyrr nevndi hevur inntøkurnar ella nýtsluna, verður til helvtar tald uppí ogn hansara, ið inntøkuna ella nýtslu hevur.
+Stk. 2. Men hevur hann, ið fær inntøkurnar av ognini ella nýtir hana, sjálvur avkannað sær ognarrættin, tá skal ognin øll verða tald upp í ognaruppgerð hansara.
+Stk. 3. Um maður hevur givið burtur ogn og lagt tað band á, at inntøkurnar fyri fyrst verða lagdar til goymslu, og at tann ella teir, ið gávuna fáa, ikki fyri fyrst fáa ráð á ognini við goymdum inntøkum, tá skal hann framvegis telja ognina við teimum burturgoymdu inntøkunum upp í ognaruppgerð sína.

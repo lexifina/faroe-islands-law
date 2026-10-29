@@ -1,0 +1,11 @@
+§ 25 a. Fyri skattskylduga inntøku um borð á fiskiskipi/útróðrarbáti verður roknað øll veiðiinntøka løgd inn í peningi ella peningsvirði. Bjargingarløn, løn fyri sleip og annað, sum ognast bátinum á veiðuferð, ella tá farið verður til hjálpar, kemur eisini undir reglurnar í hesi lóg.
+Stk. 2. Fyri skattskylduga inntøka umborð á útróðrarbáti verður eisini roknað veiðiinntøka fyri heimaegning, sum verður latin til í mesta lagi tveir av føstu manningini á jøvnum føti við teir, sum eru úti við bátinum. Øll onnur inntøka herundir egning, sum serlig samsýning verður latin fyri, inntøka av at gera nýggja útgerð til bátin, hjálp til at røkja bátin o.a.m., og vinningur av skiparakstri gjørdur upp eftir hesi lóg, verður roknað sum inntøka á landi og ikki sum veiðiinntøka.
+Stk. 3. Tá veiðiinntøkan o.a.m. sambært hesi grein, sum skal avroknast manningini eftir hesari lóg, verður gjørd upp, eru hesar treytir galdandi:
+1) Manningin er mynstrað eftir sáttmála millum Føroya Reiðarafelag og viðkomandi yrkisfelag, ella millum Meginfelag Útróðrarmanna og Báta- og Skipaeigarar.
+2) Har eingin sáttmáli er, er treytin, at minstrað verður, ella at hýra verður avtalað, eftir sáttmála millum viðkomandi reiðara ella skipaeigara og viðkomandi persón ella yrkisfelag.
+Stk. 4. Tann sáttmáli ella avtala, sum umrødd er undir stk. 3, skal sum minsta mark lúka hesi krøv:
+1) Av bruttoveiðuni gongur beinleiðis søluútreiðsla, agn, heimaegning smb. stk. 2, olja, upp til 1 og 1/4 fiskipart til møguligan kokk og annað, sum kann verða avtalað í sáttmála millum manning og eigara.
+2) Av nettoveiðini uppgjørd sambært 1) fær manningin hægst 45% + frítíðarløn av einum fiskiparti. Umframt fiskipartin kann eigarin sjálvur rinda samanlagt upp til 10% av nettoveiðini til skipara, motorpassara og bestamann.
+Stk. 5. Um tann, ið er við føroyskum fiskiskipi, eigur part í skipinum, verður bert tann parturin av inntøkuni, sum er gjørd upp sambært reglurnar í stk. 3 og 4 og sum er sami uppgerðarháttur, sum hjá hinum av manningini, roknað sum veiðiinntøka.
+Stk. 6. Hjá fiskimonnum, sum eru skattskyldugir í Føroyum sambært § 1 í hesu lóg, og sum eru mynstraðir við fiskiskipum, sum ikki eru skrásett í Føroyum, og sum har fáa hýru sambært sáttmála, verður hýran lækkað, smb. § 33, nr. 17, áðrenn skattur verður álagdur sambært skattalógini.
+Stk. 7. (Strikað).

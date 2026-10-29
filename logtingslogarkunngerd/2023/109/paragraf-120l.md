@@ -1,0 +1,1 @@
+§ 120 l. Ber nakar seg undan at ganga undir ásetingunum í § 120 b, stk. 1-3 ella § 120 e, § 120 h, stk. 1, § 120 j stk. 1 ger landsstýrismaðurin í skattamálum av, um viðkomandi er skyldugur at gera tað, og kann um neyðugt tvinga hesa skyldu ígjøgnum við at áleggja dagliga sekt.

@@ -1,0 +1,6 @@
+§ 118 e. Eitt samtaksfelag skal ikki handa skattamyndugleikunum eina land fyri land frágreiðing, um frágreiðingin, vegna fleirtjóða samtakið verður handað av umboðsmóðurfelagnum í tí rættardøminum, har umboðsmóðurfelagið hoyrir heima, og fylgjandi treytir eru loknar:
+1) Í rættardøminum, har umboðsmóðurfelagið skattliga hoyrir heima, er krav um handan av land fyri land frágreiðingini.
+2) Rættardømið, har umboðsmóðurfelagið skattliga hoyrir heima, hevur eina altjóða avtalu um umbýting av upplýsingum við Føroyar, og ein sjálvvirkandi skipan ger, at land fyri land frágreiðingar verða umbýttar, í samsvari við avtalu millum teir málsráðandi myndugleikarnar.
+3) Eingin skipanarligur feilur er viðvíkjandi tí rættardøminum, har umboðsmóðurfelagið hoyrir heima, ella skattamyndugleikarnir hava latið vera við at boða samtaksfelagnum frá um skipanarligan feil.
+4) Rættardømið, har umboðsmóðurfelagið skattliga hoyrir heima, hevur móttikið eina fráboðan, sbrt. § 118 f, stk. 1, frá einum samtaksfelag, sum skattliga hoyrir heima í sama rætttardømi sum umboðsmóðurfelagið, um, at samtaksfelagið skal virka sum umboðsmóðurfelag.
+5) Samtaksfelagið hevur boðað skattamyndugleikunum frá, sbrt. § 118 f, stk. 2.

@@ -1,0 +1,1 @@
+§ 123. Uttan mun til ásetingarnar í lóg um Postverk Føroya, um tagnarskyldu v.m., so eru somu reglur galdandi fyri Postgirostovuna um upplýsingarskyldu v.m. fyri líkningarvaldinum, sum er álagt øðrum peningastovnum í hesi lóg.

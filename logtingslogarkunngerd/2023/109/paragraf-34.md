@@ -1,0 +1,4 @@
+§ 34. Skattligar avskrivingar av ognarlutum, sum verða nýttir í vinnuvirki hjá øðrum hjúnafelaganum, verða gjørdar av hesum, hetta uttan mun til, um hann sjálvur ella hin hjúnafelagin er ánari.
+Stk. 2. Flytur annar hjúnafelagin ognir til hin hjúnafelagan til nýtslu í vinnuvirki hansara, skal vinningur ella hall ikki teljast við í skattskyldugu inntøkuni hjá fyrrnevnda.
+Stk. 3. Aftan á yvirflyting verða ognirnar avskrivingarliga og viðvíkjandi vinningi/halli viðgjørdar, sum um tær vóru útvegaðar av móttakaranum tá og fyri somu peningahædd, sum tær í sínari tíð vórðu útvegaðar fyri og verða fyrr gjørdar avskrivingar mettar, sum gjørdar av honum.
+Stk. 4. Uttan mun til fyriskipanirnar í 2. stk. verða reglurnar í 31. § í avskrivingarlógini galdandi, um ognirnar við yvirflyting til hin hjúnafelagan verða fluttar til aðra nýtslu.

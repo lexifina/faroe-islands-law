@@ -1,0 +1,1 @@
+§ 38. Rentur av útistandandi skatti og ov seint goldnum skatti annars, ið nevndar eru í 78. § og 135. §, kunnu ikki dragast frá tí skattskyldugu inntøkuni. Renta av ov seint goldnum tolli og avgjaldi verður viðgjørd eins og renta av útistandandi og ov seint goldnum skatti.

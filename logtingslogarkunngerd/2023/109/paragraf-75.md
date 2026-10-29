@@ -1,0 +1,2 @@
+§ 75. Meta líkningarvaldini, at longu goldin fyribilsskattur er munandi hægri enn endaligi skatturin, og tað tykist at vera órímuligt at bíða eftir tí í § 79 ásettu tíð fyri afturgjalding, verður ein upphædd, sum svarar til tann eftir meti líkningarvaldsins ov nógv goldna skattin afturgoldin skattgjaldaranum eftir umbøn.
+Stk. 2. Endurgjald eftir 79. §, 3. stk. verður ikki góðskrivað tí skatti, sum verður afturgoldin eftir 1. stk.

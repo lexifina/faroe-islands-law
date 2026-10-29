@@ -1,0 +1,5 @@
+§ 145. [^1] Metir TAKS, at misbrotið ikki kemur undir strangari revsing enn sekt, kann landsstýrismaðurin í skattamálum ella hann, ið landsstýrismaðurin í skattamálum gevur heimild til tess, boða honum, sum hetta viðvíkir, at málið kann verða loyst uttan rættarviðgerð, um so er, at hann viðgongur seg sekan í lógarbrotinum og váttar, at hann innan eina nærri ásetta freist, sum eftir áheitan kann verða longd, vil gjalda eina í fráboðanini tilskilaða sekt.
+Stk. 2. Viðvíkjandi teimum í 1. stk. umrøddu fráboðanum, verða reglurnar í rættargangslógini um innihaldið í ákæruritum samsvarandi galdandi.
+Stk. 3. Verður sektarpeningurin goldin rættstundis, ella verður sektin sambært góðkenning innheintað ella verður á annan hátt liðið revsing fyri hana, fellur málið burtur.
+Stk. 4. Dømdur sektarpeningur sambært tí, ið frammanfyri er ásett, verður býttur millum teir kassar, ið hava rætt til skattin eftir tí, ið hvør eigur av skattinum.
+Stk. 5. [^1] Landsstýrismaðurin í skattamálum kann heimila TAKS at taka avgerðir í málum, sum verða viðgjørd eftir reglunum í hesum kapittli.

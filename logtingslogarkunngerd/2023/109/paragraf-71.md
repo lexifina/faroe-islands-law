@@ -1,0 +1,1 @@
+§ 71. Verður mett, at ein persónur skal gjalda fyribilsskatt av B-inntøku, og ikki hevur A-inntøku, verður fyribilsskatturin goldin sambært skattarokning. Hann verður roknaður av einari ætlaðari B-inntøku, sum er lækkað við teimum frádráttum, sum mett verður, at skattgjaldarin hevur rætt til, tá endaliga inntøkuuppgerðin og skattaútrokningin verður gjørd fyri hetta inntøkuárið.

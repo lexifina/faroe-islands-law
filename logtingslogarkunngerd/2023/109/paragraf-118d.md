@@ -1,0 +1,7 @@
+§ 118 d. [^1] Eitt samtaksfelag, sum ikki er tað ultimativa móðurfelagið, skal lata land fyri land frágreiðingina inn áðrenn freistina, sum er nevnd í § 118 c, stk. 2, sbr. tó § 118 e, um hesar treytir eru loknar:
+1) Samtaksfelagið er skattskyldugt í Føroyum, og
+2) ein ella fleiri av fylgjandi treytum eru loknar:
+a) Tað ultimativa móðurfelagið í samtakinum hevur ikki ábyrgd av at handa eina land fyri land frágreiðing inn í landinum, har tað hoyrir heima.
+b) Sjálvvirkandi umbýting av land fyri land frágreiðingum hendir ikki, orsakað av at eingin avtala er gjørd ímillum teir føroysku málsráðandi myndugleikarnar og myndugleikarnar í tí viðkomandi rættardøminum, har tað ultimativa móðurfelagið skattliga hoyrir heima, sjálvt um hesi lond hava eina altjóða avtalu um umbýting av skattaupplýsingum.
+c) Ein skipanarligur feilur er hendur í tí rættardøminum, har tað ultimativa móðurfelagið skattliga hoyrir heima, og skattamyndugleikarnir hava fráboðað samtaksfelagnum í nr. 1 um hetta.
+Stk. 2. Eru ein ella tvær av treytunum, sum eru nevndar í stk. 1, nr. 2 loknar, og er talan um meira enn eitt føroyskt samtaksfelag, sbrt. stk. 1, nr. 1, skulu samtaksfeløgini velja eitt av samtaksfeløgunum til at virka sum umboðsmóðurfelag og skal hetta umboðsmóðurfelagið tryggja sær, at land fyri land frágreiðingin verður handað skattamyndugleikunum áðrenn freistina, sum er nevnd í § 118 c, stk. 2. Skattamyndugleikarnir skulu fáa boð um valið av umboðsmóðurfelagi, og hetta hevur valda samtakið ábyrgd av at gera.

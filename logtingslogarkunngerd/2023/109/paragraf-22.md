@@ -1,0 +1,4 @@
+§ 22. Persónur, sum sambært 2. § hevur avmarkaða skattskyldu her á landi, verður fyrstu ferð settur í skatt sambært reglunum í 24. §, 2. stk.
+Stk. 2. Feløg v.m., sum sambært 2. § hava avmarkaða skattskyldu her á landi, verða fyrstu ferð sett í skatt sambært reglunum í 21. §, 1. stk.
+Stk. 3. Er inntøkukeldan uppathildin, áðrenn endalig álíkning kann verða gjørd eftir 1. stk., skal líknað verða av allari inntøkuni, sum vunnin er eftir reglum og stigum, sum galdandi eru fyri inntøkuárið, hildið verður uppat í.
+Stk. 4. Heldur inntøkukeldan uppat, stendur skattskyldan við til tað inntøkuárið er úti, ið hildið varð uppat í, og skal tá umframt verða álíknaður skattur við serstakari líkning av inntøkuni í tíðini frá enda roknskaparársins, ið seinasta vanliga endaliga skattseting varð gjørd eftir og til hildið varð uppat, eftir reglum og stigum, sum galdandi eru fyri sama skattaár.

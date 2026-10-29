@@ -1,0 +1,5 @@
+§ 5. Børn verða sett sjálvstøðugt í skatt av allari inntøku síni.
+Stk. 2. Um børn, sum fyrst í inntøkuárinum ikki hava fylt 16 ár, hava vinnu í vinnuvirki foreldranna, stjúk - ella fosturforeldranna, kunnu hesi ikki draga lønina til børnini frá, tá ið tey gera skattskyldugu inntøkuna upp. Lønin skal heldur ikki takast við í skattskyldugu inntøkuni hjá børnunum.
+Stk. 3. Tá inntøkan hjá børnum, ið búgva heima og sjálv eru skattskyldug, verður mett til skatt, verður ikki talt upp í tað, sum tey fáa til uppihald, heilt ella lutvíst frá foreldrunum, uttan so at hetta er viðurlag fyri starv í virki foreldranna ella vinnu, og tað tí er drigið frá skattskyldugu inntøku teirra.
+Stk. 4. Hevur eitt barn fingið eina innløguveiting ella ogn sum gávu frá foreldrum, stjúk- ella fosturforeldrum, verður vinningur av hesi innløguveiting ella vinningurin av ognini tikin við í skattskyldugu inntøkuni hjá gevara, um hann er undir fullari skattskyldu. Hetta er tó bert galdandi til endan á tí álmanakkaári, ið barnið fyllir 18 ár, ella giftist.
+Stk. 5. (Strikað).

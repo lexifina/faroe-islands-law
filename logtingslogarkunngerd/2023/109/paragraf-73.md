@@ -1,0 +1,1 @@
+§ 73. Verður mett, at hin skattskyldugi skal gjalda fyribilsskatt bæði av A-inntøku og B-inntøku, ger landsstýrismaðurin í skattamálum av, í hvønn mun fyribilsskatturin skal verða eftirhildin ella goldin sambært skattarokning.

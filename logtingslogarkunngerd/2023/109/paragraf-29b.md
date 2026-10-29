@@ -1,0 +1,3 @@
+§ 29 b. Til ta skattskyldugu inntøkuna telist ikki samsýning til dómarar, linjuverjar, umframt til venjarar innan ítróttina, og leiðarar, hjálparar hjá ítróttafeløgum, um samsýningin ikki fer upp um kr. 50.000 um árið.
+Stk. 2. Persónar, sum fáa samsýning eftir reglunum í stk. 1, kunnu ikki samstundis fyri sama virksemi fáa skattafríar veitingar eftir § 29, nr. 7 í hesi lóg uttan so, at talan er um ferðing uttanlands í arbeiðsørindum.
+Stk. 3. Tann, sum rindar út samsýning eftir reglunum í stk. 1, skal rinda samsýningina um eitt av landsstýrinum góðkent avrokningarstað eftir reglunum í § 63 í hesi lóg.

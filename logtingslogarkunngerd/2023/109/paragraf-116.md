@@ -1,0 +1,2 @@
+§ 116. Ogn hjá børnum yngri enn 16 ár verður tald upp í ognaruppgerðina hjá tí av foreldrunum, sum hevur foreldramyndugleikan. Tá talan er um børn í hjúnalagi avgera foreldrini sjálvi hvør av teimum skal rokna ogn barnanna upp í ognaruppgerð sína.
+Stk. 2. Sambúgvandi hjún taka hvør sær egnar ognir við á ognaruppgerð sína. Landsstýrismaðurin í skattamálum verður heimilaður við kunngerð at fyriskriva nærri reglur fyri, hvussu skattliga ognarbýti skal verða gjørt hjá sambúgvandi hjúnum.

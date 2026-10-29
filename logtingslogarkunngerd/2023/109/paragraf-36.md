@@ -1,0 +1,1 @@
+§ 36. Keypssamtøkur, sum eru skattskyldugar sbr. 1. §, nr. 11, kunnu, tá skattskyldug inntøka verður uppgjørd, draga frá afturberingina, sum verður útgoldin limunum í mun til tað, teir hava keypt av vørum og tænastum.
