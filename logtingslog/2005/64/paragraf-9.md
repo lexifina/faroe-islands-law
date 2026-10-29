@@ -1,0 +1,6 @@
+## Ferða- og uppihaldsútreiðslur fyri ávístar fylgjarar
+§ 9. [^5] [^2] Sjúkrahúsverkið kann bera ferða- og uppihaldsútreiðslur fyri ein fylgjara hjá sjúklingi, ið verður sendur til viðgerðar og endurvenjingar uttanlands, um sjúklingurin hevur lívshóttandi sjúku, ella um sjúklingurin vegna likamligt, sálarligt ella sosialt ófullføri, ikki er førur fyri at ferðast ella uppihalda sær einsamallur uttanlands.
+Stk. 2. [^5] Er sjúklingurin yngri enn 18 ár, kann sjúkrahúsverkið bera ferða- og uppihaldsútreiðslur fyri ein fylgjara, uttan mun til um treytirnar í stk. 1 eru uppfyltar. Í serligum førum kann sjúkrahúsverkið ávísa tveimum fylgjarum við sjúklingi undir 18 ár.
+Stk. 3. [^5] Um ein sjúklingur, sum hevur fingið ávíst fylgjara sambært stk. 1 ella stk. 2, liggur sjúkur uttanlands í longri tíðarskeið, kann sjúkrahúsverkið bera útreiðslurnar av, at fylgjarar við jøvnum millumbilum kunnu skiftast um at fara uttanlands at vera um sjúklingin.
+Stk. 4. [^5] Ferðast eigur at verða á tann eftir umstøðunum bíligasta og ráðiligasta hátt.
+Stk. 5. [^5] Landsstýrismaðurin kann áseta nærri reglur viðvíkjandi ávísing av fylgjarum, herundir nærri treytir fyri at fáa fylgjara við, reglur um umsiting og gjald fyri ávísar ferða- og uppihaldsútreiðslur uttanlands.
