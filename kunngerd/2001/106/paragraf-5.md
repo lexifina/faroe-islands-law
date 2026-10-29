@@ -1,0 +1,14 @@
+## Niðurberjing av sjúkum á lista I
+§ 5. Um tað á einum akvakulturbrúki eru akvakulturdýr, sum eru undir illgruna fyri at vera fongd við sjúku á lista I, setir embætisdjóralæknin eina kliniska kanning í verk beinanvegin, til tess at sjúkan kann verða staðfest. Í hesum sambandi skal embætisdjóralæknin síggja til, at neyðugar royndir til starvsstovukanningar verða tiknar.
+Stk. 2. So skjótt illgruni er um, at ein sjúka á lista I er til staðar, setir embætisdjóralæknin akvakulturbrúkið undir veterinert eftirlit og ásetir:
+1. at ein teljing av øllum sløgum og bólkum av akvakulturdýrum verður framd, og at tað fyri hvørt slagið og hvønn bólkin sær verður skrásett, hvussu nógv akvakulturdýr eru deyð, sjúkufongd ella eru undir illguna um at vera sjúkufongd ella eru smittað við einari av nevndu sjúkum. Eigarin ella brúkarin dagførir teljingina, soleiðis at tað sæst, um broyting er í búfjøldini, ella um nýtt felli er í tíðarskeiðinum, tá illgruni er. Upplýsingar um teljingina skulu vísast fram, tá biðið verður um tað og kannast við hvørja vitjan,
+2. at hvørki livandi ella deyð akvakulturdýr, rogn ella sil verða førd til ella frá akvakulturbrúkinum uttan loyvi frá embætisdjóralæknanum,
+3. at deyð akvakulturdýr og sláturburturkast bert verður beint burtur við loyvi frá embætisdjóralæknanum,
+4. at fóður, amboð, lutir ella annað tilfar, so sum burturkast, ið kann hugsast at kunna flyta sjúkuna, bert verður ført til ella frá akvakulturbrúkinum við loyvi frá, embætisdjóralæknanum, sum ásetir neyðugu treytirnar fyri hesum,
+5. at persónar ikki hava atgongd til akvakulturbrúkið og ikki mugu fara frá akvakulturbrúkinum uttan loyvi frá embætisdjóralæknanum,
+6. at akfør bert hava atgongd til akvakulturbrúkið, og bert kunnu fara frá akvakulturbrúkinum, við loyvi frá embætisdjóralæknanum, sum ásetir neyðugu treytirnar,
+7. at hóskandi sóttreinsingarevni verða nýtt við inn- og útgongdina til/frá akvakulturbrúkinum,
+8. at ein epizootiologisk kanning verður framd eftir § 8, og
+9. at øll akvakulturbrúk, sum liggja í sama frárenningarøki ella strandarøki, verða sett undir veterinert eftirlit, og at ongi akvakulturdýr og einki rogn ella sil kann fara frá hesum akvakulturbrúkum uttan loyvi frá embætisdjóralæknanum. Er talan um eitt stórt frárenningarøki ella strandarøki kann embætisdjóralæknin gera av at avmarka hesi tiltøk til eitt minni øki nærindis sjúkufongda akvakulturbrúkinum, um hann metir, at hetta økið gevur bestu trygdina fyri, at sjúkan ikki breiðir seg.
+Stk. 3. Til almennu tiltøkini eru sett í verk, skal eigarin ella brúkarin av sjúkufongda akvakulturbrúkinum seta øll egnað tiltøk í verk til tess at halda ásetingarnar í stk. 2, tó ikki nr. 8 og 9.
+Stk. 4. Tiltøkini, ið eru nevnd í stk. 2, verða ikki strikað fyrr enn illgrunin um sjúku er vorðin avsannaður af Landsdjóralæknanum.

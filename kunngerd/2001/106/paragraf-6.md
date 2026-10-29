@@ -1,0 +1,10 @@
+§ 6. Um ein sjúka á lista I verður staðfest af Landsdjórlæknanum, ásetir embætisdjóralæknin, umframt tey tiltøk, sum nevnd eru í § 5, hesi tiltøk:
+1. á einum sjúkufongdum akvakulturbrúki at:
+a. øll akvakulturdýr skulu slátrast ella beinast burtur eftir eini ætlan, sum er góðkend av embætisdjóralæknanum,
+b. øll deyð akvakulturdýr, akvakulturdýr við viðkomandi sjúkueyðkennum, rogn og sil skulu roknast sum hávandaevni, og skulu beinast burtur efter ávísing embætisdjóralæknans,
+c. øll livandi akvakulturdýr skulu antin avlívast og burturbeinast eftir eini ætlan, sum embætisdjóralæknin hevur góðkent, ella, um so er, at akvakukturdýrini hava rokkið handilsstødd, og eingi tekin um kliniska sjúku eru, avlívast undir umsjón embætisdjóralæknans við sølu ella virking til matna fyri eyga. Í síðst nevnda føri ansar embætisdjóralæknin eftir, at akvakulturdýrini skjótast gjørligt verða slátrað, at innvølurin verður tikin út, og at hetta fer fram undir slíkum umstøðum, at sloppið verður undan spjaðing av sjúkuni. Sláturburturkastið skal roknast sum hávandaevni,
+d. allir hyljar á landi skulu tømast fyri vatn, og aliringar og onnur útgerð á sjónum skal takast í land. Allir hyljar, aliringar og onnur, sum kunnu vera kontaminerað, skulu reinsast og sóttreinsast eftir boðum frá embætisdjóralæknanum, og
+e. ein epizootiologisk kanning skal verða framd í samsvar við § 8,
+2. øll akvakulturbrúk í frárenningarøkjum ella strandarøkjum, har eitt sjúkufongt akvakulturbrúk er, skulu heilsukannast. Um so er, at tað í hesi kanning verða ávístir positivir tilburðir, skulu ásetingarnar í litra a hesum stykki nýtast,
+3. tilgongd av nýggjum akvakulturdýrum á akvakulturbrúkinum kann bert fara fram við loyvi frá embætisdjóralæknanum eftir nøktandi eftirlit við reingerð og sóttreinsan, og eftir eitt tíðarskeið, sum embætisdjóralæknin ásetir sum trygd fyri, at smittuevni og onnur møgulig ígerð í frárenningarøkinum, er týnd.
+Stk. 2. Niðurberjing av ILA hjá fiski skal fara fram eftir reglunum í kunngerðini um niðurberjing av ILA.

@@ -1,0 +1,1 @@
+§ 7. Eru vill akvakulturdýr, sum ikki hoyra til nakað akvakulturbrúk, ella akvakulturdýr í vøtnum, hyljum ella aðrari støð sjúkufongd ella undir illgruna fyri at vera sjúkufongd , syrgir embætisdjóralæknin fyri, at hóskandi tiltøk verða sett í verk.

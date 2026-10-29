@@ -1,0 +1,2 @@
+§ 12. Tað er ikki loyvt at koppseta móti sjúku á lista I. Heldur ikki er loyvt at koppseta móti sjúku á lista II í góðkendum øki og góðkendum akvakulturbrúki, sum liggur í øki, sum ikki er góðkent, og í øki og akvakulturbrúki, har aðrar góðkenningarmannagongdir longu eru farnar í gongd.
+Stk. 2. Landsdjóralæknin kann tó loyva koppseting, tá ein sjúka á lista I brýtur út, um so er, at koppsetingarframferðarhættir eru ásettir í tilbúgvingarætlanunum, sum eru góðkendar sambært grein 15 í direktivi 93/53/EØF.
