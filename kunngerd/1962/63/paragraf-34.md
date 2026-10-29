@@ -1,0 +1,1 @@
+§ 34. 1 Øll hava rætt til eftir teimum reglum, sum ásettar eru, við skrivligari umsókn, har øll nøvn partanna og starv eru tilskilað, at fáa at vita, um hjúnasáttmáli er gjørdur, og um so er, nær og hvar hann er tinglýstur.

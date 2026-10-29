@@ -1,0 +1,1 @@
+§ 40. Tey pantibrævaoyðubløð og onnur oyðubløð, ið góðkend eru av løgmálaráðnum, fara at verða nýtt, til tey verða avloyst av øðrum, landsstýrið hevur góðkent, smbr. § 3. Sama er galdandi viðvíkjandi endurritstilfari.

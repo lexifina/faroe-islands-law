@@ -1,0 +1,1 @@
+§ 10 e. Tá ið broytingar verða tinglýstar, sum viðvíkja teimum í § 10 a, stk. 2 nevndu viðurskiftum, verða reglurnar í § 10 a, stk. 2-5 nýttar samsvarandi. Verða støddirnar á eigaraíbúðunum ella lutaíbúðunum broyttar, verða ásetingarnar í §§ 21-24. í tinglýsingarlógini samsvarandi nýttar.

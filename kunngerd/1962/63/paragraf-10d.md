@@ -1,0 +1,1 @@
+§ 10 d. Eigaraíbúðarbløðini og lutaíbúðarbløðini verða sett í tingbókina í nummarrøð, annaðhvørt aftan á blað eigindómsins í tingbókini, ella í eina serstaka deild av hesi. Tær vanligu reglurnar um eigindómsbløð verða samsvarandi nýttar um eigaraíbúðarbløð og lutaíbúðarbløð.

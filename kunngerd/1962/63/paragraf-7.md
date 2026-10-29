@@ -1,0 +1,1 @@
+§ 7. Tá ið áritið á áður lýstum skjali skal tinglýsast, skal tilmeldarans navn og bústaður vera sett í áritið. Á endurritinum skulu teir í T.L. § 9, stk. 3, kravdu upplýsingar standa og viðmerkt skal vera, hvørjum skjali áritið viðvíkur.

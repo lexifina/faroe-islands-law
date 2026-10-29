@@ -1,0 +1,1 @@
+§ 31. Endurritini av tinglýstum skjølum verða sett í aktirnar eftir teimum 4 persónbóksdeildunum og í hvørji deild eftir persónbóksins bókstavum ella eftir teirri røð, tey eru tinglýst. Ásetaninar í § 26 koma somuleiðis her í nýtslu. Aktirnar verða savnaðar í serligum stálskápum ella -køssum.

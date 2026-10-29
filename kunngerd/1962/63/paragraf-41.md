@@ -1,0 +1,1 @@
+§ 41. Henda kunngerð kemur í gildi sambært reglurnar í T.L. § 54. Aftaná ta tíð, sum nevnd er í § 54, stk. 1, 1. pkt., fer kunngerð frá 28. november 1925 um innskriving av hjúnasáttmálum v. m. úr gildi.

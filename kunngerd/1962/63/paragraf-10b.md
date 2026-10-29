@@ -1,0 +1,1 @@
+§ 10 b. Á blað eigindómsins í tingbókini verður viðmerkt, at eigindómurin er býttur sundur í eigaraíbúðir ella lutaíbúðir, við tilskilan av tilmeldingardegi og íbúðatali. Avritið av yvirlitinum og avritini av kortunum verða løgd í aktina.
