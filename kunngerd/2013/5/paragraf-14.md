@@ -1,0 +1,3 @@
+§ 14. Avgerð hjá leiðara útbúgvingarstovnsins um at seta agatiltøk í verk sbrt. § 7, stk. 1, og § 9, stk. 2, og avgerðin um at nokta uppflyting í næsta flokk sbrt. § 11, kann kærast til landsstýrismannin. Kærufreistin er 4 vikur, eftir at kærarin hevur móttikið avgerðina.
+Stk. 2. Næmingur kann kæra um avgerð hjá leiðara útbúgvingarstovnsins sbrt. stk. 1. Kæran skal vera skrivlig og hava ítøkiliga grundgeving. Er kærarin ikki myndigur, kann foreldramyndugleikin kæra í hansara stað.
+Stk. 3. Kæra um agatiltak sbrt. § 7, stk. 1, hevur ikki steðgandi virkna, uttan so at ávikavist leiðari útbúgvingarstovnsins ella Mentamálaráðið í serstøkum føri taka avgerð um at steðga virknaði, til kæran er liðug viðgjørd.

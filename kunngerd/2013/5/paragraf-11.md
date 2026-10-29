@@ -1,0 +1,2 @@
+§ 11. Um so er, at støðumet næmingsins við skúlaárs enda er undir markinum fyri at standa, og mett verður, at næmingurin ikki hevur fingið nóg mikið burtur úr undirvísingini higartil, kann leiðari útbúgvingarstovnsins nokta at flyta næmingin upp í næsta flokk. Hendir tað, verður næmingurin skrivaður út úr útbúgvingini, sbr. stk. 2.
+Stk. 2. Næmingur, sum ikki verður fluttur upp í næsta flokk, kann eftir umsókn til leiðara útbúgvingarstovnsins, fáa loyvi at taka árið umaftur. Møguleikan, at ganga um aftur á somu breyt, kann næmingur bert nýta eina ferð.
