@@ -1,0 +1,1 @@
+§ 20. Inniheldur ein matvøra tilfar ella tilfarspartar í smáum nøgdum, sum dentur verður lagdur á í merkingini ella í vøruheitinum, skal nøgdin av hesum tilfari/tilfarspørtum skrivast beint við vøruheitið. Nøgdin av tilfarinum/tilfarspørtunum skal tilskilast í prosentum, og verða roknað út frá nøgdini/nøgdunum nýtt í framleiðsluni.

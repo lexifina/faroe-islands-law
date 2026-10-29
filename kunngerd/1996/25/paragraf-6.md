@@ -1,0 +1,1 @@
+§ 6. Sukurvørur eru matvørur, sum bert innihalda sukur ella har meginparturin av vøruni er sukur. Tað vil siga sukur, hunangur, sjokoláta, konfekt, marsipan, sukurkrem, kokosbollar, bomm, lakresvørur, gummibomm, tyggigummi o.t.

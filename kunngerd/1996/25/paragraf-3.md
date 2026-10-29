@@ -1,0 +1,1 @@
+§ 3. Matveitingar eru liðugt pakkaðar matvørur, antin pakkaðar í smásølueindir ella í størri eindir, seldar til stórkøkar, flutningsfør, sum proviantur ella sum matur út av húsinum til størri samkomur o.t.

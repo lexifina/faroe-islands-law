@@ -1,0 +1,1 @@
+§ 11. Matvøruheitið skal greitt lýsa, hvussu matvøran er viðgjørd. Framgongur hetta ikki av vøruheitinum, skal viðgerðarhátturin tilskilast áðrenn ella aftaná vøruheitið, um tað kann hava við sær, at brúkarin fer at ivast, um upplýsingin ikki stendur.

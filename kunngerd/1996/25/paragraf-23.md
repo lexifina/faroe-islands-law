@@ -1,0 +1,1 @@
+§ 23. Er ein liðugt pakkað vøra í tveimum ella fleiri eins pøkkum, verður nettovektin í hvørjum pakka sær tilskilað, og hvussu nógvir pakkar eru. Henda tilskilan er ikki neyðug, um skilliga sæst uttanífrá, hvussu nógvir pakkar eru, og um upplýsingin um nettoinnihaldið í tí einstaka pakkanum er lætt at síggja uttanífrá, í hvussu er á einum pakka.

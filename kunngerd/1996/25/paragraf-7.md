@@ -1,0 +1,1 @@
+§ 7. Leysasøla er søla av matvørum, tá viðskiftafólkið sjálvt, á staðnum, tekur avgerð um nøgd, stødd, tal ella vekt á vøruni/vørunum, sum verða keyptar. Vørurnar eru í flestu førum ópakkaðar og verða seldar um disk, so sum bakaravørur, vørur frá krásadeild o.l. Leysasøla í sjálvtøku kann vera góðgæti, sum fólk sjálvi koyra í posar.
