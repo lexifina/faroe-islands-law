@@ -1,0 +1,2 @@
+§ 2. Formaðurin kallar leiklistaráðið til fundar við 14 daga freist. Formaðurin ger í samráð við stjóran fyri Tjóðpall Føroya fundarskrá, og skal formaðurin tryggja, at leiklistaráðið fær til vega neyðugt málstilfar til fundirnar.
+Stk. 2. Leiklistaráðið er viðtøkuført, tá ið minst 5 ráðslimir eru møttir á fundi. Við atkvøðugreiðslu er vanligur meiriluti galdandi. Stendur á jøvnum er atkvøða formansins avgerandi.
