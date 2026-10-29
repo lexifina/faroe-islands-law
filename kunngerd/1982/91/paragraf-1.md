@@ -1,0 +1,2 @@
+§ 1. Grunnurin er stovnaður av Chr. Matras, professara, dr. phil., og Føroya Fróðskaparfelag (Societas Scientiarum Færoensis). Upprunaliga stovnsfæið, kr. 62.866,- (DM 20.000), er OSSIAN-heiðurslønin, sum Die Stiftung F.V.S. zu Hamburg letur í peningi, og sum kjørnevndin fyri heiðurslønini hevur samtykt at veita Chr. Matras og Fróðskaparfelagnum fyri árið 1981.
+Stovnspeningurin, sum hann er og verður, skal standa í banka ella sparikassa við hægstu rentu.
