@@ -1,0 +1,2 @@
+§ 4. Sernámsdepilin skal í samráð við skúlamyndugleikarnar á staðnum geva foreldrunum ráð og vegleiðing um teir námsfrøðiligu møguleikarnar hjá barninum, og skal í hesum sambandinum vísa á, hvar í landinum bestu undirvísingarmøguleikarnir hjá barninum eru.
+Stk. 2. Tá kunningin sbrt. stk. 1 er givin, gera foreldrini í samráð við Sernámsdepilin og skúlamyndugleikarnar á staðnum av, um næmingurin fer í ein miðsavnaðan skúla fyri deyv, ein vanligan skúla ella skúlan í Sernámsdeplinum.
