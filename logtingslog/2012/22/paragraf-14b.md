@@ -1,0 +1,1 @@
+§ 14 b. [^2] Tá tað krevst til tess at útinna uppgávur eftir løgtingslógini, skulu kommunan, Umhvørvisstovan og Arbeiðs- og brunaeftirlitið, við samleikaváttan og uttan rættarúrskurð, hava ótarnaða atgongd til øll øki og alla útgerð, sum hoyra til jarðhitaskipanina, soleiðis at hesir myndugleikar kunnu røkja sínar uppgávur sambært løgtingslógini.

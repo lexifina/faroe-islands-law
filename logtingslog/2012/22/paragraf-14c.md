@@ -1,0 +1,1 @@
+§ 14 c. [^2] Installatørur, brunnborari og eigari av jarðhitaskipanini hava skyldu til at lata kommununi, Umhvørvisstovuni og Arbeiðs- og brunaeftirlitinum upplýsingar, skjøl og annað, sum er neyðugt hjá hesum myndugleikum, til tess at røkja uppgávurnar sambært løgtingslógini.
