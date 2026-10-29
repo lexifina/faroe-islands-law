@@ -1,0 +1,2 @@
+§ 6. Starvsfólk á Hagstovu Føroya hava undir ábyrgd í borgarligari revsilóg tagnarskyldu um viðurskifti um einstaklingar, feløg, fyritøkur og stovnar, sum tey í starvi sínum fáa kunnleika um, bæði meðan tey arbeiða fyri Hagstovuna og aftan á , at tey eru farin úr arbeiðinum. Sama er galdandi fyri hjálparfólk og onnur, sum starvast fyri Hagstovuna.
+Stk. 2. Tey, sum koma undir hesa tagnarskyldu, skulu skrivliga vátta, at tey hava gjørt seg kunnug við ásetingarnar um tagnarskyldu.
