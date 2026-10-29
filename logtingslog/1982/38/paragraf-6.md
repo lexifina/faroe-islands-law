@@ -1,0 +1,6 @@
+§ 6. Gjaldið skyldar hann, í hvørs navni akfarið er skrásett, tá gjaldið fellur gjaldingar. Um akfarið er skrásett fyri einum brúkara, eins væl og einum eigara, koma báðir undir gjaldið.
+Stk. 2. Hevur akfarið, tá gjaldið fellur til gjaldingar, skift eigara (brúkara), uttan at skrásetingin hevur fingið boð um hetta, kemur tann nýggi eigarin (brúkarin) eisini undir gjaldið.
+Stk. 3. [^9] Við eigara- (brúkara-) skifti og tá avgjaldshandilsseljari hevur tikið akfarið aftur, kemur eisini tann nýggi eigarin (brúkarin) ávikavist avgjaldshandilsseljarin undir gjaldið fyri tað gjaldsskeið, sum eigara- (brúkara-) skiftið ella avgjaldshandilsseljaraafturtøkan er farin fram.
+Stk. 4. [^6] [^5] Verður skjalprógvað, at akfarið í seinasta lagi tann 15. í mánaðinum, áðrenn gjaldið fellur til gjaldingar, hevur skift eigara (brúkara), kemur bert tann nýggi eigarin (brúkarin) undir gjaldið, sjálvt um eigara- (brúkara-) skiftið ikki er fráboðað Akstovuni.
+Stk. 5. Hevur fráboðan um skráseting viðført órættvísa skráseting av einum akfari í navninum hjá einum øðrum enn hjá fráboðaranum, kemur fráboðarin undir gjaldið.
+Stk. 6. Er eitt akfar, ímóti reglunum í ferðslulógini, ikki skrásett, áliggur gjaldið honum, ið hevur skyldu at skráseta akfarið.

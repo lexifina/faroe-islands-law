@@ -1,0 +1,1 @@
+§ 10. Landsstýrið kann áseta reglur um, at akfør skulu hava eitt merki ella tílíkt, sum prógv fyri, at gjaldið er goldið, og politivaldið kann taka nummarspjøldrini av, um so er, at akfarið ikki hevur hetta próvmerkið. Landsstýrið ásetir reglur um, hvussu merkini skulu síggja út, útflýggjan, hvar tey skulu setast og nýtslu.

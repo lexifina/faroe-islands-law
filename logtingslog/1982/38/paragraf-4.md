@@ -1,0 +1,6 @@
+§ 4. [^8] Gjaldskeiðini eru 6 mánaðir frá 1. januar til 30. juni og frá 1. juli til 31. desember.
+Stk. 2. [^1] Vektgjald, útjavningargjald og umhvørvisgjald falla til gjaldingar, tá gjaldskeiðið byrjar, og verða rindað frammanundan, fyri alt skeiðið. Um skrásett verður í juni ella september mánaðum, fellur gjaldið fyri tað komandi gjaldskeiðið til gjaldingar.
+Stk. 3. Um gjaldskyldug akfør verða frámeldað akfarsskrásetingini, verður gjaldsskeiðið stytt við teimum fullu mánaðunum av avlopstíðini. Verður eitt frámeldað akfar skrásett av nýggjum, tekur gjaldsskyldan við eftir teimum í 1. stk. fastsettu reglum, tó ikki fyrr enn tann 1. í tí fylgjandi mánaðinum aftan á frámeldingina.
+Stk. 4. [^6] [^5] Tann í 3. stk. umrødda frámelding skal vera Akstovuni í hendi í seinasta lagi tann síðsta yrkadagin í mánaðinum.
+Stk. 5. [^6] Afturrindan av gjaldi vegna styttan av gjaldsskeiðinum, sum nevnt í 3. stk. fer fram á Akstovuni til hann, sum um tað mundið er skrásettur fyri akfarinum. Afturrindað verður uttan umsókn frammanundan.
+Stk. 6. [^1] Akfør, ið hava verið skrásett í føroysku akfarsskránni fyri 1. januar 2017, rinda árligt gjald sambært gjaldsskrá í skjali 1, um tey verða endurskrásett eftir 1. januar 2017.
