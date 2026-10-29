@@ -1,0 +1,1 @@
+§ 12. Fram til 1. juli 2014 kunnu einstøku kommunustýrini ikki uttan góðkenning frá landsstýrismanninum gera nýggjar avtalur ella broytingar í verandi avtalum av ognar- og skipanarligum slagi á økinum, ella gera aðrar broytingar á økinum, ið kunnu koma at hava ávirkan á arbeiðið at skipa kommunurnar í kommunal samstørv sbrt. § 4.

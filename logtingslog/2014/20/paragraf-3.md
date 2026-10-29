@@ -1,0 +1,1 @@
+§ 3. 1. juli 2014 skulu kommunurnar endaliga verða skipaðar í góðkend kommunal samstarvsøki og hava fingið skrivliga samstarvsavtalu um fyrisiting av heimatænastu, eldrarøkt v.m. góðkenda, sbr. § 11, stk. 1.
