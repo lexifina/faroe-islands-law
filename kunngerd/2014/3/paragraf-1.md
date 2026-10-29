@@ -1,0 +1,1 @@
+§ 1. Heimildir landsstýrismansins sbrt. § 1, stk. 4, § 3, stk. 2 og 3, § 4, stk. 2, § 5, stk. 2, § 10, stk. 1, 3 og 5, § 11, stk. 1, § 12, stk. 2, § 14, stk. 1, § 15, § 16, stk. 1, § 21, stk. 3, og § 25, stk. 3 verða lagdar til Umhvørvisstovuna.
