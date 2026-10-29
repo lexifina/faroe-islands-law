@@ -1,0 +1,2 @@
+§ 12. Í loyvum eftir § 6 ella í fyriskipanum, ásettum av landsstýrinum sambært § 30, verða gjøllari reglur ásettar um, at loyvishavari skal lata inn fíggjarligar og roknskaparligar upplýsingar eins væl og upplýsingar um leitingar- og framleiðsluvirksemi sítt, umframt stakroyndir og aðrar upplýsingar um undirgrundina, hann hevur savnað í virksemi sínum.
+Stk. 2. Í loyvum eftir § 6 kunnu ásetast reglur um trúnað viðvíkjandi teimum frágreiðingum og upplýsingum, nevndar eru í stk. 1.

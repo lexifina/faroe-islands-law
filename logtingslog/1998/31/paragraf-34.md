@@ -1,0 +1,2 @@
+§ 34. Eftirlitsmyndugleikin kann geva boð um, at viðurskifti, ið eru ímóti lógini ella reglum og avgerðum sambært lógini, verða fingin í rættlag beinanvegin ella innan nærri ásetta freist.
+Stk. 2. Metir eftirlitsmyndugleikin, at tað er neyðugt til tess at forða hóttandi stórvanda fyri starvsfólksins ella annara trygd ella heilsu ella fyri umhvørvisdálking, kann hann geva boð um, at beinanvegin skal verða gingið ímóti vandanum, herundir at arbeiðið verður steðgað.

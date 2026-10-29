@@ -1,0 +1,2 @@
+§ 16. Røkkur kolvetnisfundur um øki hjá fleiri loyvishavarum, skulu teir samskipa leiting og møguliga framleiðslu. Slíkar avtalur skulu góðkennast av landsstýrinum. Fæst ikki semja um samskipan innan rímiliga tíð, kann landsstýrið geva boð um samskipan og áseta treytirnar.
+Stk. 2. Røkkur kolvetnisfundur inn á landgrunn ella yvirvaldsøki hjá øðrum landi, kann landsstýrið, verður avtala um samskipan av leiting og framleiðslu gjørd við hetta landið, geva honum, ið loyvi hevur til føroyska partin, boð um at taka lut í tílíkari samskipan og áseta treytirnar.

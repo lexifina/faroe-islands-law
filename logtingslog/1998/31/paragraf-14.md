@@ -1,0 +1,3 @@
+## B. Virksemið
+§ 14. Leitingar- og framleiðsluvirksemið skal vera forsvarligt og skynsamiligt og samsvarandi viðurkendari góðari altjóða venju undir líkum umstøðum. Virksemið skal vera umhvørvisliga og trygdarliga forsvarligt, og soleiðis at tað slepst undan kolvetnisspilli. Hóskandi atgerðir skulu setast í verk so tað slepst undan at skaða dýra- og plantulív og at dálka umhvørvið. Virksemið skal ikki vera til óneyðugan vanda ella tarn fyri skipaferðslu, loftferðslu, fiskiskap ella annað virksemi ella elva skaða ella skaðavanda fyri rørleiðingar, kaðalar ella annan útbúnað.
+Stk. 2. Viðgerðarstøðir, rørleiðingar og aðrar flutningsskipanir eiga at hava hóskandi stødd og leggjast soleiðis, at undirstøðukervið sum heild verður virkisført.

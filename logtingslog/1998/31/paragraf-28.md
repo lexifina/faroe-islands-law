@@ -1,0 +1,2 @@
+§ 28. Rundan um havstøðir, tó ikki rørleiðingar, skulu vera trygdarøki. Landsstýrið ásetir víddina samsvarandi galdandi altjóða reglum og kann gera fyriskipanir um sigling, fiskiskap og flúgving á økjunum, herundir banna óviðkomandi skipum og flogførum at koma inn á økini.
+Stk. 2. Landsstýrið kann av trygdargrundum áseta reglur um avmarkingar av uppankring og fiskiskapi við undirsjóvar rørleiðingar.

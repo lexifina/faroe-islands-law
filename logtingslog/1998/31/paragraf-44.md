@@ -1,0 +1,1 @@
+§ 44. Landsstýrið skal í minsta lagi annað hvørt ár leggja fram fyri tingið frágreiðing, sum skal verða grundarlag fyri einum oljupolitiskum orðaskifti sambært ásetingunum í Tingskipan Føroya Løgtings, fyrstu ferð í 1999.

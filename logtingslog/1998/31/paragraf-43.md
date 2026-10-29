@@ -1,0 +1,3 @@
+§ 43. Landsstýrið kann, sum neyðugt er, loyva, at føst ogn verður ognartikin til virksemi eftir hesi lóg.
+Stk. 2. Kanningar, ið ikki taka langa tíð, og sum hava til endamáls at fremja fyritakssemi eftir hesi lóg, kann landsstýrið loyva á annansmans ogn, hóast tað kann hava við sær skaða ella ampa, ið fult endurgjald verður at veita fyri.
+Stk. 3. Ognartøka eftir stk. 1 verður framd sambært reglunum í lóg nr. 69 frá 7. mai 1881 um skyldu at lata lendi til almennar vegir, havnir og lendingar umframt almennar skúlar í Føroyum. Sama er galdandi fyri avgerðir eftir stk. 2, fæst ikki semja um endurgjaldið.

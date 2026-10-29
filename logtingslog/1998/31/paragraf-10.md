@@ -1,0 +1,1 @@
+§ 10. Í loyvum eftir § 6 verða reglur ásettar um brúk av føroyskari arbeiðsmegi, veitingar og tænastur frá føroyskum fyritøkum, um útbúgvingar v.m., umframt hvaðan loyvishavari rekur virksemi sítt, herundir m.a. við útgerðarstøðum.

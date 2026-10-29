@@ -1,0 +1,1 @@
+§ 9. Ásett verður í loyvi eftir § 6 hvørjar arbeiðsskyldur loyvishavari skal lúka í leitingarskeiðinum sambært § 8, stk. 1, og hvørji avgjøld loyvishavari skal rinda tí almenna. Eitt nú kann ásetast, at rindast skal leypandi avgjald, roknað eftir víddini av loyvisøkinum (víddargjald) og avgjald, roknað eftir nøgd ella virði av framleiddum kolvetnum (framleiðslugjald).

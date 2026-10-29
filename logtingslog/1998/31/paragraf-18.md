@@ -1,0 +1,1 @@
+§ 18. Kolvetni, ið ikki eru brúkt í framleiðsluni, sprænd innaftur, brend ella farin fyri skeytið, skulu takast í land í Føroyum, uttan so at landsstýrið góðkennir annað. Landsstýrið kann áseta treytir fyri góðkenningini.

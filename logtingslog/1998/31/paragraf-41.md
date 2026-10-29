@@ -1,0 +1,1 @@
+§ 41. Í loyvi kann ásetast, at ósemja millum landsstýrið og loyvishavaran um, hvørt reglur ella treytir sambært hesi lóg ella í reglum, ásettum sambært lógini ella í loyvi ella góðkenning, eru loknar, kann verða løgd fyri gerðarrætt til endaliga avgerð.
