@@ -1,0 +1,2 @@
+§ 1. Frá 1. januar 2024 er ikki loyvt at innleggja oljufýr ella annan útbúnað, ið brúkar olju, gass, kol ella aðrar steinrunnar oljuúrdráttir til upphiting av nýggjum bygningum, sum eru fevndir av upphitingarkrøvunum í BK 17.
+Stk. 2. Byggimyndugleikin kann veita tíðaravmarkað undantak frá kravinum í stk. 1 í byggitíðarskeiðinum ella tá talan er um nýbygging á einum staði, har tað ikki ber til at binda í elnetið hjá SEV.
