@@ -1,0 +1,1 @@
+§ 23. Sambært § 59, stk. 1 í løgtingslógini kann Vørn áseta bráðfeingis veiðibann fyri ávísan fiskiskap á ávísum leiðum í føroyskum sjógvi, har hjáveiða er meira enn ásetta hámarkið. Bráðfeingis veiðibann kann lýsast fyri upp til 4 vikur hvørja ferð.

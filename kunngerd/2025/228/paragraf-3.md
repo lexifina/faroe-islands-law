@@ -1,0 +1,1 @@
+§ 3. Umframt kvotuna sambært § 2 hava skip undir russiskum flaggi í 2026 atgongd til føroyskan sjógv at veiða í mesta lagi 30.953 tons av russisku svartkjaftakvotuni í altjóða sjógvi í NEAFC-skipanarøkinum í 2026.
