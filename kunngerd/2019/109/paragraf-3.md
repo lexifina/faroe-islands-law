@@ -1,0 +1,2 @@
+§ 3. Námsfrøðiliga útbúgvingin er sett saman av einum ástøðiligum parti og einum verkligum parti, sum tilsamans geva 60 ECTS námsstig. Ástøðiligi parturin telur 20 ECTS námsstig og verkligi parturin 40 ECTS námsstig. Ástøðiligi parturin og verkligi parturin verða lagdir soleiðis til rættis, at teir stuðla hvørjum øðrum.
+Stk. 2. Námsfrøðiliga útbúgvingin varir eitt ár og fer fram í fyrsta ella øðrum starvsárinum.

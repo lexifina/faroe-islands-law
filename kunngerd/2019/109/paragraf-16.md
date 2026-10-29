@@ -1,0 +1,5 @@
+## Kapittul 6
+## Avriksflutningur
+§ 16. Leiðari útbúgvingarstovnsins kann eftir umsókn og við góðkenning frá Fróðskaparsetri Føroya geva einum námsluttakara avriksflutning fyri partar av námsfrøðiligu útbúgvingini, um leiðarin metir, at námsluttakarin hevur ástøðiligar og verkligar námsfrøðiligar førleikar, sum bera í sær, at námsluttakarin hevur nátt teimum fakligu málum, sum eru ásett fyri partar av útbúgvingini. Við tillutan av avriksflutningi økist eginundirvísingin samsvarandi virkseminum, sum avriksflutningur er veittur fyri.
+Stk. 2. Námsluttakarin skal í umsókn um avriksflutning skjalfesta formligu førleikaprógvini, sum eru grundarlag fyri umsóknini. Leiðari útbúgvingarstovnsins skal við støði í skjalfesta tilfarinum fáa eina fakliga meting frá Fróðskaparsetri Føroya, sbrt. stk. 1, av avriksgevandi ástøðiligu og verkligu námsfrøðiligu førleikum námsluttakarans. Umsókn um avriksflutning og tillutan av avriksflutningi skal avgreiðast við starvssetan.
+Stk. 3. Í próvnum skal standa, hvønn part av námsfrøðiligu útbúgvingini námsluttakarin hevur fingið avriksflutning fyri og á hvørjum grundarlagi.

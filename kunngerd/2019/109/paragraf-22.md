@@ -1,0 +1,1 @@
+§ 22. Ein lærari, sum hevur tikið námsfrøðiligu útbúgvingina eftir áður galdandi reglum, fær førleika at undirvísa í aðrari lærugrein, í miðnámsskúlum, yrkisskúlum og vinnuskúlum, tá ið viðkomandi lýkur fakligu førleikakrøvini í lærugreinini ella yrkinum og hevur tikið fakligt frálærufrøðiligt skeið í lærugreinini ella yrkinum, viðkomandi skal undirvísa í.

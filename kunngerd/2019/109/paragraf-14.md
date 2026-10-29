@@ -1,0 +1,1 @@
+§ 14. Verkligi parturin endar við, at námsleiðarin, uttanhýsis metarin, møguligi eyka uttanhýsis metarin og vegleiðararnir eygleiða undirvísing námsluttakarans og gera av, um námsluttakarin hevur staðið verkliga partin. Uttanhýsis metarin og møguligi eyka uttanhýsis metarin gera námsfrøðiliga ummælið liðugt.

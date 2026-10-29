@@ -1,0 +1,2 @@
+§ 11. Leiðari útbúgvingarstovnsins tilnevnir vegleiðarar í øllum viðkomandi lærugreinum. Vegleiðarin, sum sjálvur skal hava undirvísingarførleika í lærugreinini, skal vegleiða námsluttakaranum fakliga og námsfrøðiliga soleiðis, at hann megnar málini fyri námsfrøðiligu útbúgvingina.
+Stk. 2. Námsluttakarin undirvísir undir vegleiðing í flokkum ella holdum vegleiðarans. Vegleiðarin er til staðar, tá ið námsluttakarin undirvísir í flokkum ella holdum vegleiðarans. Einstakir partar av vegleiðingini kunnu fara fram, tá ið námsluttakarin undirvísir í egnum flokkum ella holdum.

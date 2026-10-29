@@ -1,0 +1,1 @@
+§ 18. Leiðari útbúgvingarstovnsins kann tilluta einum lærara, sum hevur staðið námsfrøðiligu útbúgvingina, undirvísingarførleika í lærugrein, hann tekur aftaná, um lærarin hevur fakligan førleika í lærugreinini og hevur tikið skeið í fakligari frálærufrøði í lærugreinini.

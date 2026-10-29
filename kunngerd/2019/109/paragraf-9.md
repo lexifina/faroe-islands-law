@@ -1,0 +1,3 @@
+§ 9. Leiðari útbúgvingarstovnsins hevur ábyrgdina av gongdini av verkliga partinum hjá hvørjum námsluttakara.
+Stk. 2. Leiðari útbúgvingarstovnsins skal bera so í bandi, at ætlanin fyri samlaðu námsfrøðiligu útbúgvingina gevur námsluttakaranum góðar arbeiðstreytir, og at námsluttakarin fær samanhangandi undirvísingartíðarskeið. Somuleiðis skal hann bera so í bandi, at samanhangur er millum ástøðiliga og verkliga partin av námsfrøðiligu útbúgvingini.
+Stk. 3. Leiðari útbúgvingarstovnsins hevur ábyrgd av, at námsluttakarin fær innlit í og gerst partur av undirvísingarmentanini og samstarvsmentanini á skúlanum, herímillum fyriskipanargongdum og KT-brúki.
