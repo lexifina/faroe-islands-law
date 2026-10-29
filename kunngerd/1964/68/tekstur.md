@@ -1,0 +1,7 @@
+1. Hesin grunnur varð stovnaður tann 21. september 1943 í sambandi við gullbrúdleyp Guðnyar og Jóannesar Paturssonar í Kirkjubø.
+Grunnurin er í dag krónur 31.754,78. Peningurin skal standa á bankabók í Sjóvinnubankanum í Tórshavn. Stýrið kann tó, er tað einmælt samt um tað, seta peningin í virðisskjøl. Síðan grunnurin varð stovnaður, er roknskapurin førdur av Sjóvinnubankanum.
+2. Endamál grunsins er at veita studning til lesandi føroyingar, ið søkja sær kunnleika uttanfyri Føroyar; og studningur kann verða latin til rannsóknir í og til bókaútgávu um Kirkjubøar søgu.
+Studningar frá grunninum verða latnir burtur av tí vinningi, ið fæst av rentum. Tó skal nevndin nýta helvtina av rentuinntøkunum at leggja afturat grunnstovninum, soleiðis at bert helmingurin av rentunum verður nýttur til studningar. Samtyktir um studning verða tiknar á hvørjum ári.
+3. Í stýrinum fyri grunnin eru 3 limir, av teimum eru sitandi kongsbóndi á Kirkjubøar garði og bankastjórin í Sjóvinnubankanum, Tórshavn, sjálvvaldir. 3. limurin er í løtuni Pauli Dahl, yvirlækni, Tórshavn. Tá ið hann doyr ella sigur seg frá, skulu hinir báðir limirnir velja nýggjan mann í hansara stað. Tann til eina og hvørja tíð sitandi kongsbóndi og bankastjóri í Sjóvinnubankanum hava soleiðis rætt til at fullmanna stýrið við einum limi, hvørja ferð 3. limurin fer frá.
+4. Roknskaparár grunsins er álmanaksárið. Fyrsta roknskaparárið aftaná hesa skipan endar 31. desember 1962.
+Roknskapurin verður grannskoðaður av grannskoðara, sum stýrið velur.
