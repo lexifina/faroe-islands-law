@@ -1,0 +1,2 @@
+§ 23. Avvarandi landsstýrismaður, sum hevur ábyrgdina av teimum roknskapum, sum koma undir § 7, skal geva roknskapargrannskoðanini fráboðan um allar ásetanir viðvíkjandi roknskaparhaldi og øðrum viðurskiftum, ið kunnu metast at hava týdning fyri grannskoðanina.
+Stk. 2. Áðrenn landsstýrismaðurin, sambært stk. 1, ger broytingar í roknskaparskipanum ella mannagongdum, ið hava týdning fyri grannskoðanina, skal roknskapargrannskoðanin hava fráboðan um hesar.

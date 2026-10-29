@@ -1,0 +1,1 @@
+§ 22. Um skjøl verða útflýggjað sambært § 21, sum sambært løgtingslóg um innlit í fyrisitingina eru innanhýsis skjøl og undantikin rættinum til innlit, verða hesi framhaldandi undantikin rættinum til innlit, eftir at tey eru útflýggjað.

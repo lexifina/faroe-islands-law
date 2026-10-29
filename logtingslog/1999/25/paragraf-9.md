@@ -1,0 +1,3 @@
+§ 9. Formansskapur løgtingsins ger av, eftir tilmæli frá løgtingsgrannskoðarunum, um grannskoðanin av roknskapum, sum sambært § 8, stk. 2, verður útinnt av Landsgrannskoðanini, frameftir skal útinnast av løggildum ella skrásettum grannskoðarum.
+Stk. 2. Formansskapur løgtingsins ger av, eftir tilmæli frá løgtingsgrannskoðarunum, um grannskoðanin av roknskapum, sum sambært § 8, stk. 3, verður útinnt av løggildum ella skrásettum grannskoðarum, frameftir skal útinnast av Landsgrannskoðanini, um annað ikki er ásett í ella sambært løgtingslóg.
+Stk. 3. Landsgrannskoðanin kann samskipa og gera avtalur við løggildar og skrásettar grannskoðarar um grannskoðanina av ávísum roknskaparøkjum.

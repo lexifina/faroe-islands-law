@@ -1,0 +1,1 @@
+§ 10. Roknskapargrannskoðanin og landsstýrismaðurin kunnu gera av, at grannskoðanaruppgávur, sum koma undir § 8, stk. 2 og 3, kunnu útinnast í einum formliga skipaðum samstarvi ímillum roknskapargrannskoðanina og eina innanhýsis grannskoðan.

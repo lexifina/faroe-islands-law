@@ -1,0 +1,2 @@
+§ 17. Tá ið roknskapir verða kannaðir sambært §§ 15 og 16, eigur serliga at verða ansað eftir, at roknskapirnir eru hóskandi grannskoðaðir, at treytirnar fyri studningi v.m. eru loknar, og at tað er hóskandi atborið fíggjarliga í sambandi við umsiting av ognum og viðvíkjandi rakstri av teimum stovnum og tí virksemi, roknskapirnir fevna um.
+Stk. 2. Landsgrannskoðanin letur løgtingsgrannskoðarunum frágreiðingar um úrslitið av kanningum sambært §§ 15 og 16.

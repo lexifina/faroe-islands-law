@@ -1,0 +1,1 @@
+§ 20. Øll skriv og viðmerkingar frá løgtingsgrannskoðarunum og roknskapargrannskoðanini viðvíkjandi grannskoðan og gjøgnumgongd av roknskapum skulu svarast innan 6 vikur, um longri freist ikki verður sett.

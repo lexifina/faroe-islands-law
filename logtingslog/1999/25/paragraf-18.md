@@ -1,0 +1,2 @@
+§ 18. Løgtingsgrannskoðararnir kunnu lata løgtinginum tær frágreiðingar, ið nevndar eru í §§ 12, 14 og 17 saman við møguligum viðmerkingum. Slíkar frágreiðingar verða at senda landsstýrismanninum, samstundis sum tær verða latnar løgtinginum.
+Stk. 2. Áðrenn ein frágreiðing verður latin løgtinginum, kunnu løgtingsgrannskoðararnir biðja roknskapargrannskoðanina, landsstýrismannin ella aðrar landsmyndugleikar um at útvega fleiri upplýsingar viðvíkjandi teimum málum, sum eru umrødd í frágreiðingini.
