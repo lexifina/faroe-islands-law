@@ -1,0 +1,1 @@
+§ 1. Ein framhaldandi veiting fyri mist vinnuføri, sbr. § 47 í arbeiðsskaðatryggingarlógini, verður umroknað til eina ávísa peningaupphædd við at falda ta árligu veitingina, tá umrokningin fer fram, við tí faktori í tabell G í viðlagda fylgiskjali[^1] , sum stendur tilskilaður við aldrinum á skadda, tá umrokningin fer fram.

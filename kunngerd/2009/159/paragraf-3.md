@@ -1,0 +1,1 @@
+§ 3. Tá ein eftirsitandi hevur rætt til endaligt endurgjald eftir § 66 í lógini, skal tann umroknaða ávísa peningaupphæddin, sum er roknað eftir § 2 í hesi kunngerð, hækkast við eini upphædd, sum verður roknað við at falda ta árligu veitingina við tí faktori í tabell K í fylgiskjalinum[^1] , sum stendur tilskilaður við aldrinum á skadda, tá umrokningin fer fram.
