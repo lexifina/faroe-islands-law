@@ -1,0 +1,1 @@
+§ 3. Yrkisútbúgvingarráðið og yrkisnevndirnar, ið eru skipaðar sbrt. kap. 5 í løgtingslóg nr. 94 frá 29. desember 1998 um yrkisútbúgvingar við seinni broytingum, virka við atliti at yrkisskeiðunum sambært ásetingunum í § 9.

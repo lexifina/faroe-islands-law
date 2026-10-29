@@ -1,0 +1,2 @@
+§ 8. Yrkisskeiðini fara fram á útbúgvingarstøðum, sum avvarðandi yrkisnevnd hevur góðkent. Landsstýrismaðurin ásetir nærri reglur um góðkenning av útbúgvingarstøðum, her í millum hvørjar førleikar útbúgvingarstaðið skal hava til tess at halda góðkend skeið.
+Stk. 2. Leiðarin fyri útbúgvingarstaðið hevur mótvegis landsstýrismanninum ábyrgdina av undirvísingini og møguligum próvtøkum, um hetta er ásett í reglunum fyri tað einstaka skeiðið, og at skriva út skeiðsváttan.
