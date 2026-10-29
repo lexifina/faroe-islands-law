@@ -1,0 +1,1 @@
+§ 4. Landsverk skal undir ábyrgd mótvegis landsstýrisfólkinum góðkenna verkætlanirnar, sum eru nevndar í § 3, áðrenn arbeiðini verða boðin út, og tá arbeiðini eru liðug. Landsverk skipar í hesum sambandi fyri eftirliti við, at verkætlanirnar verða framdar samsvarandi góðkendu ætlanunum.

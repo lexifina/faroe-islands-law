@@ -1,0 +1,2 @@
+§ 5. Tá ið teir tunlar og vegir, sum nevndir eru í § 3, stk. 1, nr. 1 og 3-5 eru lidnir, verða teir avhendaðir landinum fyri útveganarkostnað og lagdir afturat vanliga landsvegakervinum.
+Stk. 2. Frá og við árinum, tá Suðuroyartunnilin letur upp fyri ferðslu, hevur felagið við grundarlagi í útveganarkostnaðinum av undirsjóvartunlinum rætt til skattligar avskrivingar samsvarandi reglunum um vinnuligar bygningar.
