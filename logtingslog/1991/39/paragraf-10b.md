@@ -1,0 +1,1 @@
+§ 10 b. [^10] Landsstýrismaðurin hevur eftirlit við grunninum. Landsstýrismaðurin kann áseta reglur, sum geva Tryggingareftirlitinum myndugleika at útinna uttanhýsis eftirlitið. Grunnurin hevur skyldu at lata eftirlitinum allar upplýsingar um grunsins viðurskifti, sum eftirlitið ynskir.

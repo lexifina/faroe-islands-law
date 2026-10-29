@@ -1,0 +1,1 @@
+§ 7. [^12] Um formaðurin ella tveir stýrislimir annars halda, at avgerð, sum stýrið hevur tikið, er ikki í samsvar við lógina, kunnu teir leggja avgerðina fyri landsstýrismaðurin. Avgerðin fær tá ikki gildi uttan so, at hon verður góðkend av landsstýrismanninum.
