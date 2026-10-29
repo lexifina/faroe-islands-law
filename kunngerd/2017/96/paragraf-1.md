@@ -1,0 +1,2 @@
+§ 1. Sjálvstøðug vinnurekandi og stjórar í egnum feløgum sambært § 14 a í løgtingslógini kunnu tekna sjálvbodna trygging, ið gevur rætt til dagpening og skyldu at rinda tryggingargjald sambært ásetingunum í lógini og hesi kunngerð.
+Stk. 2. Við sjálvstøðug vinnurekandi og stjórar er at skilja, at viðkomandi virka sum sjálvstøðug ella stjórar í egnum feløgum í so stóran mun, at eitt møguligt vanligt løntakaraarbeiði við síðuna av bert er at meta sum viðfáningur.

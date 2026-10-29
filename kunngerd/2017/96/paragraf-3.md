@@ -1,0 +1,2 @@
+§ 3. Tá tryggingartakari hevur meldað seg í tryggingarskipanina, verður kravt tryggingargjald fyri tíðarskeiðið frá degnum, viðkomandi fær rætt til dagpening, og til ávikavist tann komandi 30. juni ella 30. desember.
+Stk. 2. Fyrsta kravið eftir upptøku verður sent saman við einum váttanarbrævi og skal vera goldið innan 4 vikur eftir dagfestingina á váttanarbrævinum. Annars fellur tryggingin burtur.
