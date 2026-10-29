@@ -1,0 +1,1 @@
+§ 1. Ásetingarnar í hjálagda sáttmála frá 20. juni 2007 millum Føroya landsstýri og Ríkisstjórnina fyri Stóra Bretland og Norður Írland við protokoll frá 20. juni 2007 fáa við hesum løgtingslógargildi.
