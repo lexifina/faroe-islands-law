@@ -1,0 +1,3 @@
+§ 7. Tann, sum fær stuðul sambært hesi lóg, skal í seinasta lagi 1. apríl á hvørjum ári senda landsstýrismanninum fráboðan um, at stuðulin í álmanakkaárinum fyri er nýttur til tey endamál, sum eru nevnd í § 1.
+Stk. 2. Tann, sum fær stuðul, skal í seinasta lagi 1. apríl á hvørjum ári senda landsstýrismanninum roknskap fyri undanfarna roknskaparár, sum fevnir um alt virksemið hjá flokkinum. Skrásettur grannskoðari skal hava grannskoðað roknskapin, sum skal hava grannskoðara-átekning um, hvørt roknskapurin er í samsvari við góðan roknskaparsið.
+Stk. 3. Stuðul, ið er fingin av órøttum, ella sum ikki verður nýttur til endamálið sambært § 1, verður afturgoldin.

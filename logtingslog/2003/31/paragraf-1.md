@@ -1,0 +1,1 @@
+§ 1. Endamálið við hesi lóg er at styrkja politiska arbeiðið og politiska upplýsing við at veita fíggjarligan stuðul, sum kann verða nýttur til at reka politiskar flokkar og til politiska virksemi teirra.
