@@ -1,0 +1,2 @@
+§ 8. Útlendsk skip, sum eru úr einum landi, ið ikki hevur tikið undir við The International Convention on Civil Liability for Bunker Oil Pollution Damage, og sum ikki hava galdandi loyvisbræv sbrt. § 7, skulu senda Sjóvinnustýrinum umsókn um loyvisbræv. Ásetingarnar í §§ 3-5 verða nýttar samsvarandi.
+Stk. 2. Umsóknin skal verða send Sjóvinnustýrinum í seinasta lagi 14 dagar, áðrenn skipið kemur í føroyska havn ella annað lastingarstað ella lossingarstað í Føroyum ella í føroyskt sjóøki innanfyri 200 fjórðingar úr grundlinjunum, ella byrjar virksemi í føroyskum sjóøki.
