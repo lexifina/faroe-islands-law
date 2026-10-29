@@ -1,0 +1,3 @@
+## Óvæntaðar umhvørvisavleiðingar av lógligum virksemi
+§ 41. Vísir virksemi í samsvari við løgtingslógina ella reglur ella avgerð við heimild í løgtingslógini seg at fáa munandi óvæntaðar avleiðingar fyri náttúrumargfeldið, skal tann, sum hevur ábyrgdina, seta rímilig tiltøk í verk til at forða fyri ella avmarka skaða ella vansar.
+Stk. 2. Landsstýrismaðurin kann áleggja tí, sum hevur ábyrgdina, innan eina ásetta freist at fremja tiltøk sum tey, sum nevnd eru í stk. 1. Tá ið tað ikki er tí, sum hevur ábyrgdina, til serligan ampa, kann landsstýrismaðurin geva boð um at endurreisa standin, sum náttúrumargfeldið var í frammanundan.

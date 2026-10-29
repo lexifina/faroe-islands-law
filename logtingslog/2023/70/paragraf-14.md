@@ -1,0 +1,3 @@
+## Innflutningur
+§ 14. Til at verja lívmargfeldið kann landsstýrismaðurin áseta reglur um innflutning av livandi ella lívførum lívverum, og at ávísar lívverur ella bólkar av lívverum bara kunnu flytast inn í landið við loyvi frá landsstýrismanninum. Er endamálið við innflutninginum at seta út í náttúruna, skal umsóknin um loyvi gera greiðu fyri, hvørji árin ið útsetingin kann hava á lívmargfeldið. Landsstýrismaðurin kann leggja treytir við loyvinum.
+Stk. 2. Til at forða fyri munandi skaðiligum avleiðingum fyri lívmargfeldið kann landsstýrismaðurin áseta forboð fyri at flyta inn ávísar lívverur ella bólkar av lívverum.

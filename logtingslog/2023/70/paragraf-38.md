@@ -1,0 +1,3 @@
+## Upplýsingarskylda og fráboðanarskylda
+§ 38. Øll, sum hava gjørt ella gera nakað, sum kann ávirka náttúrumargfeldið, hava, tá ið eftirlitsmyndugleikin biður um tað, og uttan at tagnarskylda forðar tí, skyldu til at lata eftirlitsmyndugleikanum tær upplýsingar, sum honum tørvar til at útinna sínar uppgávur eftir hesi løgtingslógini.
+Stk. 2. Kemur skaði ella vandi fyri álvarsligum skaða á lívmargfeldi fyri orsakað av virksemi, sum er fevnt av ásetingum í hesi løgtingslógini, skal tann, sum hevur ábyrgdina, skjótast gjørligt boða landsstýrismanninum frá, uttan so at vandin longu er avhæsaður ella skaðin bøttur.

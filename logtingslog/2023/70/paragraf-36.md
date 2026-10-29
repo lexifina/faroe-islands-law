@@ -1,0 +1,3 @@
+## Eftirlit
+§ 36. Landsstýrismaðurin er eftirlitsmyndugleiki og hevur eftirlit við náttúrustandinum og við, at tað, sum er ásett í og við heimild í løgtingslógini, verður hildið. Eftirlitsmyndugleikin ger av, á hvørjum økjum hann førir eftirlit, men skal føra eftirlit í so stóran mun, at tað kann avdúka brot á ásetingarnar í løgtingslógini.
+Stk. 2. Tá ið eftirlit verður ført, skal tann, sum eftirlit verður havt við, ella tann, sum hevur ábyrgdina av virkseminum, veita eftirlitsmyndugleikanum neyðuga hjálp og upplýsingar. Eftirlitsmyndugleikin kann steðga fólki og førum, tá ið tað krevst til at útinna eftirlitið. Dentur skal leggjast á at føra so munadygt eftirlit, sum umstøðurnar krevja, við so lítlum ampa fyri náttúruna sum gjørligt.

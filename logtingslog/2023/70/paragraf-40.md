@@ -1,0 +1,6 @@
+## Kapittul 6
+## Handhevjan og tvingsilstiltøk
+## Rætting og bøtandi tiltøk
+§ 40. Landsstýrismaðurin kann áleggja tí, sum hevur ábyrgdina, at fáa aftur í rættlag ella steðga viðurskiftum, sum ikki eru í samsvari við løgtingslógina ella avgerð við heimild í løgtingslógini.
+Stk. 2. Tann, sum við at gera ímóti løgtingslógini ella avgerð við heimild í løgtingslógini er atvold til vanda fyri, at náttúrumargfeldið verður fyri skaða, skal seta tiltøk í verk til at forða fyri, at tað hendir. Er náttúrumargfeldið longu skatt, fevnir skyldan um at forða fyri, at viðurskiftini versna uppaftur meira, og, um tað er gjørligt, við upptøku, rudding, burturbeining, slætting og øðrum hóskandi tiltøkum at fáa náttúrumargfeldið aftur í sama stand sum frammanundan. Tiltøk, sum í sær sjálvum kunnu verða náttúruni ella umhvørvinum at skaða av týdningi, kunnu bara setast í verk við samtykki frá landsstýrismanninum ella eftir álegging eftir stk. 1.
+Stk. 3. Skyldan at fyribyrgja, væla um og endurreisa er ikki galdandi, í tann mun tað út frá útreiðslunum og virknaðinum av tiltøkunum, náttúruavleiðingunum av rættarbrotinum og skyldini og fíggjarstøðuni hjá tí, sum hevur framt rættarbrotið, hevði verið serliga órímiligt.

@@ -1,0 +1,7 @@
+## Kunngerðir um verndarøkir
+§ 19. Landsstýrismaðurin skipar tað einstaka verndarøkið, sbr. §§ 20-24, við kunngerð.
+Stk. 2. Kunngerðin skal áseta endamálið við verndarøkinum, eisini náttúruvirðini og mentanarvirðini, sum verndin skal røkja, og standin, sum miðað verður eftir at røkka við verndini, mørkini um verndarøkið, ávirkaðar ognir, og hvussu økið kann verða brúkt. Í kunngerð um sjóverndarøki skal vera tilskilað, um verndarendamálið fevnir um havbotnin, vatnsúluna, vatnskorpuna ella eina samanseting av hesum.
+Stk. 3. Tann landafrøðiliga víddin á verndarøkinum skal samsvara við verndarendamálið. Tá ið mørkini um verndarøkið verða ásett, skal dentur leggjast á at røkja vistfrøðiligar leiklutir av týdningi fyri verndarendamálið og á, hvussu væl vistskipanin tolir árin uttanífrá.
+Stk. 4. Innan fyri karmin, sum geldur fyri hvønn verndarflokkin, kann landsstýrismaðurin í kunngerðini forbjóða ella áseta reglur fyri virksemi ella ferðslu, sum í sjálvum sær ella saman við øðrum brúki kann virka ímóti verndarendamálinum. Ásetast kann eisini, at sumt virksemi ikki kann fara fram, uttan at umsókn frammanundan er send landsstýrismanninum og landsstýrismaðurin hevur givið loyvi. Landsstýrismaðurin kann áseta serligar reglur fyri ymsar partar av økinum, tá ið tað er í samsvari við leiklutin, sum økisparturin hevur í mun til verndarendamálið.
+Stk. 5. Verndarkunngerðin skal ikki vera til hindurs fyri, at burðardygt brúk, sum styðjar upp undir verndarendamálið í einum øki, kann halda fram.
+Stk. 6. Verndarkunngerðin skal tinglýsast.

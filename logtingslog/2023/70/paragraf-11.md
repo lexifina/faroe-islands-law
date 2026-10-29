@@ -1,0 +1,8 @@
+## Innihaldið í verndini
+§ 11. Í kunngerð um vard sløg eftir § 10, stk. 1, kann landsstýrismaðurin:
+1) Áseta forboð fyri allari tøku, skaða á ella oyðilegging av einum vardum slag ella ávísum stovnum av einum vardum slag, og at reglurnar í §§ 6-9 bara skulu galda, í tann mun sum kunngerðin ásetur.
+2) Áseta reglur fyri vernd av ávísum sløgum av vistfrøðiligum nyttuøkjum, sum eru minni í vavi. Fyrilitini, sum áløgd verða, skulu ikki hava munandi ampa við sær fyri brúk, sum er í gongd. Seta fyrilitini tilsamans avmarkingar, sum hava munandi ampa og miss við sær, kann jarðareigarin krevja, at økið verður vart eftir kapitli 4, ella at undantak verður gjørt eftir stk. 4. Ásetingin er ikki galdandi í sjónum.
+3) Áseta krøv um at gera greiðu fyri, hvørjar avleiðingar ætlað inntriv í tey vistfrøðiligu nyttuøkini hjá einum slag hava fyri slagið, eisini um at gera greiðu fyri øðrum vistfrøðiligum nyttuøkjum, sum kunnu gera sítt til at tryggja, at slagið verður vart.
+Stk. 2. Kunngerðin kann áseta reglur um røktartiltøk í samsvari við § 28, tá ið tað krevst til at verja slagið.
+Stk. 3. Verða sambært stk. 1, nr. 2, reglur ásettar um vernd av ávísum sløgum av vistfrøðiligum nyttuøkjum hjá vardum sløgum, har ið virkin røkt ella aðrar atgerðir eru ein fyritreyt fyri at røkja økið, kann landsstýrismaðurin leggja fram virkisætlan til at tryggja slík økir. Tað almenna kann gera nærri avtalu við jarðareigara, rættindahavara ella onnur um at røkja eitt vistfrøðiligt nyttuøki hjá vardum sløgum.
+Stk. 4. Landsstýrismaðurin kann gera undantak frá kunngerð eftir § 10, um tað ikki ger stovnsstøðuna ella stovnsgongdina hjá slagnum verri, ella um týðandi samfelagsáhugamál gera tað neyðugt.

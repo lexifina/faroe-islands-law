@@ -1,0 +1,2 @@
+## Endurgjald fyri fíggjarligan miss
+§ 30. Eigari ella rættindahavari í ogn, sum heilt ella fyri ein part verður vard sum tjóðgarður, landslagsverndarøki, náttúrufriðøki, við lívøkisvernd ella sum sjóverndarøki, hevur rætt til endurgjald frá landinum fyri fíggjarligan miss, um verndin darvar brúk, sum er í gongd. Fyri brúk, sum loyvi krevst til frá almennum myndugleika, geldur rætturin til endurgjald bara, um loyvi er fingið, áðrenn verndarætlan er almannakunngjørd eftir § 25.
