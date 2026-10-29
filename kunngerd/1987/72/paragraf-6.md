@@ -1,0 +1,1 @@
+§ 6. Fyrisitingarútreiðslur ráðsins verða goldnar av játtanini á fíggjarlógini til Arbeiðseftirlitið, eins og Arbeiðseftirlitið veitir ráðnum neyðuga hjálp til skriviarbeiði o.a. Samsýningar til ráðslimir skulu góðkennast av landsstýrinum.
