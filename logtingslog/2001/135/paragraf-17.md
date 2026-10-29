@@ -1,0 +1,1 @@
+§ 17. Landsstýrismaðurin kann í kunngerð áseta reglur um postrivur og brævakassar á ella við hús. Somuleiðis um uppseting av postkassum, har bústaðarviðurskiftini eru soleiðis, at postútflýgging annars hevði verið órímiliga arbeiðskrevjandi ella tvørlig.

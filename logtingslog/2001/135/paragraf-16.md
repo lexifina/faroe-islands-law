@@ -1,0 +1,1 @@
+§ 16. Hvør tann, ið rekur regluliga flutningstænastu innanlands ella til útlond, hevur eftir áheitan frá landsstýrismanninum, og fyri vanligan posttakst, skyldu til at flyta post, umrøddur í § 4, millum endastøðir og poststøðir á flutningsleiðini. Tílíkur postur skal hava forrætt framum annan vøruflutning.
