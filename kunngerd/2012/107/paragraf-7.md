@@ -1,0 +1,1 @@
+§ 7. Um vanliga hvílutíðin hjá sjófólki á tilkallivakt verður avbrotin, orsakað av arbeiði, skal sjófólkið hava hvílutíð afturfyri, soleiðis at samlaða hvílutíðin í arbeiðssamdøgrinum í minsta lagi er 10 tímar, sum kann verða býtt sundur í meiri enn 2 tíðarskeið. Annað av hvílutíðarskeiðunum skal í minsta lagi vera 6 tímar.

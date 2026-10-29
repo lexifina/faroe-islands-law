@@ -1,0 +1,2 @@
+§ 9. Mynstring, brand- og bjargingarroyndir og aðrar kravdar royndir skulu haldast soleiðis, at tær í minst møguligan mun gera inntriv í hvílutíðina og ikki hava við sær møði.
+Stk. 2. Sjófólk, sum gera royndir, fevndar av stk. 1, skulu í arbeiðssamdøgrinum hava í minsta lagi 10 tímar hvílutíð, sum kann verða býtt sundur í meiri enn 2 tíðarskeið. Annað av tíðarskeiðunum skal vera í minsta lagi 6 tímar.

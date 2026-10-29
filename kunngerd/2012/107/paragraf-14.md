@@ -1,0 +1,3 @@
+§ 14. Sjóvinnustýrið hevur eftirlit við, at ásetingarnar í hesi kunngerð verða hildnar.
+Stk. 2. Um ásetingarnar í hesi kunngerð ikki verða hildnar, tekur Sjóvinnustýrið neyðug stig samsvarandi bindandi altjóða sáttmálum fyri at fyribyrgja slíkari møði, ið hevur við sær vanda fyri trygd og heilsu hjá sjófólki. Slík stig kunnu eitt nú fevna um forboð fyri, at skipið fer úr havn, fyrr enn sjófólkið hevur fingið nøktandi hvíld.
+Stk. 3. Reiðarin, operatørur av skipinum ella umboðsfólk hjá viðkomandi í Føroyum kann leggja avgerð hjá Sjóvinnustýrinum um at halda skipinum aftur fyri Siglingarráðið. At málið verður lagt fyri Siglingarráðið hevur ikki við sær steðgandi virknað.

@@ -1,0 +1,1 @@
+§ 13. Reiðarin ella arbeiðsgevarin skal tryggja, at tað umborð er møguleiki fyri at halda krøvini sambært hesi kunngerð. Í teimum førum, har reiðarin ikki er arbeiðsgevari, er skyldan eftir 1. pkt somuleiðis hjá reiðaranum.
