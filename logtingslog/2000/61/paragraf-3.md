@@ -1,0 +1,3 @@
+§ 3. Landsstýrismaðurin leggur týðandi fiskivinnumál og øll uppskot til lógir og kunngerðir, sum hava við fiskivinnuna at gera, fyri fiskivinnuráðið til ummælis. Fiskivinnumál og tilmæli, sum verða viðgjørd av øðrum nevndum sambært lógini um vinnuligan fiskiskap, verða bert løgd fyri fiskivinnuráðið, tá landsstýrismaðurin heldur tað hava týdning fyri málsviðgerðina.
+Stk. 2. Eitt og hvørt umboð í fiskivinnuráðnum hevur rætt til at fáa sjónarmið síni førd í fundarfrágreiðing ráðsins. Fundarfrágreiðingarnar verða sendar landsstýrismanninum.
+Stk. 3. Fiskivinnuráðið kann eisini av sínum eintingum taka fiskivinnumál upp til viðgerðar og lata landsstýrismanninum sítt ummæli.
