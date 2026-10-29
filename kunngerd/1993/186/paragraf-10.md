@@ -1,0 +1,1 @@
+§ 10. [^1] Um kommunustýrið ella kommunufelagsskapurin ikki røkir eftirlitsuppgávurnar samsvarandi hesi kunngerð, kann Føroya Landsstýri geva boð um, at eftirlitið hjá kommunustýrinum ella kommunufelagsskapinum heilt ella lutvíst verður framt av Umhvørvisstovuni.
