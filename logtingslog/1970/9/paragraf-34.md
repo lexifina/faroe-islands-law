@@ -1,0 +1,1 @@
+§ 34. [^3] Til skráseting av arrest, úttøku, dómi ella aðrari almennari rættgerð, sum viðvíkjandi skipi, krevst, at tilmeldari leggur fram váttan frá tí valdinum, sum framt hana hevur, ella úskrift av tess bókum, og gerðin skal viðkoma honum, sum eftir skrásetingini hevur heimild at ráða fyri skipinum.

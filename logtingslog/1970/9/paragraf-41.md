@@ -1,0 +1,3 @@
+§ 41. [^3] Tá ið skjal er ført inn í skipaskránna, kann ongin atfinning gerast mót tess gildi afturímóti honum, sum í góðari trúgv hevur fingið tað eftir skrásettari avtalu. Tað sama er eisini galdandi hjá honum, sum fær pantibræv, sum er umfarspappír við transport..
+Stk. 2. [^6] [^3] Tó hevst móti teimum, sum fingið hava skjal í góðari trúgv, tað mótmælið, at skjalið er falskt ella falsað, ella givið løgleyst, orsakað av persónligum harðskapi ella hóttan um harðskap í stundini, ella at hann, sum gav skjalið út, hevði mist rættarliga myndugleika sín eftir verjumálslógini § 6.
+Stk. 3. [^2] [^3] Reglurnar í stk. 1 og 2 koma ikki í nýtslu viðvíkjandi rættindum, sum gingin eru yvir frá útlendskari skipaskrá eftir regluni í § 7, stk. 3.

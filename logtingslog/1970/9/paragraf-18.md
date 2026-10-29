@@ -1,0 +1,2 @@
+§ 18. [^1] [^3] Tá skip er mált upp og endaliga ført inn í skipaskránna, verður tjóðskaparbræv givið. Í brævinum skulu standa tess brutto- og nettotonsatal og slag, navn, heimstaður, kenningarbókstavir, framtøkumegi og eigari. IMO-nummar verður skrivað á tjóðskaparbrævið hjá teimum skipum, hvar tað er krav sambært altjóða reglum. Út fæst tað ikki, fyrr enn skipið hevur fingið kenningarbókstavirnar høgdar í, og navn og heimstað sett á skipið.
+Stk. 2. [^1] Tjóðskaparbræv og stavirnir høgdir í gevur prógv fyri skipsins eyðkenni.

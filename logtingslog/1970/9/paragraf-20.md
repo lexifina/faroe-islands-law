@@ -1,0 +1,1 @@
+§ 20. [^1] Tá ið skip er fingið úr útlandinum og tikið yvir í útlendskari havn, kann tað fáa fyribils tjóðskaparbræv frá donskum uttanríkisumboði, sum gevur tí rætt at sigla undir føroyskum flaggi, til tað kemur í føroyska havn, tó longst fyri eitt tilskilað tíðarskeið.

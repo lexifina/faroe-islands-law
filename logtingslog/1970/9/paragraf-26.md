@@ -1,0 +1,8 @@
+## Kapittul 3 [^3]
+## Striking úr skipaskránni [^3]
+§ 26. [^2] Skip verður strikað úr skipaskránni, tá ið eigarin ikki longur sambært § 1 er at meta sum føroyskur eigari, ella skipið verður latið ella fer til onkran, sum kann ikki metast sum føroyskur eigari, jbr. tó § 29, stk. 3.
+Stk. 2. [^4] Skip, ið er skrásett á lista hjá økisbundnum fiskiveiðifelagsskapi sum skip, ið hevur framt ólógligan, ófráboðaðan ella óskipaðan fiskiskap, ella hevur stuðlað slíkum fiskiskapi, kann eftir áheitan frá Vørn verða strikað úr skipaskránni.
+Stk. 3. [^4] Verður skip strikað úr skipaskránni, verður hetta gjørt við atliti at § 51.
+Stk. 4. [^4] Haraftrat verður skip strikað, tá ið tað verður høgt upp, gongur burtur, spyrst ikki aftur ella verður hildið ikki at kunna gerast aftur av uppnevndum sýns- og metingarmonnum, av góðkendum klassafelag, ella á annan hátt, ið kann metast javnt við hetta, jbr. tó § 29, stk. 3.
+Stk. 5. [^4] Skip, sum verður selt á tvingsilsuppboðssølu í útlandinum til onkran, sum sambært § 1 ikki kann metast sum føroyskur eigari, verður bert strikað úr skipaskránni, um so er, at skipið, tá ið tað varð selt, var statt í tí ríkinum, har tvingsilsuppboðssølan fór fram, og treytað av, at sølan hendi sambært lóggávuni í avvarðandi ríki og millumlandasáttmálanum frá 1967 um gerð av einsháttaðum reglum viðvíkjandi sjópantirættindum og øðrum pantirættindum í skipum.
+Stk. 6. [^4] Skip, sum er tikið upp í skipabyggingarskránna, verður strikað, tá ið skipið verður avhendað frá skipasmiðjuni, jbr. tó § 29, stk. 3. Harumframt verður skip strikað úr skipabyggingarskránni, um tað fer fyri skeyti, meðan tað stendur í gerð, jbr. stk. 2.

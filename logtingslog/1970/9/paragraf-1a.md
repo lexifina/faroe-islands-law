@@ -1,0 +1,2 @@
+§ 1 a. [^5] Fyri skip, ið ikki kann metast sum føroyskt sambært § 1, men har eigarin er likamligur ella løgfrøðiligur persónur, sum er fevndur av Hoyvíkssáttmálanum og hevur bústað ella er skrásettur innan umveldisvídd sáttmálans, kann landsstýrismaðurin í sjóvinnnumálum áseta reglur um treytir fyri skráseting sum føroyskt skip, herundir treytir um, at skipið skal vera fyrisitið og vera undir eftirliti úr Føroyum.
+Stk. 2. Skip, sum sambært stk. 1 er tikið upp í føroysku skipaskránna, verður sett javnbjóðis við føroyskt skip og hevur rætt til at sigla undir føroyskum flaggi.

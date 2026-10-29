@@ -1,0 +1,1 @@
+§ 36. [^1] [^3] Landsstýrismaðurin í sjóvinnumálum kann fyriseta gjøllari reglur, hvat krevjast skal sum prógv fyri eyðkenni og myndugleika hjá útgevara, fyri rættleikan av skjølum og fyriløgdum próvførslum, hvussu skjøl skulu síggja út og hvussu mikið skal fylgja við av útskriftum ella avritum, sum meldast til ella verða fyrivíst skrásetingini.

@@ -1,0 +1,2 @@
+§ 27. [^1] Tað er eigarin, sum hevur skylduna at gera tilmelding til skipaskrásetingina um einihvørji viðurskiftir, sum hava við sær striking úr skipaskránni, beint sum hann hevur fingið at vita um tílíkt. Spyrst skip ikki afturíaftur, skal tilmelding um striking latast inn, tá ið tíðin er komin, sum tryggingar kunnu rindast eftir ásetingum í tryggingaravtalulóggávuni.
+Stk. 2. [^1] Samstundis sum tilmeldingin og við henni tørvandi próvførslur, skal tjóðskaparbrævið hjá skipinum gevast inn til skipaskrásetingina ella skrivlig frágreiðing um grundina til, at tað gerst ikki.

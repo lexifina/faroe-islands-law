@@ -1,0 +1,1 @@
+§ 52. [^1] [^2] [^3] Frættist onki í 10 ár frá skipi, sum stendur í skipaskránni ella farskránni, og tað má haldast, at tað er ikki til longur, kann Skipaskrásetingin taka avgerð um, at tað verður strikað í skipaskránni ella farskránni. Í skipaskránni tó fyrst eftir innkalling sambært § 51.

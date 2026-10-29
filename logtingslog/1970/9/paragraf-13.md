@@ -1,0 +1,1 @@
+§ 13. [^3] Afturat skipaskránni verður ein talgild reiðarískrá førd. Í henni skulu tey reiðaríini standa, sum hava skip í skipaskránni, og tilskilað, hvat skip hvørt reiðarí eigur. Fyri hvørt skipið verður víst til talgilda skipsblaðið.

@@ -1,0 +1,1 @@
+§ 11. [^3] Hvørt skipið sær hevur sítt skipsblað í talgildu skipaskránni. Í skipsblaðnum skulu tilskilast skipaslag, kenningsbókstavir, mál og drívkraft og í stuttum uppafturtøka av upplýsingunum eftir §§ 5-7.

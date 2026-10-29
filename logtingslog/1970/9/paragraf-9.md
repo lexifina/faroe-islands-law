@@ -1,0 +1,1 @@
+§ 9. [^3] Skjøl, sum verða latin inn til skrásetingina, skulu førast inn sama dag í eina talgilda dagbók. Eftir innførsluna í talgildu dagbókina skal tilmeldingin hava árit um, nær innførslan er gjørd.

@@ -1,0 +1,1 @@
+§ 46 a. [^3] Eru veð ella onnur rættindi dottin burtur í báti ella fari undir 5 BT, sum eru skrásett í skipaskránni, og eru eingi rættindi skrásett longur, kann skipaskrásetingin taka stig til at flyta bátin ella farið yvir í farskránna.
