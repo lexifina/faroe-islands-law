@@ -1,0 +1,4 @@
+§ 19. Á støðum, har virksemi eftir § 1, stk. 3, nr. 1-7, verður rikið, er bannað at halda gang ella at sýna harðligan ella óhøviskan atburð, ið ger seg inn á almenna friðin ella hevur við sær ampa fyri tey, sum eru á staðnum, ella sum búgva nær við.
+Stk. 2. Loyvishavarin ella umboð hansara skal átala atburð, nevndur í stk. 1, og kann um neyðugt vísa viðkomandi burtur frá staðnum ella boða politinum frá.
+Stk. 3. Um bardagi ella annað óskil hevur verið á staði, har virksemi eftir § 1, stk. 3, nr. 2-6, verður rikið, kann politiið steingja staðið restina av degnum.
+Stk. 4. Metir politiið, at tað á staði, har virksemi eftir § 1, stk. 3, nr. 2-7, verður rikið, er serligur vandi fyri harðligum atburði, kann politiið av trygdarávum krevja, at staðið verður innrættað á ávísan hátt. Er innrættingin ikki broytt innan eina hóskandi freist, sum politiið ásetur, kann politiið avgera, at staðið verður latið aftur, til viðurskiftini eru fingin í rættlag.

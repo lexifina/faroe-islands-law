@@ -1,0 +1,3 @@
+§ 9. Loyvisnevndin kann eftir umsókn veita matstovuloyvi til virksemi, nevnt í § 1, stk. 3, nr. 1-3. Kommunan veitir matarsøluloyvi til virksemi, nevnt í § 1, stk. 3, nr. 7. Matstovuloyvi og matarsøluloyvi eru galdandi í 4 ár, men Loyvisnevndin ávikavist kommunan kann eftir umstøðunum avmarka og treyta loyvi.
+Stk. 2. Matstovuloyvi og matarsøluloyvi eru treytað av, at neyðug loyvi eftir § 2 eru fingin til vega.
+Stk. 3. Søkjast skal um endurnýggjan av matstovuloyvinum ella matarsøluloyvinum í seinasta lagi 3 mánaðir fyri, at loyvið fer úr gildi. Virksemið kann halda fram sum vant, meðan umsókn um endurnýggjan verður viðgjørd.

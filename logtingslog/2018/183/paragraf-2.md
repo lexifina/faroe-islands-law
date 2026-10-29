@@ -1,0 +1,9 @@
+## Almennar treytir fyri matstovur, skeinkingarstøð og gistingarhús
+§ 2. Høli, sum skulu brúkast til matstovu ella matstovu og skeinkingarstað, sbr. § 1, stk. 3, nr. 1-3, og høli, sum skulu brúkast til matarsølu, sbr. § 1, stk. 3, nr. 7, skulu løggildast av Heilsufrøðiligu starvsstovuni eftir løgtingslóg um matvørur v.m. og reglum, givnar við heimild í løgtingslóg um matvørur v.m. Høli, sum skulu brúkast til skeinkingarstað ella har skonkt verður, sbr. § 1, stk. 3, nr. 4-6, skulu skrásetast av Heilsufrøðiligu starvsstovuni eftir løgtingslóg um matvørur v.m. og reglum, givnar við heimild í løgtingslóg um matvørur v.m.
+Stk. 2. Høli, sum verða brúkt til virksemi, nevnt í § 1, stk. 3, nr. 1-7, skulu harumframt góðkennast av brunamyndugleikunum eftir løgtingslóg um at byggja bygningar o.a. (Byggilógin) og reglum, givnar við heimild í byggilógini, og av kommunalu myndugleikunum eftir reglunum í kunngerð um umhvørvisreglur.
+Stk. 3. Loyvisnevndin, sbr. § 8, samskipar umsóknir um og útskrivar endaligt loyvi til virksemi eftir § 1, stk. 3, nr. 1-6. Kommunan útskrivar endaligt loyvi til virksemi eftir § 1, stk. 3, nr. 7.
+Stk. 4. Áðrenn Loyvisnevndin letur endaligt matstovuloyvi ella skeinkiloyvi, skal ummæli fáast frá politinum og avvarðandi kommunu.
+Stk. 5. Loyvi eftir stk. 3 hava gildi í 4 ár frá dagfestingini á loyvinum at rokna, sbr. tó § 9, stk. 1, 2. pkt. Søkjast skal um endurnýggjan í seinasta lagi 3 mánaðir fyri, at loyvið fer úr gildi.
+Stk. 6. Loyvi eftir stk. 3 skulu altíð endurnýggjast eftir reglunum í stk. 1-4, tá munandi umbyggingar eru gjørdar, tá hølini hava verið brúkt til annað endamál enn tað, sum loyvið varð givið til, og tá virksemið verður yvirtikið og rikið av øðrum enn upprunaliga loyvishavaranum.
+Stk. 7. Umsøkjarin hevur ábyrgd av at søkja um góðkenningar og loyvi, sum møguliga eru kravd eftir aðrari lóggávu.
+Stk. 8. Loyvt er ikki at fara undir virksemi, fevnt av hesi løgtingslóg, fyrr enn øll viðkomandi loyvi eru fingin.

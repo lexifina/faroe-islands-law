@@ -1,0 +1,1 @@
+§ 20. Politiið hevur, verður tað mett neyðugt, uttan rættarúrskurð, altíð rætt til atgongd til høli, sum eru partur av virksemi, ið er fevnt av hesi løgtingslóg. Hetta er kortini ikki galdandi fyri kømur, sum eru leigað út til gisting.

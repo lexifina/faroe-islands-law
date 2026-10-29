@@ -1,0 +1,1 @@
+§ 5. Á støðum við skeinkiloyvi mugu fólk undir 18 ár ikki setast at skeinkja rúsdrekka. Undantiknir frá hesum eru kokkalærlingar og tænaralærlingar við góðkendum lærusáttmála, og persónar, ið hava staðið útbúgvingina.

@@ -1,0 +1,6 @@
+§ 4. Tað er bannað at selja ella lata rúsdrekka til persónar, yngri enn 18 ár, ella at selja ella lata rúsdrekka, um tað er sannlíkt, at tað er ætlað persónum, yngri enn 18 ár.
+Stk. 2. Somuleiðis er bannað at selja ella lata persónum rúsdrekka, um hildið verður, at tey, við at drekka meira, kunnu vera sær sjálvum ella øðrum til vanda ella øðrum til ampa.
+Stk. 3. Tann, sum selur, letur, skeinkir ella letur skeinkja rúsdrekka, hevur skyldu til at tryggja sær, um neyðugt við at síggja samleikaprógv, at móttakarin lýkur aldurstreytina í stk. 1.
+Stk. 4. Á støðum við skeinkiloyvi hevur loyvishavarin skyldu til at gera vart við, at tað er bannað at skeinkja rúsdrekka fyri persónum, sum ikki hava fylt 18 ár. Hetta skal gerast við uppslagi á sjónligum staði.
+Stk. 5. Á støðum við skeinkiloyvi hevur loyvishavarin skyldu til at gera vart við, at tað ikki er loyvt gestunum at drekka rúsdrekka, sum teir hava havt við sær. Hetta skal gerast við uppslagi á sjónligum staði.
+Stk. 6. Á støðum við skeinkiloyvi hevur loyvishavarin skyldu til tryggja, at tað eisini ber til at fáa aðrar drekkivørur enn rúsdrekka. Á príslista, vínkorti ella øðrum sjónligum uppslagi skal lættliga síggjast, at tílíkar drekkivørur eru at fáa.

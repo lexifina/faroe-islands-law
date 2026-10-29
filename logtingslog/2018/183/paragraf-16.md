@@ -1,0 +1,5 @@
+## Afturtøka av matstovuloyvi og skeinkiloyvi
+§ 16. Hava loyvishavarin ella leiðarin brotið reglurnar í hesi løgtingslóg, reglur ásettar við heimild í hesi løgtingslóg ella treytirnar í loyvinum, kann Loyvisnevndin taka loyvið aftur. Loyvið kann eisini verða tikið aftur, um virksemið verður rikið á slíkan hátt, at tað elvir til drykkjuskap ella revsiverdar gerðir, og annaðhvørt politiið ella Loyvisnevndin frammanundan hava ávarað loyvishavaran.
+Stk. 2. Loyvishavarin ella leiðarin kann krevja, at avgerðin eftir stk. 1 skal verða løgd fyri dómsvaldið. Avgerðin skal innihalda upplýsing um rættin til at leggja avgerðina fyri dómsvaldið og um kærufreist.
+Stk. 3. Loyvisnevndin skal hava boð um kravftir stk. 2 í seinasta lagi 4 vikur eftir, at viðkomandi hevur fingið boð um avgerðina. Loyvisnevndin letur fútanum málið at leggja fyri dómsvaldið eftir reglunum í § 78, stk. 3 í revsilógini.
+Stk. 4. Áheitan eftir stk. 2 hevur steðgandi virknað. Kortini kann rætturin í úrskurði avgera í hvønn mun, viðkomandi kann fáa loyvi til at halda fram við virkseminum, meðan málið verður viðgjørt. Rætturin kann í úrskurði gera av, at kæra ikki er steðgandi.
