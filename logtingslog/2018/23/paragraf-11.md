@@ -1,0 +1,1 @@
+§ 11. Allar skrásetingar skulu kunna førast til roknskapin, uppgerðina ella uppsetingina, nevnd í § 7, stk. 1. Tølini í ávikavist roknskapinum, uppgerðini ella uppsetingini skulu kunna verða býtt sundur í tær skrásetingar, sum tær eru samansettar av.

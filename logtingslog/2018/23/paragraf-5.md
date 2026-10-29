@@ -1,0 +1,3 @@
+## Allýsingar
+§ 5. Ein fyritøka er vinnurekandi ella útinnir vinnuvirksemi, tá ið hon veitir vørur, rættindi, lán, tænastur o.tíl., sum fyritøkan vanliga fær viðurgjald fyri.
+Stk. 2. Uttan mun til stk. 1 verður ein fyritøka mett sum vinnurekandi ella sum at útinna vinnuvirksemi, um hon er fevnd av løgtingslóg um parta- og smápartafeløg, kongligari fyriskipan um ígildissetan fyri Føroyar av lov om erhvervsdrivende fonde, kongligari fyriskipan um ígildissetan fyri Føroyar av lov om erhvervsdrivende virksomheder ella í aðrar mátar er vinnurekandi sambært lóg. Hetta er galdandi uttan mun til, um fyritøkurnar heilt ella partvíst eru undantiknar frá krøvunum í omanfyrinevndu lógum.

@@ -1,0 +1,2 @@
+§ 12. Ein og hvør skráseting skal skjalprógvast við skjølum. Eru uttanhýsis skjøl skrivað út, skulu hesi, í tann mun, tað ber til, nýtast. Skjøl skulu upplýsa tað, sum er neyðugt fyri at eyðmerkja eftirlitssporið, undir hesum greidliga vísa transaktiónsdagfesting og upphædd.
+Stk. 2. Um skrásett verður við støði í elektroniskum dátuumbýti, skal tann bókhaldsskyldugi harumframt skjalprógva einstøku flytingina og hvar einstaka skrásetingin, í mun til tíð, er í bókhaldinum.
