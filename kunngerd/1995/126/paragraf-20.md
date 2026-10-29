@@ -1,0 +1,9 @@
+## Uppgávur, skyldur og rættindi hjá trygdarnevndini.
+§ 20. Trygdarnevndin skal ráðleggja, leiða og samskipa øll tiltøk og alt arbeiði, ið hevur týdning fyri trygdar- og heilsuarbeiðið á virkinum.
+Stk. 2. Trygdarnevndin skal hava eftirlit við trygdar- og heilsuarbeiðinum og syrgja fyri, at trygdar-bólkarnir fáa kunning og leiðbeining í hesum arbeiði.
+Stk. 3. Trygdarnevndin skal syrgja fyri, at atvoldirnar til vanlukkutilburðir, eitringar og skaðatilburðir og tilrend til slíkar, gjølla verða kannaðar og gera tiltøk fyri at forða fyri, at slíkt ikki endurtekur seg. Nevndin skal einaferð um árið gera eitt samlað yvirlit um vanlukkur, eitringar og heilsuskaðar á virkinum. Nevndin skal hava atgongd til teir listar og frágreiðingar, sum hava við hendingarnar at gera, og sum eru gjørdar eftir kunngerð um útinnan av arbeiði og kunngerð um fráboðan av arbeiðs-vanlukkum.
+Stk. 4. Trygdarnevndin skal halda seg kunnigan um tær reglur, ið eru ásettar fyri trygd og heilsu hjá teimum, ið starvast á virkinum. Nevndin skal gera meginreglur, ið áseta neyðuga upplæring og leiðbeining av teimum, ið starvast á virkinum og hava eitt støðugt eftirlit við, at reglurnar verða fylgdar.
+Stk. 5. Trygdarnevndin skal, uttan fráboðan áðrenn, gera eftirlitsarbeiði á øllum deildum á virkinum, og skal verða umboðað, tá Arbeiðseftirlitið vitjar virkið.
+Stk. 6. Trygdarnevndin skal samskipa trygdar- og heilsuarbeiðið við onnur virkir, tá arbeitt verður á sama arbeiðsplássi.
+Stk. 7. Trygdarnevndin skal gera ein lista yvir samansetingina av trygdarskipanini, ið lýsir hvørjir limirnir eru og senda hendan til Arbeiðseftirlitið. Starvsfólkini á virkinum skulu eisini kunnast um hvørjir limirnir eru, sum manna trygdarskipanina.
+Stk. 8. Trygdarnevndin skal takast við uppá ráð, áðrenn virkið søkir sær serligan sakkunnleika til at loysa trygdar- og heilsuspurningar.

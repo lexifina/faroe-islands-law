@@ -1,0 +1,2 @@
+§ 53. Tey, ið arbeiða á einum arbeiðsplássi, har fleiri arbeiðsgevarar lata arbeiði útinna, skulu rætta seg eftir teimum reglum, ið eru galdandi fyri virkisins samstarv, smb. §§ 52 og 55, umframt teimum reglur, ið eru galdandi fyri tað arbeiði, tey sjálvi skulu útinna.
+Stk. 2. Tey í starvast á øki hjá einum fremmandum virki, skulu rætta seg eftir teimum reglum um trygd og heilsu, ið eru galdandi fyri hetta virki, umframt teimum reglum, ið eru galdandi fyri tað arbeiði, tey sjálvi skulu útinna.

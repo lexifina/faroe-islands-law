@@ -1,0 +1,1 @@
+§ 8. Fyri arbeiði, sum er umfatað av § 3, stk. 1, skulu trygdarbólkar skipast eftir ásetingunum í §§ 6 og 7 við teimum broytingum, sum eru ásettar í §§ 28, 29, § 36, stk. 1, § 37 og § 47, stk. 1 og § 48, stk. 1.

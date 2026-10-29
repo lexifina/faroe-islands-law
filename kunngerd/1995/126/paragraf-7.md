@@ -1,0 +1,1 @@
+§ 7. Á virkjum, sum eru umfatað av § 2, skal vanliga skipast ein trygdarbólkur fyri hvørja deild ella arbeiðsøki. Starvast fleiri enn 50 á somu deild ella arbeiðsplássi, skulu vanliga skipast fleiri trygdarbólkar. Sama er galdandi har slag av arbeiði ella støða av arbeiðsplássum innanhýsis ger hetta hóskandi og neyðugt.

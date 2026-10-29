@@ -1,0 +1,2 @@
+§ 21. Trygdarnevndin er ráðgevi hjá virkinum í arbeiðsumhvørvisspurningum. Nevndin skal herundir luttaka í virkisins ráðlegging og metingum av trygdar- og heilsuviðurskiftum eftir kunngerð um útinnan av arbeiði.
+Stk. 2. Tá nevndin hevur rátt virkinum til ávís tiltøk og virkið ikki fylgir hesi tilráðing, skal hetta grundgevast innan 3 vikur á einum nevndarfundi. Sama er galdandi, tá nevndin gevur fleiri boð um somu søk.

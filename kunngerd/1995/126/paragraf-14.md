@@ -1,0 +1,1 @@
+§ 14. Fyri arbeiði, ið er umfatað av § 3, stk. 1, skulu trygdarumboð veljast og saman við arbeiðsleiðarunum skipa trygdarbólk/-ar eftir ásetingunum í § 13, við teimum tillagingum, sum ásettar eru í § 31, § 38 og § 49.

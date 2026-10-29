@@ -1,0 +1,1 @@
+§ 30. Trygdarbólkar, ið eru skipaðir eftir § 28, stk. 1, hava tær uppgávur, skyldur og rættindir, ið ásett eru í §§ 9, 10 og 11, men hava vanliga ikki nakað uppleitandi virksemi á teimum fyribils og skiftandi arbeiðsplássum.

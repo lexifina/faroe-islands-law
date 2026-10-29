@@ -1,0 +1,1 @@
+§ 4. Í skrivstovuarbeiði ella øðrum fyrisitingarligum arbeiði og arbeiði í handlum, íroknast bert tey, sum arbeiða 10 tímar ella meira um vikuna, tá talan er um skipan av trygdar- og heilsuarbeiðinum eftir § 2.

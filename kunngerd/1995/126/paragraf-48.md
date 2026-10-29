@@ -1,0 +1,2 @@
+§ 48. Í arbeiði á teimum einstøku arbeiðsplássum er arbeiðsleiðarin saman við lúkumanninum ella tí persóni, ið útinnir líknandi trygdarvirksemi, trygdarbólkur á staðnum.
+Stk. 2. Trygdarbólkurin á teimum einstøku arbeiðsplássum hevur somu uppgávur, skyldur og rættindir, sum ásettar eru í § 9, stk. 1-5, og stk. 7 og §§ 10 og 11. Bólkurin skal virka sum sambindingarlið, til starvsfólkini á havnarøkinum, smb. § 47.
