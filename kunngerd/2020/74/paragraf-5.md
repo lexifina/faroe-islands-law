@@ -1,0 +1,2 @@
+§ 5. Tað er ikki loyvt at flyta kelduvatn ella natúrligt mineralvatn, ið er ætlað til at drekka, í øðrum íløtum enn teimum, ið eru góðkend til veiting til endaliga brúkaran.
+Stk. 2. Ásetingin í stk. 1 er ikki galdandi fyri kelduvatn og natúrligt mineralvatn frá keldu, haðani vatnið bert verður marknaðarført í Føroyum ella fyri vatn, sum verður nýtt at bryggja løgir ella á annan hátt at blanda við onnur evni ella aðrar drykkir, og sum verður marknaðarført soleiðis.

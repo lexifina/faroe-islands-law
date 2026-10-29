@@ -1,0 +1,5 @@
+§ 7. Loyvt er at viðgera vatn við osonríkaðari luft, sum er ætlað at úrskilja jarnsambond, mangansambond, svávulsambond og arsensambond, um viðgerðin ikki broytir evnissamansetingina í vatninum, ið er avgerandi fyri, at vatnið er at meta sum annaðhvørt kelduvatn ella natúrligt mineralvatn.
+Stk. 2. Viðgerð við osonríkaðari luft skal bert brúkast, um hetta er neyðugt vegna innihaldið av jarni, mangan, svávulsambondum ella arsen.
+Stk. 3. Framleiðarin skal seta í verk øll neyðug tiltøk fyri at tryggja, at viðgerð við osonríkaðari luft er munadygg og ikki elvir til heilsuváða.
+Stk. 4. Í tappaða vatninum skal innihaldið av evnum, sum verða framleidd við osonviðgerð, ikki vera oman fyri markvirðini, ásett í skjali 2. Framleiðsla av øðrum evnum enn teimum, ið eru nevnd í skjali 2, má ikki elva til heilsuváða.
+Stk. 5. Ein og hvør ætlað viðgerð av vatninum, íroknað teimum eftir §§ 6 og 7 loyvdu, skal frammanundan fráboðast og góðkennast av Heilsufrøðiligu starvsstovuni, sum skal hava serligt eftirlit við viðgerðini.

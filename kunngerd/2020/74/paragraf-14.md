@@ -1,0 +1,5 @@
+## Villleiðandi merking og marknaðarføring
+§ 14. Tað er einans loyvt at lýsa við og selja kelduvatn og natúrligt mineralvatn frá løggildum virki, sum lýkur treytirnar í hesi kunngerð, tó undantikið nýtslu sbrt. § 1, stk. 3.
+Stk. 2. Í merking og sølulýsing er ikki loyvt at nýta pakkitilfar, vøruheiti, vørumerki, vørulýsing, navn á fyritøku o.a., sum kann elva til miskenning millum vøru, ið lýkur treytirnar í hesi kunngerð, og aðra vøru, eitt nú vanligt drekkivatn, sum ikki er í samsvari við §§ 1 og 2, verður latið í fløskur ella onnur íløt, ætlað til sølu.
+Stk. 3. Í vørulýsingini ella á vøruni annars er ikki loyvt at lýsa vøruna við uppruna, góðkenningum, kanningarúrslitum ella við øðrum ávísingum, sum benda á, at vatnið hevur eginleikar, ið eru sermerktir fyri kelduvatn ella natúrligt mineralvatn, men sum vøran kortini ikki hevur.
+Stk. 4. Loyvt er ikki at halda uppá ella skila til, at vøran fyribyrgir, lekir ella lættir um sjúku, sjúkueyðkenni ella pínu. Kortini er loyvt at vísa á viðurskiftini, nevnd í skjali 3, 4. parti, um vatnið lýkur nevndu treytir fyri nýtslu.
