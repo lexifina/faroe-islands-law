@@ -1,0 +1,2 @@
+§ 3. At uppsiga løntakara grundað á, at mál og málsøki verða yvirtikin, verður ikki mett at vera rímiliga grundað í viðurskiftum myndugleikans, uttan so at uppsøgnin er grundað á fíggjarligar, tekniskar ella fyriskipanarligar grundir, sum føra við sær broytingar í starvsviðurskiftunum.
+Stk. 2. Um so er, at løntakari ógildar avtaluna, tí at yvirtøkan førir við sær munandi broytingar í arbeiðsumstøðunum til skaða fyri løntakaran, verður málið at viðgera á sama hátt, sum tá talan er um, at landsstýrið sigur upp løntakaran.

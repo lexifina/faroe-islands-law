@@ -1,0 +1,2 @@
+§ 1. Henda løgtingslóg er galdandi fyri allar løntakarar, ið ikki eru tænastumenn, og sum starvast hjá ríkismyndugleikunum í Føroyum við málum og málsøkjum, tá ið landsstýrið yvirtekur tey.
+Stk. 2. Sambært avtalu við landsstýrið kann avvarðandi danski ráðharri gera av, at reglurnar í hesi lóg eisini skulu verða nýttar í sambandi við yvirtøku av málum og málsøkjum, sum er framd, áðrenn henda lóg er komin í gildi. Freistin í § 5 verður í hesum føri at rokna frá tí degi, avtala er gjørd millum landsstýrið og avvarðandi danska ráðharra.

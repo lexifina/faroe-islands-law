@@ -1,0 +1,2 @@
+§ 4. Umboð fyri teir løntakarar, sum verða nervaðir av yvirtøkuni, varðveita eftir yvirtøkuna rættarstøðu sína og virki sítt, sbr. tó stk 2.
+Stk. 2. Um yvirtøkan førir við sær, at tað ikki longur er grundarlag fyri løntakaraumboðan, er løntakaraumboðið framhaldandi fevnt av teimum reglum um vernd av løntakaraumboðum, sum vóru galdandi á viðkomandi øki, tá ið yvirtøkan varð framd. Henda vernd er galdandi í eitt tíðarskeið, sum samsvarar við vanliga uppsagnarfreist hjá viðkomandi løntakara.

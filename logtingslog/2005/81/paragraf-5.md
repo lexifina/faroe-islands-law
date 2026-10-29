@@ -1,0 +1,2 @@
+§ 5. Í seinasta lagi innan 5 vikur eftir yvirtøkuna skal landsstýrið boða viðkomandi yrkisfelag frá, um so er, at landsstýrið ikki ynskir at ganga inn í sáttmálarnar, sum eru galdandi fyri løntakarar ella partar av løntakarunum á viðkomandi øki. Verður hetta ikki gjørt, er landsstýrið gingið inn í sáttmálan.
+Stk. 2. Um so er, at landsstýrið ikki ætlar at ganga inn í sáttmálan, men annars hevur gjørt sáttmálar við onnur fakfeløg um arbeiði av tílíkum slagi, hava løntakarar rætt til samráðingar við landsstýrið um nýggjan sáttmála.
