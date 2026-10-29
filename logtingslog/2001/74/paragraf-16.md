@@ -1,0 +1,1 @@
+§ 16. [^3] Umsókn um trygging av dagpeningi, kann ikki latast inn, meðan tryggingartakarin er óarbeiðsførur. Tað sama er galdandi, um tryggingartakarin er munandi viknaður, ella vandin fyri sjúku er munandi øktur. Til at meta, um heilsutreytirnar eru uppfyltar, kann um neyðugt krevjast læknaváttan, sum Almannaverkið rindar.

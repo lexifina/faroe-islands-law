@@ -1,0 +1,1 @@
+§ 13 b. [^1] Markið fyri útgoldnar lønir í § 13 a, 1. pkt. verður javnað tann 1. januar á hvørjum ári við lutfalsligu lønarhækkingini sambært sátt mála millum Føroya Arbeiðsgevarafelag og Føroya Arbeiðarafelag árið frammanundan.

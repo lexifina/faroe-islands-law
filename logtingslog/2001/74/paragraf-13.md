@@ -1,0 +1,2 @@
+§ 13. [^3] [^4] Tá dagpeningarætturin er brúktur sambært § 12, stk. 2, í einum samanhangandi tíðarskeiði, kann dagpeningur bert útgjaldast í einum framhaldandi dagpeningatíðarskeiði, um viðkomandi aftur hevur verið arbeiðsførur, og í byrjanini av nýggja sjúkratíðarskeiðinum, lýkur treytirnar í § 7.
+Stk. 2. [^3] [^4] Persónur, sum hevur tryggjað seg sambært kap. 7, og sum hevur brúkt dagpengarættin upp sambært § 12, stk. 2, skal ístaðin prógva, at hann aftur hevur verið arbeiðsførur, og at tað eru gingnar minst 5 vikur, innan hann av nýggjum er vorðin sjúkrameldaður.

@@ -1,0 +1,1 @@
+§ 4. [^13] [^3] [^11] Rætt til dagpening hevur persónur frá tí degi, hann er fyltur 16 ár. Hesin rættur dettur burtur frá 1. í mánaðinum eftir, at viðkomandi hevur móttikið fólkapensjón ella hevur fingið tillutað hægstu fyritíðarpensjón ella framskundaða pensjón við eini upphædd svarandi til hægstu fyritíðarpensjón.

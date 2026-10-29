@@ -1,0 +1,5 @@
+## Burturfall
+§ 5. Rætturin til at fáa dagpening dettur burtur, um ein persónur eftir áheitan frá lækna noktar at leggja seg inn á sjúkrahús, at móttaka neyðuga læknaviðgerð ella at luttaka í hóskandi uppvenjing, fyri at endurvinna mistan arbeiðsførleika.
+Stk. 2. [^14] [^3] Um persónur ikki luttekur ella viðvirkar til framhaldsviðgerð sbrt. § 19 a, t.e. ikki møtir til samrøðu, letur upplýsingar, viðvirkar í framhaldsviðgerð annars, ella tekur av tilboði um tiltak sambært lóg um arbeiðsfremjandi tiltøk, so kann Almannaverkið taka avgerð um at steðga veiting sambært hesi lóg.
+Stk. 3. [^11] Um tað verður mett ósannlíkt, at persónur í fólkapensjónsaldri, sum ikki móttekur fólkapensjón, hevur endurvunnið fult arbeiðsføri, áðrenn freistina sambært § 12, stk. 2, steðgar veiting sambært hesi løgtingslóg beinanvegin.
+Stk. 4. [^11] Metingin sambært stk. 3 verður gjørd við støði í eini læknaligari meting. Metingin verður gjørd í sambandi við játtan og síðani hvørja 8. viku, so leingi viðkomandi fær dagpening vegna sjúku.

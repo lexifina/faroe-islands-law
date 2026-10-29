@@ -1,0 +1,1 @@
+§ 27. [^3] Um persónur eftir metan Almannaverksins hevur rætt til løn undir sjúku sambært lóg ella sáttmála, og arbeiðsgevarin sýtir at gjalda slíka løn, rindar Almannaverkið persóninum dagpening eftir vanligu reglunum og krevur, um neyðugt við rættargangi, arbeiðsgevaran eftir goldna dagpeninginum.
