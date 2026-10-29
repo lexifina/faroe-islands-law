@@ -1,0 +1,4 @@
+§ 1. Landsvegirnir eru bygdavegirnir og vegir frá bygd til bryggju ella brúgv, ið mest hevur týdning fyri samferðsluna oyggjanna millum, tey strekki, sum ganga gjøgnum bý ella størri bygd og eru veruligar býargøtur ella býargøtukend, tó undantikin.
+Gjøgnum bygd og millum grannabygdir kann bert ein vegur verða landsvegur.
+Í seinasta lagi 1. apríl 1973 og síðan triðja hvørt ár kunngerð landsstýrið fullfíggjaða skrá yvir landsvegirnar. Er ivamál, um vegur ella vegastrekki skal skrásetast sum landsvegur, ger landsstýrið hetta av, aftaná at avvarðandi kommunustýri og løgtingsins vega- og havnanevnd hava havt høvi til at siga sína hugsan.
+Landsvegir, sum verða bygdir ella fullførdir aftaná, at skrá er lýst, verða skrásettir so hvørt, teir eru lidnir, og tey vegastrekki, hesir møguliga koma í staðin fyri, samstundis avlýstir. Broytingar annars í skránni kunnu bert fara fram í sambandi við áðurnevndu kunngerðir.

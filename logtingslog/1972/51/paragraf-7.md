@@ -1,0 +1,2 @@
+§ 7. Áðrenn kommunalur byggimyndugleiki gevur loyvi til bygging framvið landsvegi, skal málið leggjast fyri vegamyndugleikar landsins, og skulu tey krøv, hesir seta til byggingina, verða knýtt sum treytir at byggiloyvinum.
+Eisini ætlanir um tílíkar byggingar, til hvørjar vanliga ella í summum kommunum ikki krevst kommunalt loyvi, eitt nú rættir, seyðahús og súrhoyggjabrunnar og septictangar verða at leggja fyri nevndu vegamyndugleikar og teirra krøv at fylgja.

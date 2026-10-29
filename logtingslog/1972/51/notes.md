@@ -1,0 +1,5 @@
+[^1]: Við kunngerð nr. 111 frá 17. november 1982 verður “10.000 kr.” broytt til “50.000 kr. fyri 8 og 10 m vegaristir og 30.000 kr. fyri 4 og 6 m vegaristir”.
+[^2]: Við kunngerð nr. 111 frá 17. november 1982 verður “600 kr.” broytt til: “3.000 kr.”
+[^3]: Broytt við løgtingslóg nr. 167 frá 21. desember 2001, har § 2 ljóðar soleiðis: “Henda løgtingslóg kemur í gildi 1. januar 2002. Stk. 2. Samstundis fer allur tann danski lógarteksturin í løgtingslóg um landsvegir við seinni broyting úr gildi.“
+[^4]: Broytt við løgtingslóg nr. 18 frá 8. mai 2008, har § 19 ljóðar soleiðis: “Stk. 1. Henda løgtingslóg kemur í gildi dagin eftir, at hon er kunngjørd. Stk. 2. Kærumál, sum eru reist, tá henda løgtingdslógin kemur gildi, verða viðgjørd av kærumyndugleikanum eftir galdandi lóggávu, áðrenn henda lógin kom í gildi.”
+[^5]: Broytt við løgtingslóg nr. 31 frá 17. mars 2022, har § 34 ljóðar soleiðis: “Henda løgtingslóg kemur í gildi 1. juli 2022 og samstundis fara løgtingslóg nr. 110 frá 13. desember 2006 um kærunevnd í lendismálum og løgtingslóg nr. 17 frá 8. mai 2008 um Vinnukærunevnd úr gildi.”

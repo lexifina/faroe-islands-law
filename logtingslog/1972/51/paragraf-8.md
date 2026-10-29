@@ -1,0 +1,1 @@
+§ 8. [^3] Henda løgtingslóg kemur í gildi beinan vegin, og samstundis fara úr gildi løgtingslóg nr. 17 frá 7. mars 1957 um ognartøku til samferðsluvegir og løgtingslóg nr. 54 frá 28. juni 1963 um umsiting av landsvegnum.
