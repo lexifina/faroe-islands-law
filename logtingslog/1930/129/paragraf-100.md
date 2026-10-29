@@ -1,0 +1,1 @@
+§ 100. Har den, paa hvis Liv Forsikringen er tegnet, berøvet sig Livet paa et Tidspunkt, hvor Forsikringen ikke har været i Kraft uafbrudt mindst de sidste 2 Aar, er Selskabet fri for Ansvar, medmindre det maa anses godtgjort, at Forsikringen er tegnet eller paa ny sat i Kraft uden Tanke paa Selvmordet, og at dette vilde være begaaet, selv om Forsikringen ikke havde foreligget.

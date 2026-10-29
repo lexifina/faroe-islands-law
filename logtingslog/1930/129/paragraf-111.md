@@ -1,0 +1,1 @@
+§ 111. Den, der ved Køb eller paa anden Maade faar en Livsforsikringspolice overdraget, erhverver derved alle de Rettigheder mod Selskabet, Aftalen hjemler. Ved Overdragelsen bortfalder Indsættelse af begunstiget, for saa vidt ikke Afkald paa Tilbagekaldelsesretten er givet.

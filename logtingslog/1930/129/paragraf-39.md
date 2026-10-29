@@ -1,0 +1,2 @@
+§ 39. Selskabet er, selv om andet er aftalt, ikke forpligtet til at udrede større Erstatning end, hvad der kræves til den lidte Skades Dækning.
+Indeholder Forsikringsaftalen en Bestemmelse, hvorved den forsikrede Genstand ansættes til en bestemt Værdi, eller bestemte Vurderingsregler vedtages, er en saadan Aftale bindende for Selskabet, for saa vidt det ikke godtgør, at der derved vilde blive erstattet mere end den lidte Skade.

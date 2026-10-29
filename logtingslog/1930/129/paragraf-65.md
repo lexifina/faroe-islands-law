@@ -1,0 +1,1 @@
+§ 65. Er det i Befragtningsaftalen bestemt, at almindeligt Havari skal opgøres efter andre Regler end de i Lov foreskrevne, frigøres Selskabet ikke derved, at denne Bestemmelse bringes til Udførelse, saafremt de benyttede Regler er almindelig anerkendte i international Forretningsbrug.

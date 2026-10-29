@@ -1,0 +1,1 @@
+§ 84. Gælder en Forsikring for et Tidsrum af et Aar, skal den, hvis ikke andet maa anses aftalt, betragtes som fornyet for et Aar ad Gangen, medmindre Forsikringstageren eller Selskabet har opsagt den senest en Uge før Forsikringstidens Udløb.

@@ -1,0 +1,1 @@
+§ 113. Retshandler vedrørende de af en Livsforsikringsaftale flydende Rettigheder mod Selskabet kan, hvis Policen ikke har faaet Paategning om Retshandelen, ikke gøres gældende overfor den, der senere i god Tro gennem Overdragelse har erhvervet saadanne Rettigheder, naar han har faaet Policen i sin Besiddelse, eller Policen har faaet Paategning om hans Ret.

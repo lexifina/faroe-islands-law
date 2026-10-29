@@ -1,0 +1,2 @@
+§ 86. Er en forsikret fast Ejendom pantsat, kan Panthaveren, selv om Selskabets Ansvar overfor Ejeren bortfalder i Medfør af §§ 4, 6 og 50, 2det Stykke, dog kræve Dækning i den Erstatning, som ellers vilde være kommet til Udbetaling, for saa vidt han ikke kan opnaa Fyldestgørelse af Pantet eller af Skyldnerens øvrige Formue. I det Omfang, i hvilket Selskabet har betalt Erstatning til Panthaveren, indtræder det i dennes Ret mod Ejeren.
+Det samme gælder, hvis Forsikringen dækker andre i Tingen berettigedes Interesse.

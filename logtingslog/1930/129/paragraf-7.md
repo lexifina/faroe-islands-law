@@ -1,0 +1,1 @@
+§ 7. Forsikringstagerens Undladelse af at give Oplysning har ingen Indflydelse paa Selskabets Ansvar, medmindre han burde være klar over, at den ikke oplyste Omstændighed var af Betydning for Selskabet, og hans Forhold kan tilregnes ham som grov Uagtsomhed. I saa Fald anses han, som om han havde givet urigtig Oplysning, jfr. § 6.

@@ -1,0 +1,1 @@
+§ 62. Selskabet hæfter ikke for Skade paa Skib, der alene er en Følge af Slid, Alder eller Raaddenskab, eller for Skade, som rammer Gods paa Grund af Mangler ved dettes Indpakning eller dets egen Beskaffenhed, saasom indre Skade, Svind, sædvanlig Udlækning eller Dyrs Død.

@@ -1,0 +1,1 @@
+§ 76. Saafremt en Forsikring i Henhold til Aftalen eller ifølge Opsigelse af anden Grund end manglende Præmiebetaling vilde ophøre paa et Tidspunkt, da Skibet er paa Søen, bortfalder Aftalen dog først ved Udløbet af den Dag, da Skibet ankommer til første Bestemmelsessted. Forlænges Forsikringen herved, kan Selskabet kræve Præmie for Forlængelsen.

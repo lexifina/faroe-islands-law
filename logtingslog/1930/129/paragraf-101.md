@@ -1,0 +1,1 @@
+§ 101. Uanset at Selskabet efter en i denne Lov indeholdt Regel eller efter aftalt Vilkaar er fri for Ansvar, finder de i Henhold til Lov eller Aftale gældende Regler for Tilbagekøb af Forsikringer eller disses Omskrivning til Fripolicer Anvendelse.

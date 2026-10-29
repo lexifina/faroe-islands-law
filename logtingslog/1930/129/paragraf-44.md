@@ -1,0 +1,2 @@
+§ 44. Den sikrede er forpligtet til at give det Selskab, som han afkræver Erstatning, Underretning om, hos hvilke Selskaber der tillige er tegnet Forsikring, og er ansvarlig for Tab, som foraarsages ved, at saadan Underretning forsømmes.
+Er det aftalt, at Forsikringstageren eller den sikrede, før Forsikringsbegivenheden indtræder, skal give Selskabet Meddelelse, hvis samme Interesse forsikres andetsteds, har Forsømmelse af at give saadan Meddelelse, uanset modstaaende Aftale, ikke anden Virkning end den i 1ste Stykke foreskrevne.

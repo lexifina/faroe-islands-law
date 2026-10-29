@@ -1,0 +1,3 @@
+§ 10. Aftale, som strider mod Bestemmelserne i §§ 5 og 7-9, kan ikke paaberaabes af Selskabet.
+Har Selskabet forbeholdt sig at være fri for Ansvar, hvis en Oplysning, som gives af en anden end Forsikringstageren, viser sig at være urigtig, kan dette ikke medføre strengere Virkninger, end hvis Oplysningen var givet af Forsikringstageren.
+Det samme gælder, hvis Selskabet i Policen har beskrevet et faktisk Forhold uden at have indhentet Oplysninger desangaaende fra Forsikringstageren eller andre og har forbeholdt sig at være helt eller delvis fri for Ansvar, hvis det maatte vise sig, at Beskrivelsen var urigtig.

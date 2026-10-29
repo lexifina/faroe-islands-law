@@ -1,0 +1,5 @@
+## Den sikredes Pligter, naar Forsikringsbegivenheden indtræder.
+§ 21. Er Forsikringsbegivenheden indtraadt, skal den sikrede uden Ophold give Selskabet Meddelelse derom, hvis han i den Anledning vil rejse Krav mod dette.
+Forsømmer den sikrede dette, er Selskabet ikke ansvarligt i videre Omfang, end det vilde have været, hvis saadan Meddelelse var givet. Gøres det antageligt, at Selskabet paa Grund af Forsømmelsen er blevet afskaaret fra at oplyse Omstændigheder, som vilde ophæve eller begrænse dets Ansvar, afgøres det under Hensyn til de foreliggende Omstændigheder, om Erstatning skal ydes og i bekræftende Fald med hvilket Beløb.
+Er det aftalt, at den sikrede angaaende Begivenheder, for hvis Følger Selskabet er ansvarligt, skal foretage Anmeldelse, selv om saadan Følge endnu ikke er indtraadt, finder ovenstaaende Bestemmelse tilsvarende Anvendelse.
+Det kan ikke med Retsvirkning aftales, at strengere Følger end her foreskrevet skal indtræde, hvis den sikrede eller andre undlader at give Selskabet Meddelelse af den ovenfor nævnte Art. Denne Bestemmelse gælder ikke for Tyveri-, Garanti-, Haglskade- og Kreaturforsikring samt Skadesforsikring af Motorkøretøjer.

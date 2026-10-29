@@ -1,0 +1,2 @@
+## Urigtige Oplysninger ved Aftalens Afslutning.
+§ 4. Har Forsikringstageren ved Forsikringens Tegning svigagtig givet urigtig Oplysning om eller fortiet en Omstændighed, som maa antages at være af Betydning for Selskabet, er Aftalen ikke bindende for dette. Det samme gælder, hvis hans Forhold i øvrigt har været af en saadan Art, at det vilde stride mod almindelig Hæderlighed at gøre Aftalen gældende.

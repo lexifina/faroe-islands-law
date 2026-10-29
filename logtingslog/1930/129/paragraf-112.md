@@ -1,0 +1,3 @@
+§ 112. Pantsætter Forsikringstageren sit Krav, bortfalder ikke derved sket Indsættelse af en begunstiget. Er der ikke givet Afkald paa Retten til at tilbagekalde, staar den begunstigede tilbage for Panthaverens Ret.
+Panthaveren kan, naar hans Fordring er forfalden, gøre Kravet paa Forsikringens Tilbagekøbsværdi gældende efter forud med 2 Maaneders Varsel at have opfordret Forsikringstageren til at løse pantet mod Betaling af nævnte Værdi. Er Forsikringsbegivenheden indtraadt, kan han søge Fyldestgørelse i Forsikringssummen.
+Pantet anses ikke at omfatte Krav paa Bonus, der forfalder, forinden Panthaveren har søgt Fyldestgørelse.

@@ -1,0 +1,1 @@
+§ 55. Forsikring af Indbo anses, hvis ikke andet fremgaar af Omstændighederne, tillige at omfatte Indbo, der tilhører Forsikringstagerens Ægtefælle, hans hjemmeboende Børn samt Personer, der hører til Forsikringstagerens Husstand og staar i personligt Tjenesteforhold til ham.

@@ -1,0 +1,2 @@
+§ 16. Bliver en Forsikringsaftale i Henhold til en Bestemmelse i denne Lov af Selskabet opsagt til Ophør forinden Udløbet af den Tid, for hvilken den er afsluttet, eller ophører den i Henhold til § 15, har Selskabet Ret til det Præmiebeløb, som skulde have været betalt, saafremt Forsikringen kun havde være tegnet for den forløbne Tid.
+Ophører Aftalen af andre Grunde at gælde, har Selskabet Ret til saa stor Del af Præmien, som svarer til den indtil Ophøret forløbne Tid.

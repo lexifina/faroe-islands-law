@@ -1,0 +1,2 @@
+§ 73. Udbetaler Selskabet Erstatning for Totalskade, indtræder det i den sikredes Ret til det, som maatte være i Behold af de saaledes erstattede Genstande, og kan fordre, at den sikrede udleverer alle ham tilgængelige, disse Genstande vedrørende Dokumenter og Bevisligheder.
+Foreligger Underforsikring, har Selskabet dog kun Ret til Andel i det, der findes i Behold, efter Forholdet mellem Forsikringssummen og Forsikringsværdien.

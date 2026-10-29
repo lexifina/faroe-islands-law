@@ -1,0 +1,4 @@
+§ 87. [^1] Bortfalder forsikringen af en fast ejendom ifølge aftale, eller nedsættes forsikringssummen, eller bringes selskabets ansvar til ophør på grund af manglende præmiebetaling eller ejerskifte, får dette først retsvirkning overfor panthaveren 14 dage – hvis panthaveren har bopæl i Grønland, en måned – efter, at han fra selskabet har modtaget meddelelse derom.
+Bestemmelsen i § 51, 1ste Stykke, kan kun paaberaabes overfor Panthaveren, naar denne selv er Skyld i, at Paalæget ikke er overholdt.
+I øvrigt bliver de Bestemmelser til Værn for Panthavere og andre i Ejendommen berettigede, som indeholdes i særlige Love om Bygningsbrandforsikring eller i de i Henhold til disse Love stadfæstede Vedtægter, bestaaende.
+Disse Bestemmelser finder ogsaa Anvendelse paa det i §§ 37 og 38 i Lov om Tinglysning af 31. Marts 1926 omhandlede Tilbehør til fast Ejendom, for saa vidt Forsikringen omfatter saadant Tilbehør.

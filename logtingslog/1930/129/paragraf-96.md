@@ -1,0 +1,1 @@
+§ 96. Naar Selskabet er vidende om en indtruffen Forsikringsbegivenhed, kan det ikke gennem Forhandlinger med den sikrede bevirke, at den skadelidtes Ret ifølge § 95 derved indskrænkes eller forspildes.

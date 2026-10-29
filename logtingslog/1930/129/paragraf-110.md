@@ -1,0 +1,1 @@
+§ 110. Har Forsikringstageren tegnet en Forsikring saaledes, at Forsikringssummen ikke skal udbetales umiddelbart ved hans Død, men først paa et senere Tidspunkt, eller har han tegnet en Forsikring paa en andens Liv, indtræder den begunstigede, saafremt intet andet fremgaar af Forholdet, ved Forsikringstagerens Død i dennes Ret efter Aftalen.

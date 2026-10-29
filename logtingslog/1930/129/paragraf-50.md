@@ -1,0 +1,2 @@
+§ 50. Aftale om, at Fareforøgelse skal have Retsvirkning i andre Tilfælde eller i videre Omfang end hjemlet ved §§ 45-49, kan ikke paaberaabes af Selskabet. Dog kan det vedtages, at Reglerne i § 45, 2det Stykke, skal anvendes i Stedet for Reglerne i samme Paragraf, 3die Stykke, og omvendt.
+Ved Tingforsikring af fremmed Interesse har Fareforøgelse hidført med Forsikringstagerens Villie, hvis den forsikrede Genstand befinder sig i hans Varetægt, samme Virkning, som om den var hidført af den sikrede. Det samme gælder ved Forsikring mod Driftstab.

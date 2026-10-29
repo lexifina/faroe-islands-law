@@ -1,0 +1,3 @@
+§ 37. Med de i §§ 38 og 75 nævnte Undtagelser ansættes Tingens Værdi til det Beløb, der efter Priserne umiddelbart før Forsikringsbegivenheden vilde kræves til Genanskaffelse af den tilintetgjorte eller beskadigede Genstand med rimeligt Fradrag for Værdiforringelse ved Alder, Brug, nedsat Anvendelighed eller andre Omstændigheder.
+Ved Indbogenstande, personlige Brugsgenstande og lignende sker der dog kun Fradrag for Værdiforringelse ved Alder og Brug, for saa vidt Genstandenes Nytteværdi for den sikrede derved er væsentlig nedsat.
+Genopføres eller istandsættes en beskadiget Bygning, finder Fradrag derhos kun Sted for Forskellen mellem gammelt og nyt.

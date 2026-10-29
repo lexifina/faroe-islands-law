@@ -1,0 +1,1 @@
+§ 69. Lider Skib eller Gods, som tilhører Rederen, Skade under Bjærgning af andet Skib eller dettes Ladning, er Selskabet fri for at erstatte Skade, der maa anses godtgjort gennem Bjærgeløn. Viser det sig efter Erstatningens Udbetaling, at Skaden helt eller delvis er godtgjort paa nævnte Maade, kan Selskabet derhos kræve en tilsvarende Del af Erstatningsbeløbet tilbagebetalt.

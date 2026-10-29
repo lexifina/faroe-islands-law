@@ -1,0 +1,2 @@
+## Aftale om Forlængelse af Forsikringen.
+§ 31. Vedtagelse om, at Undladelse af at opsige en Forsikring skal medføre, at den anses forlænget for længere Tid end et Aar, kan ikke af Selskabet gøres gældende, medmindre det tidligst 3 og senest 1 Maaned før Opsigelsestidens Udløb har givet Forsikringstageren Meddelelse, hvorved han paamindes om, at saadan Forlængelse indtræder, hvis Opsigelse ikke finder Sted.

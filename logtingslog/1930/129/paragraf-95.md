@@ -1,0 +1,2 @@
+§ 95. Naar den sikredes Erstatningspligt overfor den skadelidte er fastslaaet og Erstatningens Størrelse bestemt, indtræder den skadelidte i den sikredes Ret imod Selskabet, for saa vidt han ikke er fyldestgjort.
+Har flere skadelidte Krav paa Erstatningsydelsen for en Forsikringsbegivenhed, og overstiger deres for Selskabet anmeldte Krav tilsammen, hvad Selskabet er pligtigt at yde, skal de, for saa vidt ikke andet er vedtaget, fyldestgøres forholdsmæssigt.

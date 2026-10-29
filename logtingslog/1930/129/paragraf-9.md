@@ -1,0 +1,1 @@
+§ 9. Selskabet kan ikke gøre gældende, at urigtig Oplysning er givet, saafremt det ved Forsikringens Tegning var eller burde være vidende om det rette Forhold, eller den Omstændighed, hvorom Selskabet er forblevet uvidende, var uden Betydning for det eller senere har ophørt at have saadan Betydning.

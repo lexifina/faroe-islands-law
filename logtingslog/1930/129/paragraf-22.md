@@ -1,0 +1,2 @@
+§ 22. Den sikrede skal, hvis han rejser Krav mod Selskabet, give dette alle ham tilgængelige Oplysninger om Forhold, som kan være af Betydning for Bedømmelsen af Forsikringsbegivenheden, for Fastsættelsen af det beløb, Selskabet skal yde, eller for de Dækningskrav, Selskabet maatte have mod andre.
+Forsømmer den sikrede at give saadanne Oplysninger, har dette den i § 21, 2det Stykke, angivne Virkning.

@@ -1,0 +1,1 @@
+§ 8. Vil Selskabet paaberaabe sig, at et af de i §§ 5-7 nævnte Forhold foreligger, skal det efter at have faaet Kundskab om Oplysningens Urigtighed uden unødigt Ophold meddele Forsikringstageren, i hvilket Omfang det vil paaberaabe sig nogen af de Rettigheder, disse Paragraffer hjemler.

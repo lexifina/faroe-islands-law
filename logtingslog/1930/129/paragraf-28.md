@@ -1,0 +1,1 @@
+§ 28. [^1] [^4] Kommer Forsikringstageren under Konkurs, eller rekonstruktionsbehandling, har dette, selv om andet er aftalt, ingen Virkning paa Forsikringsaftalen udover, hvad der følger af Lovgivningens almindelige Regler. Dog kan selskabet ved skadesforsikring betinge sig ret til at opsige aftalen med 14 dages – hvis forsikringstageren har bopæl i Grønland, en måneds – varsel.

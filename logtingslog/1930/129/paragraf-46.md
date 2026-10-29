@@ -1,0 +1,1 @@
+§ 46. Undlader den sikrede efter at være kommet til Kundskab om en ikke med hans Villie sket Fareforøgelse uden gyldig Grund at underrette Selskabet derom, anses Ændringen som hidført med hans Villie.

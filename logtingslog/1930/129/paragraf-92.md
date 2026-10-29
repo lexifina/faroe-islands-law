@@ -1,0 +1,3 @@
+§ 92. Omkostninger, der foranlediges af den sikredes Forsvar mod Krav fra Trediemands Side, omfattes af Forsikringen, saafremt det efter Omstændighederne maa anses for rimeligt, at den sikrede har paadraget sig dem.
+Hvis den sikrede er dømt til at betale Renter af et Erstatningsbeløb, finder Reglerne i 1ste Stykke tilsvarende Anvendelse.
+Er der i Aftalen fastsat en bestemt Forsikringssum, skal Selskabet betale de her nævnte Omkostninger og Renter, selv om Forsikringssummen overskrides. Er Forsikringssummen mindre end det idømte Erstatningsbeløb, er Selskabet dog kun pligtigt at tilsvare den Del af Renten, som svarer til det Erstatningsbeløb, Selskabet skal betale.

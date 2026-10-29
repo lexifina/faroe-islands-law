@@ -1,0 +1,2 @@
+§ 57. Naar Forsikringsbegivenheden indtræder, tilkommer Retten til Erstatning den, hvis Interesse Forsikringen skal dække, selv om han ikke har faaet Meddelelse om Forsikringen.
+Forsikringstageren kan dog med bindende Virkning forhandle med Selskabet om Erstatning og oppebære denne, medmindre en bestemt angiven Person af Forsikringstageren er opgivet eller nogen selv har anmeldt sig til Selskabet som berettiget, eller den sikrede har en ved Tinglysning sikret Ret i den forsikrede faste Ejendom. Bestemmelsen i § 56, sidste Punktum, finder tilsvarende Anvendelse.

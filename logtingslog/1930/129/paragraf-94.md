@@ -1,0 +1,1 @@
+§ 94. En Bestemmelse i Aftalen om, at Selskabet skal være fri for Ansvar, saafremt den sikrede uden Selskabets Samtykke udbetaler Erstatning eller godkender et fremsat Erstatningskrav, er ugyldig i det Omfang, hvori det maa anses godtgjort, at den sikrede ved at betale eller godkende Kravet kun har opfyldt sin Retspligt.

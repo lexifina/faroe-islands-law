@@ -1,0 +1,1 @@
+§ 17. Det kan ikke med Retsvirkning vedtages, at Undladelse af at betale Præmie i rette tid skal medføre strengere Virkninger for Forsikringstageren eller den sikrede end de i §§ 13-15 foreskrevne. Bestemmelserne i § 13, 2det og 3die Punktum, og § 16 gælder ikke for Livsforsikring.

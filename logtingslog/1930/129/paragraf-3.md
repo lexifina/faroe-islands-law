@@ -1,0 +1,1 @@
+§ 3. Denne Lovs Bestemmelser kommer, for saa vidt de ikke udtrykkeligt er erklæret for ufravigelige eller deres Ufravigelighed følger af andre Retsregler, kun til Anvendelse, hvis ikke andet er udtrykkeligt aftalt eller maa anses indeholdt i Aftalen.

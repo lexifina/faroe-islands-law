@@ -1,0 +1,2 @@
+§ 108. Indsættelse af en begunstiget medfører ingen Indskrænkning i Forsikringstagerens Ret til at forlange Tilbagekøbsværdien eller til at overdrage, pantsætte eller paa anden Maade raade over de Rettigheder, Forsikringsaftalen hjemler ham.
+Har Forsikringstageren overfor den begunstigede givet Afkald paa at tilbagekalde Begunstigelsen, anses han ogsaa at have fraskrevet sig Retten til uden den begunstigedes Samtykke at raade saaledes over Forsikringen, at den begunstigedes Ret derved indskrænkes eller forspildes.

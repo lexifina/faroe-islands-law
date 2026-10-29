@@ -1,0 +1,2 @@
+§ 66. Kan Skade paa den forsikrede Genstand fordres erstattet under almindeligt Havari, har den sikrede dog Ret til uden at afvente Havariopgørelsen at fordre denne Skade erstattet af Selskabet efter Reglerne om partikulært Havari.
+Naar Selskabet udbetaler saadan Erstatning, indtræder det fuldt ud i den sikredes Ret mod de andre Deltagere i Havariet. Foreligger Underforsikring, finder Bestemmelsen i § 40 Anvendelse.

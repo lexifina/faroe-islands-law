@@ -1,0 +1,2 @@
+§ 74. Indtræffer Havari flere Gange i Løbet af Forsikringstiden, erstatter Selskabet Skaden, selv om Erstatningssummerne tilsammen overstiger Forsikringssummen.
+Dog har Selskabet, naar Skade er indtruffet, Ret til ved at betale hele Forsikringssummen med Tillæg af allerede paaløbne Omkostninger at befri sig for ethvert Ansvar for Begivenheder, der indtræder, eller Omkostninger, der paaløber, efter at Forsikringstageren har faaet Meddelelse om, at Selskabet vil benytte sig af denne Ret. I disse Tilfælde kommer Bestemmelsen i § 73 ikke til Anvendelse.

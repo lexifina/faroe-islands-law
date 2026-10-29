@@ -1,0 +1,1 @@
+§ 38. Erstatning for Genstande, som den sikrede selv har tilvirket til Salg, fastsættes paa Grundlag af den Pris, som ved Salg paa almindelige Vilkaar vilde kunne opnaas umiddelbart før Forsikringsbegivenhedens Indtræden, med Fradrag for regelmæssige Salgsomkostninger, undgaaet Handelsrisiko samt Fordelen ved kontant Betaling.

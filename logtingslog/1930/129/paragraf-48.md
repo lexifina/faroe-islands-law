@@ -1,0 +1,1 @@
+§ 48. Vil Selskabet paaberaabe sig, at Fareforøgelse er indtraadt, maa det efter erhvervet Kundskab om Fareforøgelsen uden unødigt Ophold give den sikrede Meddelelse om, hvorvidt det vil gøre nogen Ret i Henhold til §§ 45-47 gældende.

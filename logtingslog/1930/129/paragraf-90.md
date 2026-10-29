@@ -1,0 +1,1 @@
+§ 90. Hvis et Dyr dør eller nedslaas som Følge af en Sygdom eller et Ulykkestilfælde, beregnes Erstatningen efter den Værdi, Dyret umiddelbart før Døden vilde have haft, om Sygdommen eller Ulykkestilfældet ikke var indtraadt.

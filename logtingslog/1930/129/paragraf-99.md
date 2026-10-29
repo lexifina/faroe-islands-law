@@ -1,0 +1,1 @@
+§ 99. Ønsker Selskabet at begrænse sit Ansvar i Tilfælde af Fareforøgelse, maa det i Policen tydeligt angive, hvilke bestemte Fareforøgelser der skal have Betydning, og hvilken Virkning Fareforøgelsen skal have.

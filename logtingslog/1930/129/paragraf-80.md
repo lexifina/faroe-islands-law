@@ -1,0 +1,1 @@
+§ 80. Udsættes en Genstand forsætlig for Varme ved Kogning, Strygning, Tørring, Røgning eller lignende, er Selskabet ikke ansvarligt for den derved opstaaede Skade paa Genstanden, selv om den kommer i Brand.

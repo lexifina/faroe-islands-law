@@ -1,0 +1,2 @@
+§ 19. Bestemmelserne i § 18 om Bortfald eller Begrænsning af Selskabets Ansvar finder ikke Anvendelse, naar den sikrede var under 14 Aar eller paa Grund af Sindssygdom, Aandssvaghed, forbigaaende Sindsforvirring eller lignende Tilstand har manglet Evnen til at handle fornuftmæssigt.
+Det samme gælder, naar den Handling, hvorved Forsikringsbegivenheden foraarsages, foretages til Afværgelse af Skade paa Person eller Ejendom under saadanne Omstændigheder, at Handlingen maa anses som forsvarlig.

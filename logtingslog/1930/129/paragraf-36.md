@@ -1,0 +1,2 @@
+## Forsikringsværdien.
+§ 36. Er Tingsforsikring tegnet uden Angivelse af nogen bestemt Interesse, skal Forsikringen anses at dække den Interesse, der knytter sig til, at selve Tingens Værdi ikke forringes ved Forsikringsbegivenheden, men omfatter ikke anden til Tingens Bevarelse knyttet Interesse. Selskabet svarer saaledes ikke for Driftstab eller for Skade, som skyldes, at Tingen ikke kan anvendes til den Tid og paa den Maade, som er forudsat.

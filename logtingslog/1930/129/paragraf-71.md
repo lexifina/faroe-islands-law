@@ -1,0 +1,2 @@
+§ 71. Har der manglet Underretning om et Skib i tre Gange saa lang Tid, som gennemsnitlig medgaar til Skibets Rejse fra det Sted, fra hvilket den sidste Efterretning om Skibet havdes, til nærmeste Bestemmelsessted, dog mindst tre Maaneder, eller er Skibet forladt af Besætningen, og er det ikke inden tre Maaneder derefter kommet i den sikredes Raadighed, har den sikrede Ret til Erstatning som for Totalskade.
+Samme Regel finder Anvendelse paa ombordværende Gods, naar hverken dette eller Skibet er kommet frem inden den i 1ste Stykke angivne Frist.

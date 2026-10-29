@@ -1,0 +1,4 @@
+§ 14. Betales første Præmie ikke efter Paakrav, der tidligst maa foretages paa Forfaldsdagen, ophører Selskabets Ansvar. Det samme gælder, hvis en senere Præmie ikke betales inden en Uge efter Paakrav, der tidligst maa foretages en Uge før Forfaldsdagen.
+[^1] Har forsikringstageren bopæl i Grønland, forlænges de i stk. 1 omhandlede frister for betaling i det omfang, stedets forbindelsesmuligheder i det enkelte tilfælde gør det rimeligt, ligesom påkrav i henhold til stk. 1, 2. punktum, kan foretages tidligere end en uge før forfaldsdagen, for så vidt det er rimeligt begrundet i stedets postforbindelse.
+Forbehold om, at Selskabets Ansvar først skal indtræde, naar første Præmie er betalt eller Policen udleveret, er ugyldigt.
+Saa længe Aftalen ikke er helt bortfaldet, kan Forsikringstageren ved at betale Præmien bringe Selskabets Ansvar til paa ny at løbe fra det Tidspunkt, Betalingen sker.

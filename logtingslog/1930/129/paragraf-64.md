@@ -1,0 +1,1 @@
+§ 64. Er almindeligt Havari opgjort paa behørigt Sted og paa lovlig Maade, skal det Bidrag til Havariet, som i Henhold til Fordelingen falder paa den forsikrede Interesse, tilsvares af Selskabet. Foreligger Underforsikring, finder Bestemmelsen i § 40 Anvendelse.

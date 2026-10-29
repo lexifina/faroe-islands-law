@@ -1,0 +1,5 @@
+## Retsvirkningerne af Selskabets og Forsikringstagerens Insolvens m.v.
+§ 26. Kommer Selskabet under Konkurs, kan Forsikringstageren hæve Aftalen. Sker dette ikke, bortfalder Aftalen dog tre Maaneder efter Konkursens Bekendtgørelse.
+Hvis Selskabet ved Udlæg er fundet at mangle Midler til at betale sin Gæld, eller det har standset sine Betalinger, eller dets Formueforhold i øvrigt viser sig at være saadanne, at det maa antages at være ude af Stand til at opfylde sine Forpligtelser, kan Forsikringstageren hæve Aftalen, hvis Selskabet undlader paa hans Opfordring uopholdelig at stille betryggende Sikkerhed for Opfyldelsen.
+Naar en Forsikringsaftale hæves i Henhold til ovenstaaende Bestemmelser, er Forsikringstageren berettiget til at kræve Erstatning for den Skade, som han lider ved Forsikringens Ophør.
+Ovenstaaende Regler finder ikke Anvendelse paa saadanne Livsforsikringskontrakter, der omfattes af Bestemmelserne i Lov Nr. 65 af 1. April 1914 §§ 25-31, jfr. Bekendtgørelse Nr. 299 af 30. Juni 1922.

@@ -1,0 +1,1 @@
+§ 93. Saafremt der for en Fordring, der hidrører fra et af Forsikringen omfattet Ansvar, foretages en Arrest forretning, er Selskabet pligtigt at stille den Sikkerhed, der er fornøden for at afværge Arresten, dog ikke udover Forsikringssummen.

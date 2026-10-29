@@ -1,0 +1,3 @@
+§ 75. Forsikringsværdien af et Skib er den Værdi, Skibet havde paa det Tidspunkt, da Selskabets Ansvar begyndte.
+Hvis et Skib, da Forsikringsaftalen blev truffet, er ansat til en bestemt Værdi (takseret Police) er saadan Ansættelse bindende for Selskabet, for saa vidt det ikke godtgør, at den ansatte Værdi overstiger, hvad der med Rimelighed kan anses som Forsikringsværdien.
+Værdien af forsikrede Varer ansættes uanset senere Prisforandringer til den Pris, som umiddelbart før Transportens Begyndelse paa Afgangsstedet betaltes for Varer af samme Art frit leverede i Skib, paa Banevogn eller paa andet Transportmiddel med Tillæg af 10 pCt. samt af Præmie for almindelig Forsikring og af Fragt, for saa vidt denne skal betales uden Hensyn til, om Transporten fuldføres.

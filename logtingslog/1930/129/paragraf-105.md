@@ -1,0 +1,5 @@
+§ 105. Ved Fortolkningen af de Bestemmelser, hvorved en begunstiget indsættes, kommer, hvis ikke andet fremgaar af Omstændighederne, følgende regler til Anvendelse, naar Forsikringssummen skal betales ved Forsikringstagerens Død.
+Er Forsikringstagerens Ægtefælle indsat som begunstiget, er det den Ægtefælle, med hvem han ved sin Død levede i Ægteskab, der anses som begunstiget.
+Har Forsikringstageren indsat sine Børn som begunstigede, anses hans Livsarvinger, derunder hans Adoptivbørn og disses Livsarvinger, som begunstigede, hver for den Andel, Arveloven tildeler ham.
+Er Forsikringstagerens Arvinger indsat som begunstigede, tager enhver af dem Del i Forsikringssummen efter det Forhold, hvori han i Henhold til Testamente eller Loven er arveberettiget efter Forsikringstageren.
+Har Forsikringstageren indsat sine _nærmeste paarørende“ som begunstigede, anses hans Ægtefælle som indsat, eller hvis saadan ikke efterlades, hans Børn, eller hvis ej heller saadanne forefindes, hans Arvinger, alt overensstemmende med de forudnævnte Regler.
