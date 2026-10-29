@@ -1,0 +1,2 @@
+§ 12. Um eftirlitsmyndugleikin kemur fram á, at brot er framt á ásetingarnar í hesi lóg ella reglur ella treytir, settar sambært lógini, kann eftirlitsmyndugleikin áleggja nevndini, stjóra ella grannskoðara at fáa viðurskiftini í samsvar við galdandi reglur og treytir.
+Stk. 2. Um so er, at álvarslig brot ella brot upp í saman verða gjørd á hesa løgtingslóg ella kunngerðir, heimilaðar í hesari lóg, ella treytir, givnar sambært lógini, kann loyvi sbrt. § 3 takast aftur av landsstýrinum.

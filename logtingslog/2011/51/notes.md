@@ -1,0 +1,2 @@
+[^1]: Broytt við løgtingslóg nr. 52 frá 15. mai 2014, har § 2 ljóðar soleiðis: “Stk. 1. Henda løgtingslóg kemur í gildi dagin eftir, at hon er kunngjørd. Stk. 2. Eydnuspælsfeløg, ið virka í Føroyum, tá henda løgtingslóg kemur í gildi, og sum ikki hava loyvi eftir aðrari løgtinglóg, skulu seinast tann 31. desember 2014 hava gjørt avtalu við Sp/f Ítróttavedding, um tey framhaldandi ætla at virka í Føroyum.”
+[^2]: Er sett í gildi, 15. september 2011, við kunngerð nr. 115 frá 5. september 2011.
