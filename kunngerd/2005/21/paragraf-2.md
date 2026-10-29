@@ -1,0 +1,1 @@
+§ 2. Frádráttur verður roknaður frá tí farið verður úr Føroyum í samband við arbeiði uttanlands. Frádráttur kann bert verða veittur fyri teir dagar, ið hava beinleiðis samband við ferðina og dvølið uttanlands vegna arbeiði í útlandinum ella umborð á útlendskum skipi. Annar, fyri arbeiði annars óviðkomandi, dvølur uttanlands, verður ikki taldur við í frádráttartíðarskeiðnum.
