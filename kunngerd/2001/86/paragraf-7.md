@@ -1,0 +1,1 @@
+§ 7. Um tann, sum kært er um, ikki svarar aftur innan ásettu freistina sbrt. § 5, eigur nevndin at avgreiða málið við grundarlagi í teimum skjølum og samráðingum, sum nevndin metir hava týdning í málinum.
