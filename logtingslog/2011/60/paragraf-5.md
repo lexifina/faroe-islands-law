@@ -1,0 +1,8 @@
+§ 5. Roknskapurin hjá Saltsilogrunninum skal verða grannskoðaður av løggildum grannskoðara sambært hesum reglum:
+1) Grannskoðanin skal verða gjørd sambært góðum grannskoðarasiði.
+2) Undir grannskoðanini skal verða staðfest, um roknskapurin er rættur, og um tær atgerðir, sum eru umfataðar av roknskapinum, samsvara givnum játtanum, lógum og øðrum forskriftum, umframt gjørdum avtalum og vanligari siðvenju.
+3) Saltsilogrunnurin skal geva grannskoðaranum tær upplýsingar, sum grannskoðarin heldur hava týdning fyri at meta um roknskapin, og skal geva grannskoðaranum atgongd til at gera tær kanningar, sum grannskoðarin metir vera neyðugar, og skal syrgja fyri, at grannskoðarin fær tær upplýsingar og ta hjálp, sum grannskoðarin metir vera neyðugar fyri at kunna gera sítt arbeiði.
+4) Verður grannskoðarin varugur við lógarbrot, skal grannskoðarin beinanvegin geva Saltsilogrunninum boð um hetta og síggja til, at Saltsilogrunnurin innan 3 vikur gevur landsstýrismanninum boð um hetta. Um ikki, skal grannskoðarin boða landsstýrismanninum frá hesum.
+5) Grannskoðarin førir grannskoðanarprotokol, har grannskoðarin greiðir frá gjørdum grannskoðanararbeiði umframt øllum munandi viðurskiftum, sum hava givið høvi til viðmerkingar. Somuleiðis verða upplýsingar um serlig eftirlitsarbeiði, serligar frágreiðingar, ráðgeving og hjálp førdar í grannskoðanarprotokollina.
+6) Grannskoðaði roknskapurin fær eina átekning, sum vísir, at roknskapurin er grannskoðaður sambært hesum reglum. Fyrivarni skulu síggjast í átekningini.
+7) Saltsilogrunnurin skal árliga lata landsstýrismanninum avrit av grannskoðanarprotokollini saman við áteknaða ársroknskapinum.
