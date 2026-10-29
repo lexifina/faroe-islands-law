@@ -1,0 +1,1 @@
+§ 15. Loyvt er ikki at virka veiðu umborð. Virking umborð er eftir hesi kunngerð, tá fiskurin er meiri viðgjørdur enn sløgdur, avhøvdaður, skráskorin ella stertur skorin av, sama hvussu hann er goymdur.

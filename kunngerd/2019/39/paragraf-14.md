@@ -1,0 +1,1 @@
+§ 14. Um fiskifar missir garn, hevur skiparin skyldu at gera sítt besta til at bjarga ella dreggja eftir garninum, og at geva Vørn fráboðan um staðsetingina, har garnið er mist. Skiparin hevur skyldu at boða Vørn frá, um tað hevur eydnast at bjarga garninum.

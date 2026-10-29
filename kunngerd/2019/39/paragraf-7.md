@@ -1,0 +1,3 @@
+## Hjáveiða
+§ 7. Hjá fiskifari, við loyvi sambært § 2, stk. 1, nr. 1-3, kann hjáveiða av toski, hýsu, upsa og kongafiski í mesta lagi vera 20% av vektini av veiðinøgdini tilsamans roknað fyri árið. Hendan avmarkingin í hjáveiðu er tó ikki galdandi fyri fiskiskap við gørnum á leiðum norðan fyri 62°39'N og vestan fyri 8°V.
+Stk. 2. Hjá fiskifari, við loyvi sambært § 2, stk. 1, nr. 4, kann hjáveiða av toski, hýsu, upsa og kongafiski í mesta lagi vera 7% av vektini av veiðinøgdini tilsamans roknað fyri árið. Tó kann hjáveiðan av nevndu fiskasløgum einstakan túr vera í mesta lagi 15% av vektini av veiðinøgdini tilsamans fyri túrin.

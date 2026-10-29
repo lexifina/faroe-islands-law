@@ -1,0 +1,1 @@
+§ 6. Fiskifar, við loyvi sambært § 2, stk. 1, nr. 4, kann royna eftir havtasku við gørnum á eini leið millum 06°33'38"V og 07°12'30"V frá 12 fjórðingum úr grundlinjunum og út á eina linju drigna millum 62°55'00"N, 07°12'30"V og 02°55'00"N, 06°33'38"V.
