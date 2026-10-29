@@ -1,0 +1,1 @@
+§ 35. Hjá tænastumonnum, sum settir eru við ongum eftirlønaraldri, áðrenn henda lóg kemur í gildi, verður starvstíðin áðrenn lógin kemur í gildi roknað upp í eftirlønaraldurin eftir reglunum í § 4, um so er at vanligt eftirlønargjald eftir higartil galdandi reglum verður eftirgoldið fyri viðroknaðu tíðina.

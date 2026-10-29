@@ -1,0 +1,2 @@
+§ 4 a. [^1] [^4] Landsstýrið kann avgera, at í eftirlønaraldrinum verður viðroknað tann tíð, ið tænastumaður átti aftaná at vera fyltur 25 ár, hevur verið sáttmálasettur innan tey í § 4, 1. stk. nevndu øki ella í eini kommunu ella einum koncessioneraðum felag ella privatum vinnufelag.
+Stk. 2. Fyri at fáa eftirlønaraldur eftir 1. stk., skal tænastumaður, tá ið hann varð sáttmálasettur hava verið limur í góðkendum eftirlønarkassa, sum bæði hann og viðkomandi arbeiðsgevari hava goldið til, og at tað afturkeypsvirði, ið tilkemur honum, verður goldið í landskassan.

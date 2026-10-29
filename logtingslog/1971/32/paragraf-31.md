@@ -1,0 +1,1 @@
+§ 31. Til nýtslu í avgerðum, sum eftir hesi lóg byggja á eina heilsumeting, kann landsstýrið krevja tílíkar upplýsingar um heilsuna, sum tað heldur vera neyðugar og harafturat krevja, at viðkomandi gevur seg undir serstakar kanningar, møguliga við innlegging á sjúkrahús til kanningar.

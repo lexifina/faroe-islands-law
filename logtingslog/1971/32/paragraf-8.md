@@ -1,0 +1,2 @@
+§ 8. Fær tænastumaður uppsøgn vegna óarbeiðsføri, sum kemur av at hann hevur fingið løst í starvinum, sum gevur rætt til at krevja endurgjald eftir lóggávuni um vanlukkutrygging, kann hann krevja ta egineftirløn, ið er galdandi fyri ein eftirlønaraldur upp á 37 ár.
+Stk. 2. Hevur tænastumaður í grovum ósketni ella í fyllskapi verið sær úti eftir løstinum ella stórliga gjørt sítt til hansara, kann landsstýrið gera av, at hækkað eftirløn eftir 1. stk. skal detta burtur ella skerjast.

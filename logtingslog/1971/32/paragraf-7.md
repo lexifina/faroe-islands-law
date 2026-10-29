@@ -1,0 +1,2 @@
+§ 7. [^2] Tænastumaður undir 60 ár, hvørs vinnuføri er minkað niður í ein triðing ella minni av fullum vinnuføri og sum fær uppsøgn av hesi grund, hevur rætt til eina eftirløn, sum ásett verður við tí eftirlønaraldri sum grundarlag, ið hann vildi fingið við framhaldi í tænastuni til ta tíð, tá ið hann hevði fylt 70 ár.
+Stk. 2. Í samband við skipan í tænastumannastarv kann tó tilskilast, at starvið í nærri ásetta tíð ikki hevur rætt til eftirløn eftir 1. stk., um so er at uppsøgn úr starvinum fer fram vegna brek, sum longu er prógvað við setanina.

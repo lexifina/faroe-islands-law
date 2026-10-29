@@ -1,0 +1,1 @@
+§ 13. Um so er at eftirlivandi hjúnafelagi hjá tænastumanni hevur rætt til meira enn eina hjúnaeftirløn vegna starv, sum eftir § 4 telur við í eftirlønaraldrinum, verður bert tann hægsta hjúnaeftirlønin útgoldin.

@@ -1,0 +1,1 @@
+§ 4 b. [^1] [^4] Landsstýrið kann avgera, at tænastumaður sum frammanundan, at starvið er vorðið tænastumannastarv, hevur havt sama starv, og treytirnar í § 4 og 4 a) ikki eru loknar, kann fáa tíðina í hesum starvi aftaná 25. ár sítt talda við í eftirlønaraldurin.

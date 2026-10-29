@@ -1,0 +1,1 @@
+§ 10. Eftirlønin verður steðgað, um so er at tænastumaður aftur fær starv, sum eftir reglunum í § 4 telur við í eftirlønaraldrinum. Við seinni uppsøgn vegna eftirlønargrund hevur avvarðandi rætt til í minsta lagi líka stóra eftirløn sum tann steðgaða eftirlønin.

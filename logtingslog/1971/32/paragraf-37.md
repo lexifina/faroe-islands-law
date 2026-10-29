@@ -1,0 +1,2 @@
+§ 37. [^3] Eftirlønir eftir kap. 2 og 3 og eftirinntøka av eftirløn eftir kap. 6, sum byrjað er at útgjalda innan 31. desember 1996, verða umroknaðar pr. 1. januar 1997 eftir reglunum í § 6 ávikavist § 12, stk. 1 og 2.
+Stk. 2. Tænastumonnum, sum eru eftirløntir eftir hesi lóg 31. desember 1996, og eftirlønarútrokningin eftir § 6 ávikavíst § 12, stk. 1-2 førir við sær niðurgongd í eftirlønini, verður veitt ein persónlig viðbót, sum er munurin millum eftirlønina eftir higartil galdandi reglum og eftirlønina roknaða eftir § 6 ávikavist § 12, stk. 1-2.

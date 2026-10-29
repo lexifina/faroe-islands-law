@@ -1,0 +1,1 @@
+§ 3. [^2] Tænastumaður kann krevja seg loystan úr starvinum vegna aldur, tá ið mánaðurin, hann fyllir 62 ár í, er úti, ella hann røkkur ein lægri aldur, sum eftir aðrari lóg kann verða fyrisettur um henda rætt.

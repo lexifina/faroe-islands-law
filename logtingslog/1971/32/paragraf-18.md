@@ -1,0 +1,1 @@
+§ 18. [^1] Landsstýrið kann avgera at statsborgarar úr hinum norðanlondunum, sum starvast innan tað í § 1, 1. stk. nevnda øki eftir tilsvarandi treytum sum tænastumenn, verða viðgjørdir eftir reglunum í hesi lóg hvat eftirløn viðvíkur.

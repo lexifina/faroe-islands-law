@@ -1,0 +1,2 @@
+§ 36. Tænastumaður, sum fer úr starvinum uttan at hava rætt til eftirløn eftir § 2, kann í staðin fyri at varðveita rætt til útsetta eftirløn eftir §§ 23-25, krevja at fáa útgoldið eftirlønargjald eftir § 5, 2. stk. í løgtingslóg nr. 1. frá 25. februar 1953 fyri starvstíð sína áðrenn henda lóg kemur í gildi.
+Stk. 2. Eftirlønargjøld, sum eru afturgoldin vegna loysn úr tænastumannastarvi, skulu gjaldast aftur eftir higartil galdandi reglum, um so er at ein verður settur aftur sum tænastumaður.
