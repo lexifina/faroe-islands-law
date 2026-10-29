@@ -1,0 +1,2 @@
+§ 1. Persónar, sum frá 1. november 2014 til og við 2023 hava goldið heilsutrygdargjald sambært § 24, stk. 1 í heilsutrygdarlógini, og sum sama ár hava rindað heilsutrygdargjald í øðrum Norðurlandi og tí kunnu fáa frítøku í Føroyum, vísandi til Nordisk konvention om social sikring, kunnu eftir umsókn fáa afturgoldið heilsutrygdargjald sambært hesi løgtingslóg.
+Stk. 2. Frádráttur í skatti, sum umsøkjari hevur fingið umrøddu árini sambært § 154 b í skattalógini, verður drigin frá heilsutrygdargjaldi, sum sambært stk. 1 kann rindast aftur.

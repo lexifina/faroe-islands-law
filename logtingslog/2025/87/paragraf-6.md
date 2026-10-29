@@ -1,0 +1,1 @@
+§ 6. Hevur persónur givið TAKS skeivar upplýsingar ella tagt um umstøður, sum hava týdning fyri afturgjald sambært hesi løgtingslóg, kann TAKS eftirfylgjandi krevja inn gjaldið, ið umsøkjari av órøttum hevur fingið útgoldið frá TAKS.

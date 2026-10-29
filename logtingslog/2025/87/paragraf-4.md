@@ -1,0 +1,2 @@
+§ 4. Afturgoldið verður aftur til tann 1. november 2014, tá ið Kærunevndin í almanna-, familju- og heilsumálum heimvísti einum kærumáli til nýggja støðutakan hjá Heilsutrygd.
+Stk. 2. Er ikki greitt, hvør inntøka hoyrir til tíðarskeiðið við frítøku, verður heilsutrygdargjald, sum er goldið av skattskyldugu inntøkuni, afturrindað lutfalsliga í mun til mánaðir við frítøku, og út frá samlaðu skattskyldugu inntøkuni fyri árið.
