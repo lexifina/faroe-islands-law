@@ -1,0 +1,1 @@
+§ 4. Fyritøkan hevur ábyrgdina av, at góðskuleiðsluskipanin er sett í verk, og at hon verður dagførd og eftirmett í minsta lagi eina ferð um árið. Fyritøkan hevur skyldu til at lata góðskuleiðsluskipanina eftirkanna av Elnevndini.

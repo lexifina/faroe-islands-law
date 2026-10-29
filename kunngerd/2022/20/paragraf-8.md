@@ -1,0 +1,1 @@
+§ 8. Ein fyritøka, hvørs løggilding er afturtikin innan fyri seinastu 6 mánaðirnar sambært § 16, stk. 1 nr. 1 og 2 í løgtingslógini, skal við nýggjari umsókn um løggilding senda inn skjalprógv til Elnevndina um góðkenning av góðskuleiðsluskipan.

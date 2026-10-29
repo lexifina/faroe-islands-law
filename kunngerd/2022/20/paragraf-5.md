@@ -1,0 +1,2 @@
+## Góðkenning og eftirkanning av góðskuleiðsluskipanini
+§ 5. Umsókn um góðkenning av góðskuleiðsluskipanini skal sendast til skrivstovu nevndarinnar t.e. Arbeiðs- og brunaeftirlitið. Saman við umsóknini skal sendast eitt eintak av góðskuleiðsluskipanini umframt upplýsingar um, nær skipanin er sett í verk, undir hesum um einstakir partar enn ikki eru settir í verk. Umsókn um góðkenning av góðskuleiðsluskipanini kann latast inn elektroniskt.

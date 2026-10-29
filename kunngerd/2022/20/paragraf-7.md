@@ -1,0 +1,2 @@
+§ 7. Góðskuleiðsluskipanin skal góðkennast endaliga av Elnevndini innan eitt ár eftir, at løggildingin er givin. Elnevndin metir um ta góðskuleiðsluskipan, sum er móttikin, og fremur eina eftirkanning hjá fyritøkuni fyri at meta um, hvørt góðskuleiðsluskipanin er sett í verk.
+Stk. 2. Um Elnevndin kann góðkenna ta íverksettu góðskuleiðsluskipanina, verður givið eitt góðkenningarprógv. Um Elnevndin ikki kann góðkenna góðskuleiðsluskipanina, boðar Elnevndin frá, at góðkenning verður noktað.
