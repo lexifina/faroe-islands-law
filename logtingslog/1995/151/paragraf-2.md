@@ -1,0 +1,4 @@
+§ 2. Í sambandi við samlaðu endurfíggingina av kommunuskuldini fær landsstýrið fylgjandi heimildir:
+1. Landsstýrið kann sum borgsmaður góðkenna broytingar í lánstreytunum, heruppií at lánini verða yvirtikin av øðrum lánsveitara, at avdráttartíðin verður longd t.d. upp í 30-ár (30-ára annuitetslán) v.m.
+2. Útlegg úr landskassanum fyri landskassaborgan og lán úr landskassanum til kommunur og kommunalar felagsskapir kunnu verða umløgd til lán úr landskassanum sambært avtaluni um endurfígging av kommunuskuldini.
+3. Landsstýrinum verður heimilað, landskassans vegna, at veita trygd fyri rentutapi av lánum, sum stendst av, at tann millum lánveitara og lántakara avtalaða hámarksrenta er lægri enn marknaðarrentan treytar. Útlegg úr landskassanum vegna trygd fyri rentutapi kann ikki gerast galdandi móti kommunum ella kommunalum felagsskapi.

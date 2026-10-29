@@ -1,0 +1,1 @@
+§ 1. Lógin umfatar lán úr landskassanum og lán til kommunur ella kommunalar felagsskapir, sum landskassin borgar fyri mótvegis danska statinum, Kommunukredit ella øðrum lánsveitara, tá henda lóg fær gildi.
