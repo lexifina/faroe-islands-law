@@ -1,0 +1,5 @@
+## Fráboðan um andlát
+§ 4. Andlát í Føroyum ella umborð á skipi ella flogfari, hvørs fyrsta koma aftaná andlátið er til eina føroyska havn ella føroyskan flogvøll, skulu verða fráboðað tí, sum skrivar kirkjubókina í tí sóknini, har tann deyði búði, í seinasta lagi 2 gerandisdagar aftaná andlátið, ella aftaná at skipið ella flogfarið er komið til Føroya, samanber tó stk. 3 og 4.
+Stk. 2. Um tann deyði búði í Danmark, skal somuleiðis verða fráboðað tí, ið skrivar kirkjubókina, í tí sókn, har tann deyði búði.
+Stk. 3. Um tann deyði búði í teimum suðurjútsku landspørtunum, verður fráboðanin send víðari til skrivaran av persónsskránni í tí kommunu, har tann deyði búði.
+Stk. 4. Um tann deyði búði í Grønlandi ella í útlondum, ella upplýsing um, hvar tann deyði búði, ikki kann verða útvegað, skal verða fráboðað tí, ið skrivar kirkjubókina í tí sókn, har andlátið hendi, ella har viðkomandi havn ella flogvøllur er. Hendir andlátið á veg til sjúkrahús, skal tó verða fráboða tí, ið skrivar kirkjubókina í tí sókn, har sjúkrahúsið er. Er ikki greitt, hvar andlátið er hent, skal verða fráboðað tí, ið skrivar kirkjubókina í tí sókn, har líkið er funnið.

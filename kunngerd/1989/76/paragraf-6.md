@@ -1,0 +1,2 @@
+§ 6. Fráboðanin verður skrivað á oyðiblað um andlát og áheitan um jarðarferð ella líkbrenning, sum fæst ókeypis frá læknanum, sum skrivar deyðaváttanina, ella frá tí myndugleika, sum skipar fyri jarðarferðini.
+Stk. 2. Deyðaváttan frá einum lækna skal fylgja við fráboðanini. Eisini skal um møguligt dóps- ella navnsbræv hjá tí deyða og – um tann deyði var ella hevði verið giftur – eisini vígslubræv hansara verða víst fram ella sent við.

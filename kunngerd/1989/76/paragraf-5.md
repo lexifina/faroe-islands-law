@@ -1,0 +1,3 @@
+§ 5. Hjúnafelagin hjá tí deyða skal boða frá, um tey livdu saman, og um so ikki var, skulu børn hjá tí deyða, sum eru yvir 18 ár, ella foreldrini hjá tí deyða í nevndu raðfylgju boða frá
+Stk. 2. Er eingin, sum hevur fráboðanarskyldu sambært stk. 1, førur fyri at boða frá, skulu hjástødd fólk yvir 18 ár, sum hoyrdu til húskið hjá tí deyða, ella sum tann deyði var staddur hjá, boða frá.
+Stk. 3. Er andlátið hent umborð á skipi ella flogfari, og er eingin, sum hevur fráboðanarskyldu sambært stk. 1-2, hjástaddur ella førur fyri at boða frá, skal skiparin ella flogskiparin ella varamaður hansara boða frá.

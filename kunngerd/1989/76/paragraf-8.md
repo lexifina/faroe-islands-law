@@ -1,0 +1,1 @@
+§ 8. Er ein fráboðan ikki fullfíggjað, ella hevur tann, sum skrivar kirkjubókina orsøk at ivast í, um hon er røtt, kann hann áleggja tí, ið hevur skyldu til at boða frá, innan eina hóskandi freist at geva honum eina persónliga frágreiðing.

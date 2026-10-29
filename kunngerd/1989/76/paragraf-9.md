@@ -1,0 +1,1 @@
+§ 9. Tann, sum fremur brot á §§ 1 og 2 ella §§ 4 og 5, ikki heldur eina tíðarfreist, sum er ásett eftir § 7, stk. 1, ella ikki ger eftir tí, ið er álagt eftir § 8, verður revsaður við bót. Á sama hátt verður tann revsaður, sum gevur skeiva fráboðan ella skeiva frágreiðing eftir § 8.
