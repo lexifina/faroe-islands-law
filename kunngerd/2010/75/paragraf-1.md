@@ -1,0 +1,1 @@
+§ 1. Persónar, ið eru búsitandi í Føroyum og sum av arbeiðsgevara her á landi verða sendir út til fyribils arbeiði fyri arbeiðsgevaran uttan fyri Føroyar, herundir umborð á útlendskt skrásettum skipi, koma eisini undir løgtingslóg um trygging móti avleiðingunum av arbeiðsskaða, meðan teir eru uttan fyri Føroyar fyri arbeiðsgevaran, tó ikki í meira enn 2 ár.
