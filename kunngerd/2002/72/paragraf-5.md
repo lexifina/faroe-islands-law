@@ -1,0 +1,1 @@
+§ 5. Alt frárensluvatn sbr. § 3, litra 6c, ið kemur frá flutningi av akvakulturdýrum, akvakulturúrdráttum, slógvi og nótum og aðrari brúktari aliútgerð, skal samlast upp og sóttreinsast eftir góðkendari mannagongd sbr. §§ 9-10.
