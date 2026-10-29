@@ -1,0 +1,6 @@
+## Víðaritilvirking o.a.
+§ 6. Matvøran kann ikki tilvirkast víðari hjá einum øðrum framleiðara enn heimaframleiðaranum sambært § 2, nr. 2, ella verða pakkað á løggildari eind ella á annan hátt koma í samband við løggilda vøru, sbr. tó stk. 4. Hóast ásetingina í 1. pkt. kunnu seyður og neyt verða slátrað á løggildum sláturvirki ella í høli, sum er skrásett eftir § 4, stk. 2, 2. pkt.
+Stk. 2. Framleiðari í øðrum liði hevur ábyrgdina av, at matvøran, meðan hann hevur ræði á henni, verður handfarin, tilgjørd, pakkað, goymd og flutt soleiðis, at matvøran ikki spillist ella oyðilegst, ella at góðskan versnar munandi. Framleiðari í øðrum liði hevur ábyrgdina av, at matvøran, meðan hann hevur ræði á henni, støðugt lýkur ásetingina í § 4 í løgtingslógini.
+Stk. 3. Vøran skal sambært § 7, stk. 2 og 3, haldast atskild frá løggildari vøru í øllum liðum, eisini í sambandi við flutning, goymslu, tilvirking og sølu, sbr. tó stk. 4.
+Stk. 4. Hóast ásetingarnar í stk. 1 og 3, kunnu framleiðarar í øðrum liði, ið eru løggildir eftir kunngerð um løggilding og skráseting av matvøruvirkjum, handfara, skera sundur og pakka heimaframleiðsluvørur treytað av, at hetta kann gerast á slíkan hátt, at løggild vøra ikki kemur í samband við ta óløggildu vøruna.
+Stk. 5. Ásetingin í stk. 1 er ikki galdandi fyri matstovur.

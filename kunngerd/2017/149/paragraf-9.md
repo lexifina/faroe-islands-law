@@ -1,0 +1,4 @@
+## Upplýsingarskylda og eftirlit
+§ 9. Heilsufrøðiliga starvsstovan kannar bara matvørur, framleiddar eftir hesi kunngerð, um hildið verður, at matvøran ikki lýkur treytirnar í § 4 í løgtingslógini.
+Stk. 2. Tá ið Heilsufrøðiliga starvsstovan kannar, um ein matvøra lýkur ásetingina í § 4 í løgtingslógini, kann Heilsufrøðiliga starvsstovan eftir § 52, stk. 3 í løgtingslógini krevja, at heimaframleiðarin og framleiðarin í øðrum liði lata allar upplýsingar, sum hava týdning fyri at fremja eftirlitið, undir hesum eisini at royndir verða tiknar av matvørunum o.ø. Tann, ið hevur ræðið á matvøruni, tá ið slíkar royndir verða tiknar, rindar fyri royndirnar.
+Stk. 3. Tá ið Heilsufrøðiliga starvsstovan kannar, um ein heimaframleiðari lýkur treytina í § 4, stk. 3, kann Heilsufrøðiliga starvsstovan eftir § 52, stk. 1 í løgtingslógini krevja allar viðkomandi upplýsingar, eitt nú um fíggjarligu og roknskaparligu viðurskifti heimaframleiðarans.

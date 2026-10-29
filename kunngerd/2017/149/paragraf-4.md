@@ -1,0 +1,4 @@
+## Heimaframleiðsluskráin
+§ 4. Heimaframleiðarar, ið vilja framleiða og selja matvørur eftir § 1, skulu skrásetast í Heimaframleiðsluskránni, sum Heilsufrøðiliga starvsstovan umsitur.
+Stk. 2. Skrásetast skulu navn, annaðhvørt á persóni ella felagi, ávikavist p-tal ella v-tal, og bústaður framleiðarans. Verður matvøran framleidd aðrastaðni enn á bústaði framleiðarans, skal framleiðslustaðurin eisini skrásetast. Upplýsingarnar verða latnar á serligt oyðublað, sum Heilsufrøðiliga starvsstovan útflýggjar. Heimaframleiðarar verða skrásettir við einum skrásetingarnummari í Heimaframleiðsluskránni.
+Stk. 3. Treytin fyri at verða skrásettur í Heimaframleiðsluskránni er, at samlaði árligi umsetningurin av heimaframleiðsluni er minni enn kr. 1.000.000. Heimaframleiðarin skal í sambandi við skrásetingina vátta, at hann beinanvegin boðar Heilsufrøðiligu starvsstovuni frá, tá hann verður varugur við, at árligi umsetningurin fer upp um ta í 1. pkt. nevndu upphædd.
