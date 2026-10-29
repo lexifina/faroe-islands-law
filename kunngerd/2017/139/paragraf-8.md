@@ -1,0 +1,1 @@
+§ 8. Um nevndarlimur er ógegnigur, hevur viðkomandi skyldu til sum skjótast at boða nevndini frá hesum. Hann, sum er ógegnigur í einum máli, má ikki taka avgerð, vera við til at taka avgerð ella á annan hátt vera við í viðgerðini av málinum.

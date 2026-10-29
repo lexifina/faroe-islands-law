@@ -1,0 +1,2 @@
+§ 4. Sambært § 8, stk. 4 í lógini kann Miðlastuðulsnevndin krevja stuðul heilt ella lutvíst rindaðan aftur, um miðilin í sambandi við umsókn sína hevur givið skeivar ella villleiðandi upplýsingar, ella í sama sambandi hevur tagt burtur týðandi upplýsingar ella ikki lýkur treytirnar fyri stuðli annars.
+Stk. 2. Miðlastuðulsnevndin kann í beinleiðis framhaldi av avgerð sambært stk. 1 áseta herðandi treytir fyri miðlastuðli til miðilin, undir hesum at krevja skjalprógv, frágreiðingar o.a., um hetta er neyðugt fyri at fyribyrgja fleiri brotum.

@@ -1,0 +1,1 @@
+§ 5. Sambært § 7, stk. 3 í lógini gevur Miðlastuðulsnevndin við árslok á hvørjum ári landsstýrismanninum eina skrivliga frágreiðing um sítt virksemi. Landsstýrismaðurin leggur frágreiðingina alment fram á netið.

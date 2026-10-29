@@ -1,0 +1,1 @@
+§ 11. Um nevndin ikki fær endaliga avgreitt umsóknirnar á fundi, kann formaðurin loyva, at restin av málinum heilt ella lutvíst verður viðgjørt á skrivligum grundarlagi, um tað ikki verður mett at vera ivasamt. Tað sama ger seg galdandi, um nevndin skal viðgera restina av málinum umvegis telefon, sjónband ella líknandi.
