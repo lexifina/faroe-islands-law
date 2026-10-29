@@ -1,0 +1,1 @@
+§ 10. Avgerðir, tiknar av arbeiðseftirlitinum hjá Heilsufrøðiligu Starvsstovuni eftir hesi kunngerð, kunnu kærast til Vinnukærunevndina innan 4 vikur eftir, at viðkomandi hevur fingið boð um avgerðina.
