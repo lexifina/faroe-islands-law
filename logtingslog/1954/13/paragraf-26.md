@@ -1,0 +1,3 @@
+## Avtøka av øðrum fyriskipanum
+§ 26. [^6] [^1] Landsstýrismaðurin fær vald til í hvørjum einstøkum føri, tá ið byggisamtykt er góðkend, aftaná at hava fingið viðmæli frá tí kommunustýri, byggisamtyktin viðvíkjur, at avgera, hvussu umfatandi eldri byggilógir, fyriskipanir o. a. skulu verða í gildi saman við byggisamtyktini. Eisini hevur landsstýrismaðurin heimild at gera av hvussu umfatandi frammanfyri nevndu lógir og fyriskipanir skulu verða í gildi, tá ein byggireglugerð sum umrødd er í § 4, stk. 5, verður sett í gildi.
+Stk. 2. Har tað í lóggávuni orðið “býarskipan“ hevur verið nýtt, skal orðið “byggisamtykt” verða nýtt í staðin fyri ella javnbjóðis tí, tá ið lóggávan ikki skilliga tilskilar annað.

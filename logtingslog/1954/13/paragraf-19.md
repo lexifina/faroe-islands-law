@@ -1,0 +1,1 @@
+§ 19. Endurgjald fyri veðbundna ogn verður, tá ið onnur avgerð er ikki gjørd, goldið millum veðeigararnar í teirri røð, ið bøkur sorinskrivarans vísa veðrættindi teirra, og so nógv sum neyðugt er til fullnaðargjald veðeigarans fyri ta virðislækkan av veðtrygging teirra, ið ognartøkan ella avhendingin voldu, meðan ognarmaður fær tað av endurgjaldinum ið loypir av, um so er.

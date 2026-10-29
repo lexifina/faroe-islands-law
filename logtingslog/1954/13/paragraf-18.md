@@ -1,0 +1,2 @@
+§ 18. [^1] Landsstýrismaðurin skrivar nevndini fyriskipan, hvussu útreiðslur fyri viðgerð av málum skulu verða greiddar, endurgjald útroknað o. s. fr.
+Stk. 2. Í hesi fyriskipan kann verða tilskilað, at tá ið endurgjald verður ásett, skal virðisøkingin, sum ognin verður mett at fáa av teimum gjørdu tiltøkum, verða frádrigin. Av hesum kann endurgjald heilt falla burtur, tá ið tey gjørdu tiltøk mett verða at geva ognarmanni størri fyrimun enn virði av tí latna øki ella rættindum er.

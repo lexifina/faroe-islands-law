@@ -1,0 +1,3 @@
+## Virkan av uppskoti til byggisamtyktar
+§ 9. [^1] Beinan vegin kunngerðin, ið umrødd er í § 6, stk. 1, er vorðin lýst, má fyribils einki øki, ið samtyktin umfatar, verða bygt ella á annan hátt nýtt í mótstríði við hana samanber § 10, uttan loyvi frá teirri yvirvøld, ið gjørt hevur hitt framlagda uppskoti. Sýtir kommunustýrið slíkum loyvi, kann málið verða lagt fyri landsstýrismannin.
+Stk. 2. [^1] Er byggisamtyktin ikki vorðin góðkend, áðrenn eitt ár er liðið frá kunngerðardegnum, fellur henda umrødda virkan av kunngerðini burtur. Landsstýrismaðurin kann leingja freistina, ið framman fyri er nevnd til 6 mánaðir tá ið hetta verður hildið ynskiligt til at fáa enda á viðgerðini av uppskotinum, ið liggur fyri.

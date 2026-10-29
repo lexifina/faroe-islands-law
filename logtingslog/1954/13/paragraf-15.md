@@ -1,0 +1,2 @@
+## Vanligar reglur um endurgjald
+§ 15. [^1] Støddin av tí endurgjaldi, sum ognarmaður eftir §§ 12-14 eigur at fáa, verður, um semja ikki er fingin í lag, sett av eini metingarnevnd. Í hesi nevnd sita 2 manns, ið landsstýrismaðurin velur fyri 6 ár í senn, annar teirra skal verða formaður nevndarinnar og tveir málinum óviðkomandi menn, fyri hvørt serstakt mál at sær valdir av dómsvaldinum. Standa atkvøðurnar á jøvnum, kemur sýslumaðurin í teirri sýslu, sum málið viðvíkir í nevndina sum avgerðarmaður. Tiltaksmenn skulu verða kosnir fyri hvønn nevndarlim.

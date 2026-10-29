@@ -1,0 +1,4 @@
+## Byggilinjur við akvegir
+§ 11. [^1] Heldur landsstýrismaðurin tað verða neyðugt fyri almennaferðslu at vissað verður vegi størri breidd til víðkanar ella til at fáa betri útlit yvir slíkan veg, kann landsstýrismaðurin eftir teimum í §§ 6 og 7 fyrisettu reglum í eini samtykt gera av, hvussu byggilinjur fram við vegnum skulu vera.
+Stk. 2. [^1] Ein byggilinja, ið er samtykt, hevur somu ávirkan sum tær í § 10 nevndu byggisamtyktir, at allar byggingar, viðroknaðir septiktankar og annað, skulu verða hildnar í minsta lagi so langt frá vegi, sum byggisamtyktin tilskilar ella frá miðlinjum vegsins. Er ivamál um, hvar miðlinjan er, avger landsstýrismaðurin tað.
+Stk. 3. [^1] Á sama hátt verða §§ 12-14 nýttar, tá ið hesir vegir verða víðkaðir, og tá ið goldið skal verða endurgjald, orsakað av byggilinjukravi, tó soleiðis at í hesum gr. skal verða lisið landsstýrismaðurin í staðin fyri kommunustýrið.
