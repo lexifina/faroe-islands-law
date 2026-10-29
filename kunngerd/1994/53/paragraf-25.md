@@ -1,0 +1,4 @@
+§ 25. Køstar, mykjubrunnar, súrhoyggjabrunnar o.t. Køstar, mykjubrunnar, súrhoyggjabrunnar o.t. skulu verða vatntættir bæði í botninum og til veggirnar, hava tætt lok ella annað, sum forðar fyri avguvan og luktampum, og mugu ikki verða settir nærri enn 8 metrar frá sethúsi, skúla, kirkju ella almennum vegi uttan so, at bý- ella bygda(r)ráðið metir tað vera ógjørligt hjá viðkomandi at seta tílíkan bygning so langt burtur frá.
+Stk. 2. Køstar, mykjubrunnar og súrhoyggjabrunnar o.t. skulu tømast so ofta, at eingin vandi er fyri, at teir flóta yvir.
+Stk. 3. Tøð frá køstum og mykjubrunnum skal nýtast til taðing soleiðis, at hetta ikki elvir til dálking av áum ella er til ampa fyri fólk, ið búgva nærindis.
+Stk. 4. Bý- ella bygda(r)ráðið kann seta forboð fyri nýtslu av køstum, mykjubrunnum, súrhoyggjabrunnum o.t., tá ið nýtslan elvir til vanda fyri dálking ella heilsuvanda.

@@ -1,0 +1,3 @@
+§ 39. Steðgur fyri boði ella forboði. Ein kæra setir steðg fyri einum boði ella forboði til avgerð frá kærumyndugleikanum fyriliggur ella kærumyndugleikin avgerð annað.
+Stk. 2. Tann myndugleiki, sum tekur avgerðina um boð ella forboð, kann kortini, tá serligar orsøkir eru til tað, samstundis við boðinum ella forboðinum gera av, at tað skal fylgjast uttan mun til kæru. Um hendan avgerð verður kærd, skal boðið ella forboðið fylgjast til kærumyndugleikin avgerð annað.
+Stk. 3. Byggi- og tilgerðararbeiði, ið neyðug eru til at kunna nýta eitt loyvi ella eina góðkenning, kunnu ikki setast í verk áðrenn kærufreistin eftir § 38 er úti.

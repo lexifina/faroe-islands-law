@@ -1,0 +1,1 @@
+§ 4. Skaðadýr. Verður komið fram á skaðadýr, sum kunnu vera til álvarsligan ampa ella heilsuvanda, skal bý- ella bygda(r)ráðið geva boð um, at neyðug tiltøk skulu fremjast til at beina fyri skaðadýrunum.

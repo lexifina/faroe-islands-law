@@ -1,0 +1,3 @@
+§ 24. Fjós, stallar o.t. Gólv í fjósi til neyt, ross, seyð o.t., skal vera steinsett ella stoypt. Flórurin skal vera úr vatntøttum tilfari.
+Stk. 2. Frárensl frá fjósum, stallum o.t. skulu førast í køst, mykjubrunn ella tílíkt í tøttum leiðingum, jvb. eisini ásetingarnar í kapittul 7.
+Stk. 3. Ikki er loyvt at hava fjós til neyt og ross í kjallarum uttan góðkenning frá bý- ella bygda(r)ráðnum. Góðkenning kann bert verða givin, um gólvið yvir fjósinum er úr betongi uttan lemm ella úr øðrum eins tøttum tilfari, og at tað hevur ljóara 30 cm2 til víddar pr. m2 gólvvídd í fjósinum, og gongur 1 metur upp um mønuna ella har, sum húsini eru hægst. Skal tað, sum eftir er av kjallaranum, nýtast til matgoymslu, skulu tøtt og heil skilarúm vera ímillum.

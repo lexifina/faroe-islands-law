@@ -1,0 +1,1 @@
+§ 35. Freist fyri at fylgja avgerðum. Í boðum ella forboðum skal í sambandi við avgerðina vera ásett ein freist fyri at fylgja avgerðini. Í teimum førum, ið nevnd eru í § 33, har bráðneyðug tiltøk mugu gerast, kann verða avgjørt, at avgerðin skal fylgjast alt fyri eitt.

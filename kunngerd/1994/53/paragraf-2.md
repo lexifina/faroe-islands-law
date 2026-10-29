@@ -1,0 +1,1 @@
+§ 2. Evja. Hyljar, tjarnir, díki, áir og løkir innangarðs skulu haldast rein, og kann bý- ella bygda(r)ráðið áseta nærri reglur hesum viðvíkjandi. Evjan úr teimum skal førast burtur og leggjast soleiðis, at hon ikki er til ampa fyri umhvørvið ella er til heilsuvanda.

@@ -1,0 +1,1 @@
+§ 26. Nærri ásetingar. Bý- ella bygda(r)ráðið kann áseta nærri reglur um bygging og reinhald av fjósum, stallum, seyða-, høsna- og dunnuhúsum, køstum, mykju-, súrhoyggja- og landbrunnum o.t. Bý- ella bygda(r)ráðið kann geva boð um neyðug tiltøk og steðga byggingum, um reglurnar ikki verða fylgdar.

@@ -1,0 +1,2 @@
+§ 22. Røkt av spillvatnsleiðingum o.t. Allar spillvatnsleiðingar, frárenslleiðingar, niðurlopsbrunnar o.t., skulu røkjast og reinsast so ofta, tað er neyðugt eftir árstíðini og viðurskiftunum annars, soleiðis at vandi ikki er fyri dálking ella til heilsuvanda.
+Stk. 2. Bý- ella bygda(r)ráðið skal ansa eftir, at spillvatnsleiðingar, frárenslleiðingar, niðurlopsbrunnar o.t., feittbrunnar, oljuútskiljarar og spillvatnsreinsiverk verða hildin rein og í góðum standi.

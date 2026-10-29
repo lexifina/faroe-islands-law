@@ -1,0 +1,2 @@
+§ 36. Málsinnlit og rættindi til at bera síni sjónarmið fram. Áðrenn avgerð verður tikin um boð ella forboð, skal móttakarin hava skrivliga frásøgn og kunnast um, at hann hevur rætt til málsinnlit og til at bera síni sjónarmið fram. Móttakarin eigur í hesum sambandi at fáa áheitan um at veita upplýsingar, ið kunnu lýsa kostnað, fyrimunir og vansar við avgerðini.
+Stk. 2. Vikið kann verða frá frásøgn sum nevnd í stk. 1, um bráneyðug tiltøk mugu gerast, ella um frásøgn eyðsýnt kann ætlast at vera óneyðug.

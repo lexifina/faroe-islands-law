@@ -1,0 +1,1 @@
+§ 3. Toftir. Bý- ella bygda(r)ráðið kann geva eigara ella grundeigara boð um, at toftir og leivdir yvirhøvur av bygningum, og ikki liðugt bygd hús, sum standa at detta niður ella hava staðið hálvgjørd í nógv ár, skulu takast niður minst 15 cm undir lendið og um hvussu tey skulu verða beind burtur, jvb. tó løgtingslóg um friðan av fornminnum og bygningum.

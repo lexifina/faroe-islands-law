@@ -1,0 +1,1 @@
+§ 5. Hvalvágir. Bý- ella bygda(r)ráðið skal ansa eftir, at hvalvágir ikki verða so dálkaðar, at vandi er fyri, at hvalur, sum verður dripin á vánni, ikki er egnaður til fólkamat, jvb. løgtingslóg um matvørur.

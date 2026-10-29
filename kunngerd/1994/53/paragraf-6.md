@@ -1,0 +1,1 @@
+§ 6. Fýringsútbúnaður. Elvir oljufýrur, ovnur ella tílíkt til royk, dust, óljóð ella aðrar ampar fyri fólk, íð búgva nærindis, kann bý- ella bygda(r)ráðið geva boð um, at neyðug tiltøk skulu setast í verk til at fyribyrgja hesum.
