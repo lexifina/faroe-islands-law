@@ -1,0 +1,1 @@
+§ 19. Fyri hvønn upprunaflokk setir leiðari útbúgvingarstovnsins eitt flokstoymi, ella hann velur at nýta aðra fortreyt enn upprunaflokkin sum toymiseyðkenni. Toymi kunnu eftir tørvi virka í styttri ella longri tíð.

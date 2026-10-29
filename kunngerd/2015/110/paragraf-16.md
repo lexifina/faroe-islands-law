@@ -1,0 +1,1 @@
+§ 16. Mentamálaráðið ger námsætlanir fyri almennar lærugreinir, vallærugreinir og økislærugreinir við tvørfakligum samstarvi, soleiðis at skrivligir og munnligir málbúnar verða styrktir í øllum lærugreinum.

@@ -1,0 +1,3 @@
+§ 5. Umsøkjari, sum ikki hevur møguleika at lúka treytirnar í § 4, stk. 1, t.d. vegna uppihald uttanlands ella útlendskt upphav, kann verða tikin upp, um skúlin metir, at umsøkjarin hevur tær neyðugu fakligu og málsligu fyritreytirnar fyri at fullføra útbúgvingina til ásetta tíð. Umsøkjarin kann vera vístur til eina upptøkuroynd, ið skúlin, ið søkt verður inn á, skipar fyri.
+Stk. 2. Næmingur við serligum forkunnleika sbr. § 2, stk. 1, nr. 3, skal hava lokið miðnámsútbúgving ella samsvarandi.
+Stk. 3. Umsøkjari, ið lýkur upptøkutreyt eftir § 3, ella sum eftir meting leiðara útbúgvingarstovnsins lýkur fakligu fortreytirnar í tí ávísu lærugreinini, sum søkt verður um upptøku á, kann takast upp sum stakgreinalesandi ella sjálvlesandi í støkum lærugreinum.

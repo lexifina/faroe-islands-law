@@ -1,0 +1,1 @@
+§ 39. Mentamálaráðið ásetir, nær skrivligu og munnligu próvtøkurnar verða hildnar. Próvtøkutalvurnar verða sendar skúlanum í seinasta lagi 15. apríl. Próvtøkutalvurnar eru tá loyniligar, og bert leiðari útbúgvingarstovnsins ella ein av honum heimilaður persónur hevur loyvi at kanna tær.

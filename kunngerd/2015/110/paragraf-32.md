@@ -1,0 +1,1 @@
+§ 32. Leiðari útbúgvingarstovnsins skal javnan útvega sær vitan um fakligu støðuna í tí einstaka flokkinum. Hann skal serliga útvega sær kunnleika um skrivligu førleikarnar. Við hesi vitan í huga skal leiðarin í samráði við læraratoymið gera eitt nýtt býti av næmingatíð, um hann heldur tørv vera á tí, tó ongantíð minni enn ásetingin í skjali .
