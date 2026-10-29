@@ -1,0 +1,1 @@
+§ 9. Treyt fyri, at fiskiloyvi kann verða flutt eftir §§ 7 ella 8 er, at metingarvirðið fyri fiskiorku á bátinum, sum fiskiloyvi verða flutt á, er tað sama ella minni enn á bátinum, ið loyvi verða flutt av. Metingarvirðið fyri fiskiorku verður roknað, sum ásett í § 12, stk. 1, nr. 1.

@@ -1,0 +1,1 @@
+§ 11. Skrivlig umsókn um at flyta fiskiloyvi hjá útróðrarbáti til fiskiskap í bólki 5, sambært § 18, stk. 1, nr. 5 í løgtingslógini, á annan útróðrarbát við ongum fiskiloyvi, skal sendast Vørn. Saman við umsóknini skulu fylgja avrit av skrásettum málibrævi ella máliprógvi hjá viðkomandi bátum.

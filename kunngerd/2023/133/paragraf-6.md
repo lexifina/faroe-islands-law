@@ -1,0 +1,2 @@
+§ 6. Vørn skal hava skrivliga fráboðan um avhending av fiskidøgum, sum er váttað av báðum pørtum. Í fráboðanini skal vera upplýst, hvørjum skipum, sum avhendir fiskidagar skulu av og á, hvussu nógvir fiskidagar skulu avhendast, og um avhendingin er fyri eitt ár ella endalig.
+Stk. 2. Áðrenn avhendir fiskidagar kunnu nýtast, skal Vørn við skrivligari fráboðan til báðar partar hava staðfest, at avhendingin kann fara fram, og hvussu nógvar fiskidagar móttakarin hevur ræðið á eftir avhendingina.

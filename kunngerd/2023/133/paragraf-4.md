@@ -1,0 +1,1 @@
+§ 4. Skrivlig umsókn um at flyta ella leggja saman veiðiloyvi sambært § 2 skal sendast Vørn. Saman við umsóknini skulu fylgja avrit av skrásettum málibrævi ella máliprógvi og upplýsingum um framtøkumegi (kW ella HK) hjá viðkomandi fiskiførum.

@@ -1,0 +1,1 @@
+§ 8. Sambært § 32, stk. 2 í løgtingslógini kunnu fiskiloyvi hjá tveimum bátum við fiskiloyvi til fiskiskap í bólki 5, sambært § 18, stk. 1, nr. 5 í løgtingslógini, flytast á annan bát uttan fiskiloyvi treytað av, at fiskiorkan ikki økist, og at báturin, loyvið verður flutt á, ikki er størri enn 15 tons.
