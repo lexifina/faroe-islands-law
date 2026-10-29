@@ -1,0 +1,2 @@
+## Landsroknskapurin
+§ 10. Roknskaparupplýsingar samsvarandi góðkendum ársroknskapum verða tiknar við í landsroknskapin, sum Føroya Gjaldstova setur upp. Aðalráðini og stovnar skulu fáa til vega meiri roknskapartilfar, sum skal verða nýtt til landsroknskapin, um Føroya Gjaldstova biður um tað, undir teimum notur og yvirlit yvir virksemið hjá landinum, sum eru neyðug fyri at fáa røttu fatanina av roknskapinum.
