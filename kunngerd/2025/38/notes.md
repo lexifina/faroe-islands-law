@@ -1,0 +1,1 @@
+[^1]: Skjal 2 er ikki lagt út á logir.fo, men at finna í Kunngerðablaðnum, sí vinstra bredda á logir.fo, og á Regluportalinum hjá Sjóvinnustýrinum. Broytingarásetingar í Kunngerðum frá Sjóvinnustýrinum, sum verða kunngjørdar í kunngerðablaðnum verða ikki samanskrivaðar við upprunaásetingarnar her í logir.fo.
