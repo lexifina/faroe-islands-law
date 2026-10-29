@@ -1,0 +1,8 @@
+§ 1. Tann, sum í føroyskum havnum, oljuterminalum ella øðrum atløgustøðum tekur ímóti HNS-evnum, sum eru flutt við farmaskipi, skal áðrenn 15. mars lata Sjóvinnustýrinum upplýsingar um navn og bústað, eins og móttikna nøgd farna árið, sbr. tó stk. 2. Hetta er eisini galdandi, tá ið HNS-evnini eru móttikin í tollfríum økjum. Upplýsingarnar skulu latast inn á oyðibløðum, sum eru á heimasíðuni hjá Sjóvinnustýrinum.
+Stk. 2. Upplýsingarskyldan sbrt. stk. 1 tekur við, tá ið tað í einum álmanakkaári verður móttikið:
+1) í minsta lagi 150.000 tons av tungolju, sum er fevnd av § 191, stk. 4, í anordning om ikrafttræden for Færøerne af søloven, sbr. tó stk. 3,
+2) eina og hvørja nøgd av flótandi jarðgassi av lættum kolvetnum, har metan er høvuðspartur, LNG, ella
+3) í minsta lagi 15.000 tons av øðrum HNS-evnum.
+Stk. 3. Upplýsingarskylda sbrt. stk. 2, nr. 1, um tungolju verður mett at vera lokin, um fráboðan longu er latin um móttikna tungolju eftir reglunum um upplýsingarskyldu og gjaldskyldu hjá oljumóttakarum til altjóða grunnin fyri endurgjald av oljudálkingarskaðum (1992-grunnurin) og protokollina frá 2003 (supplerandi grunnurin).
+Stk. 4. Í hesi kunngerð merkir HNS-evni evni, sum eru fevnd av § 212 í anordning om ikrafttræden for Færøerne af søloven. Nágreiniligar upplýsingar um, hvørji evni eru HNS-evni, finnast á heimasíðuni hjá Sjóvinnustýrinum.
+Stk. 5. Tann, ið tekur ímóti HNS-evnum, hevur ikki skyldu til at rinda gjald til HNS-grunnin, sbr. § 212, stk. 6, 2. pkt., í anordning om ikrafttræden for Færøerne af søloven, fyrr enn The International Convention on Liability and Compensation for Damage in Connection with the Carriage of Hazardous and Noxious Substances by Sea kemur í gildi fyri Føroyar.
