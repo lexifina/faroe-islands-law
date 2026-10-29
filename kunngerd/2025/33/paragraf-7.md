@@ -1,0 +1,2 @@
+## Eigaraskifti o.a.
+§ 7. Tá eigaraskifti er fráboðað Heilsufrøðiligu starvsstovuni, sambært § 16 í kunngerð um løggilding og skráseting av matvøruvirkjum, tekur Heilsufrøðiliga starvsstovan brámyndina hjá undanfarna eigara burtur. Heilsufrøðiliga starvsstovan útflýggjar nýggja brámynd, tá nýtt eftirlit er framt. Heilsufrøðiliga starvsstovan leggur hereftir nýggju eftirlitsfrágreiðingina á heimasíðu stovnsins.
