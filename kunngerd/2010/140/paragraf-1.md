@@ -1,0 +1,1 @@
+§ 1. Áðrenn landsstýrismaðurin velur stýrislimir, fáa tey feløg, sum nevnd eru í hesi kunngerð boð um, innan ásetta freist, at senda inn uppskot til Fiskimálaráðið um valevni til stýrislimir og varalimir.
