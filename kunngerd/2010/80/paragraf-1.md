@@ -1,0 +1,4 @@
+§ 1. Tryggingarfeløgini, sum tekna arbeiðsskaðatryggingar, bera kostnaðin fyri raksturin av Vanlukkutryggingarráðnum sambært § 27, stk. 5, i løgtingslóg nr. 67 frá 25. mai 2009 um trygging móti avleiðingunum av arbeiðsskaða.
+Stk. 2. Vanlukkutryggingarráðið sendur hvørt ár áðrenn 1. mars eina uppgerð til gjaldingar grundað á rakstrarkostnaðin av Vanlukkutryggingarráðnum í undanfarna ári.
+Stk. 3. Útreiðslurnar, ið standast av ásetingunum í § 27, stk. 4, i løgtingslóg nr. 67 frá 25. mai 2009 um trygging móti avleiðingunum av arbeiðsskaða, haruppií útreiðslur til vegleiðandi úttalisir frá Arbejdsskadestyrelsen, verða tó rindaðar so hvørt av viðkommandi tryggingarfelagi í sambandi við einstøku málsviðgerðina og eftir áheitan frá Vanlukkutryggingarráðnum.
+Stk. 4. Ársgjaldið hjá tí einstaka tryggingarfelagnum verður ásett av Vanlukkutryggingarráðnum í mun til talið av fráboðanum, móttiknar frá viðkommandi tryggingarfelagi.
