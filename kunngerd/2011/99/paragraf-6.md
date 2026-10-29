@@ -1,0 +1,3 @@
+§ 6. Umsókn um broytingar í lærusáttmálanum, eisini stytting ella leingjan av lærutíðini, uppsøgn av lærusáttmálanum, umframt aðrar møguligar broytingar, skulu skrivast á serligt skjal, ið sáttmálapartarnir, sum varða av broytingunum, undirskriva.
+Stk. 2. Yrkisdepilin eftirkannar, um fyritreytirnar fyri broytingunum í lærusáttmálanum eru í lagi og góðkennir og skrásetir eftirkannaða lærusáttmálan við góðkendu broytingunum.
+Stk. 3. Tá ið Yrkisdepilin hevur góðkent og skrásett broytingarnar í lærusáttmálanum, verður eitt avrit av broytta lærusáttmálanum sendur sáttmálapørtunum og viðkomandi skúla.
