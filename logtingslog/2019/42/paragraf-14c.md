@@ -1,0 +1,2 @@
+§ 14 c. [^1] Lønarendurgjald verður veitt fyri skúlaskeiðini, ið eru kravd á útbúgvingini, og fyri starvsvenjingarskeiðini, tá ið næmingurin av fakligum orsøkum er í starvsvenjing uttan fyri starvsstað sín.
+Stk. 2. Lønarendurgjaldið er 80% av minstulønini fyri starvsfólk undir útbúgving sambært galdandi sáttmála á arbeiðsmarknaðinum, frítíðarískoytið íroknað. Endurgjald verður ikki veitt fyri eftirløn og arbeiðsmarknaðargjøld.

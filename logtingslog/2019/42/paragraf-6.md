@@ -1,0 +1,1 @@
+§ 6. Leiðarin á Heilsuskúla Føroya kann geva næmingi avriksflutning fyri partar av útbúgvingini við støði í viðkomandi útbúgving ella starvsligum royndum, um stig og ella innihald frá aðrari lærugrein kann javnsetast. Landsstýrismaðurin ásetur nærri reglur um avriksflutning.

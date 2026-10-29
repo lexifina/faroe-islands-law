@@ -1,0 +1,2 @@
+§ 10. Útbúgvingin til námsfrøðiligan hjálpara tekur 24 mánaðir, íroknað frítíð. Ástøðiligi parturin íroknað próvtøku, skal í minsta lagi fevna um 44 vikur, sum er undirvísing í skúla.
+Stk. 2. Útbúgvingin skal geva næminginum grundleggjandi námsfrøðiligar førleikar til sjálvstøðugt og umsorganarfult at røkja og leggja til rættis mennandi og stimbrandi námsfrøðiligt virksemi, sum styðjar upp undir menningina, trivnaðin og læringina hjá børnum, ungum og vaksnum.

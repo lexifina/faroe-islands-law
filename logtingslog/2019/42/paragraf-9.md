@@ -1,0 +1,2 @@
+§ 9. [^1] Landsstýrisfólkið ásetur nærri reglur um útbúgvingarlongdina, eitt nú býtið millum ástøðiliga partin og starvsliga partin á heilsurøktaraútbúgvingini.
+Stk. 2. Útbúgvingin skal geva førleika til sjálvstøðugt at røkja og leggja til rættis samansettar virksemis- og umsorganaruppgávur, ið fevna um m.a. at samskipa og undirvísa, og sjálvstøðugt at røkja og leggja til rættis grundleggjandi heilsu- og sjúkrarøktaruppgávur.

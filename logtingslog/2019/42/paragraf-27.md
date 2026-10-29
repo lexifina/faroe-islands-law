@@ -1,0 +1,4 @@
+§ 27. Landsstýrismaðurin tilnevnir eftir tilmæli útbúgvingarráð til námsfrøðiligu hjálparaútbúgvingina við 7 limum umboðandi Føroya Pedagogfelag, Hjálparfólkafelagið, Kommunufelagið, Almannaverkið, Námsvísindadeildina á Fróðskaparsetri Føroya og eitt umboð fyri lærararnar, sum undirvísa á námsfrøðiligu hjálparútbúgvingini. Harumframt tilnevnir landsstýrismaðurin ein lim, sum er formaður og tiltakslim fyri formannin. Útbúgvingarráðið skal ráðgeva landsstýrismanninum í málum viðvíkjandi námsfrøðiligu hjálparaútbúgvingini.
+Stk. 2. Fyri hvønn ráðslim verður ein varalimur tilnevndur.
+Stk. 3. Ráðslimirnir skulu hava fakligt innlit í tey arbeiðsøki, sum námsfrøðiliga hjálparaútbúgvingin fevnir um.
+Stk. 4. Landsstýrismaðurin ásetir nærri reglur um Útbúgvingarráðið til námsfrøðiligu hjálparútbúgvingina, her ímillum um tilnevningarskeið, mannagongdir fyri ráðsarbeiðið, hvørji mál ráðið skal ummæla, útreiðsluheimild og skipan av skrivstovuhjálp.
