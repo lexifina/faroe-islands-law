@@ -1,0 +1,1 @@
+§ 9. Umboðsmaðurin hevur tagnarskyldu um tey viðurskifti, hann í virksemi sínum fær kunnleika til. Tagnarskyldan stendur við, eftir at umboðsmaðurin fer úr starvi, og fevnir eisini um starvsfólk á umboðsmansstovninum.
