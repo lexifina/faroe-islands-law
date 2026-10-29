@@ -1,0 +1,2 @@
+§ 1. Arbeiðsgevarin skal geva limunum í trygdarnevndini, trygdarbólkunum og dagliga leiðaranum av trygdararbeiðinum høvi til at nema sær neyðuga frálæru og vitan um spurningar innan trygd og heilsu.
+Stk. 2. Arbeiðseftirlitið setir, eftir tilmæli frá Arbeiðsumhvørvisráðnum, reglur ella rætningslinjur fyri snið, innihald og tíðarbrúk til slíka frálæru. Tað kann herundir ásetast, hvørji krøv skulu setast til skeiðhaldararnar.
