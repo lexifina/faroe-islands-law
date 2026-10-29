@@ -1,0 +1,2 @@
+§ 1. Frá lógarinnar § 6 verður gjørt tað undantak fyribils, at bygda(r)ráðsfundir bert eru almennir í Tórshavn og Klaksvík. Álagt verður øðrum kommunum við ikki minni enn 1000 íbúgvum við seinastu fólkateljing at útvega sær umstøður at halda almennar bygda(r)ráðsfundir skjótast gjørligt, og siga landsstýrinum frá, tá hesi viðurskifti eru í lagi. Í hesum kommunum skulu bygda(r)ráðsfundirnir vera almennir aftan á 1. januar 1975.
+Kommunur, sum hava minni enn 1000 íbúgvar, kunnu hava almennar bygda(r)ráðsfundir við góðkenning landsstýrisins, um umstøður eru til tess.

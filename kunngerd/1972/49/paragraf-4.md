@@ -1,0 +1,2 @@
+§ 4. Í teimum kommunum, sum sambært framman fyri standandi velja fíggjarnevnd á seinasta fundi í 1972, skal henda fíggjarnevnd fyri 1. oktober 1973 hava gjørt uppskot til ársfíggjarætlan fyri fíggjarárið 1974/75. Fíggjarætlanin í hesum kommunum fyri fíggjarárið 1973/74 og í teimum smærru kommununum eisini fyri eftirfylgjandi fíggjarár verður viðgjørd sambært reglunum í lógarinnar § 29, 2. petti.
+Í kommunum, har eingin fíggjarnevnd er, tekur bygda(r)ráðið sær av øllum teimum skyldum, sum við lógini verða lagdar á fíggjarnevndina.
