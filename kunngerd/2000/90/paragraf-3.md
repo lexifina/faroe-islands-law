@@ -1,0 +1,1 @@
+§ 3. Á smærri førum, har innrætting, nýtsla ella manningartal og samanseting hevur við sær, at hesar vaktarreglur ikki á fullan hátt kunnu haldast, skal í tann mun tað er møguligt, tó verða gingið eftir teimum. Uttanfyri havnir ella vard akkerspláss skal tó altíð vera maður á kagi á dekki ella í stýrihúsi.

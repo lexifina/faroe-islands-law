@@ -1,0 +1,3 @@
+§ 1. Tað áliggur skiparanum á hvørjum skipi at síggja til, at tað uttanfyri havnir ella vard akkerspláss til eina og hvørja tíð verður hildin dygg vakt á brúnni og í maskinrúminum og harumframt á skipum, sum eru útgjørd við fyrisettari radiostøð, eisini dygg lurtivakt.
+Stk. 2. Tað áliggur skiparanum á hvørjum skipi undantikið stuttleikaførum at síggja til, at hildin verður tann fyri skip og manning neyðuga vakt, tá skip er bundið við bryggju ella liggur til akkers á vardum akkersplássi.
+Stk. 3. Tá vaktin verður løgd til rættis, skulu reglurnar í fylgiskjali nr. 1 til hesa kunngerð um vaktarskipanir og grundreglur fyri vaktarhaldi verða hildnar. Í hesum sambandi skal atlit havast at vegleiðingini í fylgiskjali nr. 2 til kunngerðina.

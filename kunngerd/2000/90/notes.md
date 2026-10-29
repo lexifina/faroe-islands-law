@@ -1,0 +1,1 @@
+[^1]: Minking av vatndýpi undir skipi, og sum hendir, tá silgt verður, har grunt er. Hetta kemst partvís av, at skipið sum heild fær størri djúpd og lutvíst av broyttum floti. Hetta árin økist á grunnum vatni og minkar, tekur tú frá og siglir hóvligari.

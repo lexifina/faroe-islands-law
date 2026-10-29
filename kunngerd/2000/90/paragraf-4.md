@@ -1,0 +1,1 @@
+§ 4. Á skipum, sum eru 20 bruttotons til støddar ella størri og á skipum, har tað eftir aðrari lóggávu er ásett krav um tað, má bert tann standa á kagi, ið hevur staðið sjónar- og hoyrnarroynd fyri siglandi.

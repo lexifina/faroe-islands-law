@@ -1,0 +1,1 @@
+§ 2. Vaktarskipanin skal vera løgd til rættis soleiðis, at virkisføri vakthavandi yvirmanna ella undirmanna ikki er skert orsakað av møði. Tænastan skal vera soleiðis løgd til rættis, at teir, ið skulu hava fyrstu vaktina, tá ið ferðin byrjar og teir, ið síðani skulu loysa av, hava fingið nøktandi hvíld og annars eru skikkaðir til at ganga vakt.
