@@ -1,0 +1,2 @@
+§ 3. Arbeiðsgevarin skal kunna seg um viðurskiftini á teimum støðum, har heintan av burturkasti fer fram og skal skipa arbeiðið hareftir. Í tí sambandi skal tað vera møguligt hjá teimum, sum arbeiða við heintan av burturkasti, at fáa frálæru um arbeiðslig viðurskifti.
+Stk. 2. Trygdarumboð skal luttaka í ráðlegging um skipan av arbeiðinum. Har eingin trygdarskipan er, skal arbeiðsfólkið sjálvt luttaka í ráðleggingini.

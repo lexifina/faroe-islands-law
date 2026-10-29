@@ -1,0 +1,1 @@
+§ 17. Eru tekniskar orsøkir, ella eru serlig húsaviðirskifti, t.d. friðaðir bygningar, bygningar í fleiri hæddum e.l. sum gera tað ómøguligt, at ásetingarnar í § 15 kunnu fylgjast, skal arbeiðseftirlitið hjá Heilsufrøðiligu Starvsstovuni í samráð við Arbeiðsumhvørvisráðið gera leiðreglur um loysnir, sum kunnu brúkast í staðin.

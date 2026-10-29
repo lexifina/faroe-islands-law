@@ -1,0 +1,1 @@
+§ 8. Í sambandi við bygging av sethúsum, virkjum og vinnubygningum, skúlum, barnagørðum o.l. skal arbeiðsgevarin ráðgeva arbeiðsfólki um heintan og burturbeining av burturkasti, sum er umfatað av § 1 soleiðis, at burturkastið kann heintast og burturbeinast uttan vanda fyri skaða á likam ella skaðiligum árini á heilsuna hjá arbeiðsfólkinum.

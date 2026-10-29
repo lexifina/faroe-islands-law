@@ -1,0 +1,1 @@
+§ 20. Um ikki ber til at brúka hentleikar, nevndir í § 19 orsakað av arbeiðsumstøðunum, skal arbeiðsgevarin tryggja sær, at arbeiðsfólkið hevur atgongd til teir í § 18 nevndu hentleikar á annan eins líka tryggan hátt.
