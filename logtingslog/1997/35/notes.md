@@ -1,0 +1,13 @@
+[^1]: Broytt við løgtingslóg nr. 52 frá 29. mai 2024, har § 2 ljóðar soleiðis: “Henda løgtingslóg kemur í gildi dagin eftir, at hon er kunngjørd, og hevur virknað frá 1. januar 2024.”
+[^2]: Broytt við løgtingslóg nr. 135 frá 19. desember 2014, har § 2 ljóðar soleiðis: “Henda løgtingslóg kemur í gildi 1. januar 2015 og hevur virknað fyri útgjaldið av pensjón fyri januar mánað 2015.”
+[^3]: Broytt við løgtingslóg nr. 189 frá 21. desember 2018, har § 2 ljóðar soleiðis: “Stk. 1. Henda løgtingslóg kemur í gildi dagin eftir, at hon er kunngjørd og hevur virknað fyri útgjald frá og við januar 2019. Stk. 2. § 1, nr. 1 og 2 eru ikki galdandi fyri samlivandi pensjonistar, sum áðrenn 1. januar 2019 hava fingið staðfest rætt til hvør sína viðbót.”
+[^4]: Broytt við løgtingslóg nr. 116 frá 9. desember 2024, har § 2 ljóðar soleiðis: “Stk. 1. Henda løgtingslóg kemur í gildi dagin eftir, at hon er kunngjørd, og hevur virknað fyri útgjalding av veitingum frá og við januar 2025. Stk. 2. Persónur, ið hevur fingið játtað viðbót til ávísar pensjónistar, áðrenn henda løgtingslóg fær virknað, fær veiting eftir higartil galdandi reglum.”
+[^5]: Broytt við løgtingslóg nr. 68 frá 30. apríl 2018, har § 2 ljóðar soleiðis: “Henda løgtingslóg kemur í gildi 1. desember 2019 og er galdandi fyri útgjald av veitingum frá og við januar 2020.”
+[^6]: Broytt við løgtingslóg nr. 10 frá 9. februar 2001, har § 2 í ljóðar soleiðis: “Henda løgtingslóg kemur í gildi dagin eftir, at hon er kunngjørd, og hevur virknað frá og við útgjaldingini av veitingum fyri februar mánað 2001.”
+[^7]: Broytt við løgtingslóg nr. 58 frá 10. mai 2000, har § 2 løgtingslóg ljóðar soleiðis: “Henda løgtingslóg kemur í gildi dagin eftir, at hon er kunngjørd, og hevur virknað frá 1. januar 2000.”
+[^8]: Broytt við løgtingslóg nr. 28 frá 13. mars 2000, har § 2 ljóðar soleiðis: “Henda løgtingslóg kemur í gildi dagin eftir, at hon er kunngjørd, og hevur virknað frá 1. januar 2000.”
+[^9]: Broytt við løgtingslóg nr. 65 frá 15. mai 2012, har § 2 ljóðar soleiðis: “Henda løgtingslóg kemur í gildi 1. januar 2013.”
+[^10]: Broytt við løgtingslóg nr. 115 frá 24. november 2016, har § 2 ljóðar soleiðis: “Henda løgtingslóg kemur í gildi 1. januar 2017 og hevur virknað frá útgjaldskeiðinum fyri apríl 2017.”
+[^11]: Broytt við løgtingslóg nr. 104 frá 11. november 2010, har § 2 ljóðar soleiðis: “Henda løgtingslóg kemur í gildi 1. jan. 2011.”
+[^12]: Broytt við løgtingslóg nr. 48 frá 6. mai 2016.
+[^13]: Broytt við løgtingslóg nr. 159 frá 10. desember 2021, har § 43 ljóðar soleiðis: “Henda løgtingslóg kemur í gildi 1. januar 2022. Samstundis fer løgtingslóg nr. 47 frá 23. mars 1993 um kærunevnd í almanna-, familju- og heilsumálum úr gildi.”
