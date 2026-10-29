@@ -1,0 +1,1 @@
+§ 3. Stýrið endurskoðar regluliga stuðulsskipanirnar sambært § 1, stk. 1, og ger eftir tørvi uppskot til nýggjar ella broyttar stuðulsskipanir, sum skulu góðkennast av landsstýrismanninum í vinnumálum, áðrenn tær koma í gildi.

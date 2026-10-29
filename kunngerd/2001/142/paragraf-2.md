@@ -1,0 +1,1 @@
+§ 2. [^1] Stuðul kann bert verða veittur til verkætlanir ellar partar av verkætlanum, sum ikki eru settar í gongd, tá stuðulin verður søktur. Stýrið kann í serstøkum førum gera undantak frá kravinum í 1. pkt.

@@ -1,0 +1,3 @@
+§ 4. Umsøkjari skal upplýsa, um annar almennur stuðul er veittur ella verður søktur í sambandi við verkætlanina og til hvørjar partar av verkætlanini. Verkætlanir ella partar av verkætlanum, sum frammanundan hava fingið stuðul kunnu ikki fáa stuðul úr Vinnuframagrunninum.
+Stk. 2. Stuðulin er treytaður av, at umsøkjarin fylgir egnum ætlanum fyri verkætlanina. Um broyttar fortreytir ella annað gera tað neyðugt at víkja frá hesum ætlanum, skal grunnurin hava fráboðan um hetta frammanundan, og umsókn sendast grunninum um broyting í verkætlanini og møguliga broyting í játtanini.
+Stk. 3. Tað áliggur stuðulsmóttakaranum at kunna Vinnuframagrunnin ávegis um gongdina í verkætlanum, sum stuðul er játtaður til.
