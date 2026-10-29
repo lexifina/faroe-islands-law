@@ -1,0 +1,1 @@
+§ 5. Útreiðslur til umvæling, møguliga endurnýggjan av einum hjálpitóli, v.m., sum nevnt er í § 4, kunnu verða goldnar um so er, at hjálpitólið v.m. hevur fingið skaða ella er oyðilagt sum fylgja av arbeiðinum ella teimum umstøðum, arbeiðið fer fram undir.

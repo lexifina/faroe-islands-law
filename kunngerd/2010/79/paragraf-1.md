@@ -1,0 +1,8 @@
+§ 1. Útreiðslur í sambandi við sjúkuviðgerð og uppvenjing av skadda, umfamt útreiðslur til útvegan ella umvæling av protesum, brillum og øðrum hjálpitólum, verða goldnar eftir reglunum í hesi kunngerð.
+Stk. 2. Tá tað í hesi kunngerð eru knýttir rættarvirknaðir til ta umstøðu, at málið er undir viðgerð, galda hesir:
+1) frá fráboðanini av skaðanum til avvarðandi tryggingarfelagið ella Vanlukkutryggingarráðið, til ráðið tekur avgerð um mein og mist vinnuføri,
+2) um so er, at Vanlukkutryggingarráðið finnur, at grundarlag er fyri uppafturtøku, sbr. lógarinnar § 44, stk. 4, frá áheitanini hjá skadda um uppafturtøku, til ráðið tekur nýggja avgerð,
+3) frá dagfestingini av fráboðanini hjá Vanlukkutryggingarráðnum um uppafturtøku av ráðsins ávum, tá tað ikki við tí fyrru avgerðini er ásett ein dagur fyri uppafturtøkuni, og til ráðið tekur nýggja avgerð, og
+4) frá tí degi, sum Vanlukkutryggingaráðið áður hevur ásett fyri uppafturtøku av málinum, tá uppafturtøkan verður gjørd av ráðsins ávum, til ráðið tekur nýggja avgerð.
+Stk. 3. Hevur skaddi biðið um uppafturtøku av einum máli, har Vanlukkutryggingarráðið hevur boðað tryggjaða frá, at ein fráboðaður tilburður ikki hevur havt avleiðingar, sum geva rætt til veitingar sambært lógini, sbr. lógarinnar § 32, skal málið metast at vera undir viðgerð frá fráboðanini hjá ráðnum um, at málið er endað, og til ráðið tekur nýggja avgerð.
+Stk. 4. Verður ein avgerð kærd til Ankestyrelsen, sum hareftir vísir málið til nýggja viðgerð, skal málið metast at vera undir viðgerð frá avgerðini hjá Ankestyrelsen, og til ráðið tekur nýggja avgerð um at vísa málið til nýggja viðgerð.

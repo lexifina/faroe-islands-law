@@ -1,0 +1,5 @@
+§ 3. Útreiðslur í sambandi við neyðuga sjúkuviðgerð/uppvenjing, sum er sett í verk áðrenn ein arbeiðsskaði er fráboðaður, kunnu verða goldnar, um so er, at skaðin verður viðurkendur og treytirnar eftir § 2 annars eru loknar.
+Stk. 2. Útreiðslur í sambandi við sjúkuviðgerð/uppvenjing, sum fer fram eftir viðgerðina av málinum, kunnu, undir tí fyritreyt, at treytirnar eftir § 2 annars eru loknar, verða goldnar:
+1) um so er at sjúkuviðgerðin/uppvenjingin ella fullføranin av henni má útsetast av læknaligum ávum og er góðkend av Vanlukkutryggingarráðnum undir viðgerðini av málinum, ella
+2) um so er, at eitt frammanundan tíðarliga avmarkað tal av framhaldandi sjúkuviðgerðum/uppvenjingartilgongdum, sum fyrst kunnu endast eftir viðgerðina av málinum, kunnu skjalprógvast at vera settar í verk undir viðgerðini av málinum, ella
+3) um so er, at ein frammanundan tíðarliga avmarkað sjúkuviðgerð/uppvenjing, sum fyrst eru settar í verk eftir viðgerðina av málinum, kunnu skjalprógvast at vera bindandi avtalaðar undir viðgerðini av málinum.
