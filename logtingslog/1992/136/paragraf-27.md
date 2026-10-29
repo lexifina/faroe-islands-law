@@ -1,0 +1,12 @@
+## X. Avgjald av innflutningi úr útlondum.
+§ 27. Vørur, ið verða innfluttar úr útlondum, eru avgjaldsskyldugar í sambandi við innflutningin. Avgjaldið verður avroknað sambært reglunum í 7. kapitli í løgtingslóg um toll, ið er galdandi samsvarandi sambært hesi lóg.
+2. stk. [^33] Avgjaldið er 25% av einum virði, ið er ásett samsvarandi reglunum um virðið á virðistollskyldugum vørum, møguliga við tolli og øðrum avgjaldi løgdum aftrat, sum skulu gjaldast í sambandi við innflutning, undantikið avgjaldið smb. hesi lóg.
+3. stk. [^53] Avgjaldsfrítøka kann játtast við innflutning av vørum í sama mun og undir somu treytum sum ásettar eru um frítøku sambært tollógini §§ 6, 7, 8 a og 9.
+4. stk. [^14] Flogfør og skip upp á 20 GT og meira, undantikið sportsflogfør og lystfør, kunnu innflytast avgjaldsfrítt.
+5. stk. Tíðindabløð kunnu innflytast avgjaldsfrítt. Útlendsk tíðarrit, ið koma beinleiðis til haldaran, kunnu eisini innflytast avgjaldsfrítt.
+6. stk. Listamenn kunnu avgjaldsfrítt innflyta egin listaverk av tí slagnum, ið hoyrir undir vøruflokk 9701-9703 í toll- og vøruskránni.
+7. stk. [^3] [^15] Í samráð við Føroya Kærustovn, kann landsstýrið, undir heilt serligum umstøðum loyva avgjaldsfríum innflutningi av vørum í øðrum førum enn teimum, sum nevnd eru í 3-6 stk.
+8. stk. [^33] [^8] Vørur, ið fyribils verða útfluttar við tí fyri eyga at endurinnflyta tær eftir tilevning, virking, innballing, umvæling ella reingerð, kunnu av TAKS sambært nærri ásettum treytum loyvast at verða avgjaldsavgreiddar við 25% av útreiðslunum, í hesum eru sendingar- og tryggingarútreiðslur v.m., við tilevningina, sum er gjørd uttan fyri landið íroknað møguligan toll og aðrar útreiðslur sum nevnt í 2. stk.
+9. stk.[^41] Fiskireiðskapur, agn, ísur, olja, proviantur, salt og pakkitilfar til fiskifør, sum reka vinnuligan fiskiskap kunnu innflyta avgjaldsfrítt.
+10. stk. [^54] [^38] Innflutningur av fiski, skeljadýrum, lindýrum og øðrum ryggleysum vatndýrum (sbr. 3. kap. í toll- og vøruskránni) og innflutningur av ídnaðarfiski (sbr. vørunummar 0511.91.10 og vørunummar 0511.91.90 í Toll- og vøruskránni) til útflutningsfyritøkur, hvørs søla beinleiðis ella óbeinleiðis í høvusheitum er til útlond, kann fara fram, uttan at meirvirðisgjald verður at rinda í samband við innflutningin.
+11. stk . [^55] Vørur kunnu verða innfluttar avgjaldsfrítt, um so er, at samsvarandi latingar her í landinum av tílíkum vørum framdar av avgjaldsskyldugum virkjum høvdu verið frítiknar fyri avgjald.

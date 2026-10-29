@@ -1,0 +1,2 @@
+§ 19. Skrásett virki og virki, ið sambært § 4, 1. stk. eru frítikin frá avgjaldsskyldu, skulu goyma roknskapartilfarið, herímillum fakturar, fakturatvítøk og kassastrimlar v.m., viðvíkjandi keypi og sølu av vørum og avgjaldsskyldugum tænastum 5 ár eftir endan á roknskaparárinum.
+2. stk. Skrásett virki skulu eina ferð um árið grundað á eina uppteljing av vørugoymsluni hjá virkinum gera uppgerð yvir virðið á goymsluni. Uppgerðin skal goymast 5 ár eftir endan á roknskaparárinum.

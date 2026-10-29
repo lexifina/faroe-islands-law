@@ -1,0 +1,5 @@
+## IV. Vavið á avgjaldsskyldugari sølu.
+§ 11. Avgjaldsskyldug søla hjá skrásettum virkjum fevnir um latingar móti gjalding og vørur og avgjaldsskyldugar tænastur, sum eru framleiddar ella umboðaðar á virkinum, og sum verða tiknar í nýtslu av handhavanum á virkinum. Harumframt fevnir avgjaldsskyldug søla um vørur og avgjaldsskyldugar tænastur, ið vera tiknar í nýtslu til endamál, sum ikki viðvíkja sølu av vørum og avgjaldsskyldugum tænastum hjá virkinum, ella til endamál sum nevnd í § 16, 3. stk.
+2. stk. Avgjaldsskyldug søla á ríkis-, lands- ella kommunalum stovnum av tí slagnum, sum er nevnt í § 3, 1. stk., punkt d, fevnir einans um latingar móti gjalding til annan enn viðkomandi ríkis-, lands- ella kommunalan stovn, ella tær kommunur, sum eru partaeigarar í stovninum.
+3. stk. Við í avgjaldsskylduga sølu skal roknast søla v.m. av vørum, sum virkið hevur móttikið í umboðssølu ella søluumboði.
+4. stk. Søla v.m. av maskinum og øðrum rakstarargøgnum hjá virkinum verður roknað við í avgjaldsskylduga sølu. Sama er galdandi fyri vørugoymslu, maskinur og onnur rakstrargøgn, tá virkið frámeldar frá skráseting.

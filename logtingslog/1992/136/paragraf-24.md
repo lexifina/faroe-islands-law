@@ -1,0 +1,3 @@
+§ 24. Er inngangandi avgjaldið hjá einum virki fyri eitt avgjaldstíðarskeið størri enn útgangandi avgjaldið, verður avgjaldsyvirskotið útgoldið virkinum.
+2. stk. [^8] Er uppgerðin rættstundis móttikin, fer útgjalding sambært 1. stk. fram, í seinasta lagi 3 vikur eftir at avgjaldsuppgerðin fyri viðkomandi tíðarskeið er móttikin. Kann TAKS vegna viðurskiftini hjá virkinum ikki hava eftirlit við uppgerðini, verður útgjaldingarfreistin avbrotin, til viðurskiftini hjá virkinum ikki longur forða eftirliti.
+3. stk. Útgjalding fer bert fram, um avgjaldsuppgerð viðvíkjandi undanfarnum avgjaldstíðarskeiðum er móttikin. Krav um avgjald (og møguligar rentur) fyri hesi tíðarskeið verða mótroknað við útgjalding, hóast avgjaldskravið ikki er fallið til gjaldingar.

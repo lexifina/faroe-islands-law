@@ -1,0 +1,6 @@
+§ 5. [^3] [^7] [^29] [^8] Tann, sum sambært §§ 3-4 skal rinda avgjald, skal fráboða virki sítt til skrásetingar hjá TAKS. Hetta er eisini galdandi fyri útlendsk virki. Hevur eitt virki ikki deild ella tílíkt her á landi, skal tað skrásetast við persóni, ið er búsitandi her á landi, ella við virki, sum hevur sølustað her á landi. Síðsta punktum er ikki galdandi í tann mun annað er ásett í sáttmála frá 31. august 2005 millum stjórn Íslands øðrumegin og stjórn Danmarkar og Føroya Landstýri hinumegin (Hoyvíkssáttmálanum).
+2. stk. Hevur viðkomandi fleiri virki, skulu hesi fráboðast til skrásetingar undir einum. Verður roknskapur førdur fyri hvørt virki sær, kunnu virkini kortini eftir áheitan verða skrásett hvørt sær.
+3. stk. Skrásetingarskyldug virki, sum ikki hava sama ánara, kunnu eftir áheitan verða skrásett undir einum.
+4. stk. Virki, sum verða skrásett undir einum, eru at rokna sum eitt virki.
+5. stk. [^30] [^31] Fráboðan til skrásetingar skal fara fram í seinasta lagi 8 dagar, áðrenn virksemi byrjar, jb. tó § 23 b, stk. 2. Broytingar í ánaraviðurskiftum, leiðsluábyrgd ella staði skulu fráboðast, áðrenn 8 dagar eftir, at broytingin er farin fram.
+6. stk. Skrásett virki fáa útflýggjað prógv um skráseting.

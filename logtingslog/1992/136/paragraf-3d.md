@@ -1,0 +1,10 @@
+§ 3 d.[^25] [^21] [^26] Tey, sum gera íløgur í góðkendar hitapumpuskipanir til upphiting og heitt vatn í sethúsum og bygningum, kunnu eftir umsókn fáa endurgoldið part av meirvirðisgjaldinum av íløgukostnaðinum til hitapumpu, útbúnað og arbeiðsløn. Í 2024 verður alt meirvirðisgjaldið endurgoldið. Í 2025 verða 75% av meirvirðisgjaldinum endurgoldin, í 2026 verða 50% av meirvirðisgjaldinum endurgoldin, og í 2027 verða 25% av meirvirðisgjaldinum endurgoldin. Í 2028 og fylgjandi ár verður meirvirðisgjald ikki endurgoldið. Fyri at koma undir endurgjaldsstigið eitt ávíst ár, er tað ein treyt, at arbeiðið er gjørt og goldið tað árið.
+Stk. 2. Meirvirðisgjald verður einans endurrindað fyri hitapumpuna og fyri arbeiði og útbúnað, ið skal til fyri at taka orkuna úr umhvørvinum. Meirvirðisgjaldið verður ikki endurrindað fyri útbúnað, ið gongur frá hitapumpuni til hitaskipanina inni í sethúsi ella bygningi.
+Stk. 3.[^27] [^21] [^26] Fyri at fáa endurrindað meirvirðisgjaldið sbrt. stk. 1, skal:
+1) talan vera um sethús ella bygningar, har hitapumpa letur í minsta lagi 80% av samlaðu nýtsluni til upphiting og heitt vatn, og restin av nýtsluni eisini er grundað á el,
+2) móttøkuváttan frá IRF ella Kommunalu Brennistøðini um burturbeining av oljufýrsútbúnaði fylgja við umsóknini, tá talan er um uppsetan av hitapumpuskipan í hús og bygningar, sum áður hava brúkt oljufýrsútbúnað til upphiting.
+3) umsóknin á serskildum oyðublaði við kvittanum fyri goldnu íløguútreiðslurnar til hitapumpu, útbúna og løn, umframt váttan upp á treytirnar, settar í nr. 1), 5) og stk. 4, verða góðkendar og váttaðar av Umhvørvisstovuni,
+4) samlaðu útreiðslurnar verða hildnar í seinasta lagi 31. desember 2027,
+5) góðkend umsókn um endurrindan av meirvirðisgjaldi vera TAKS í hendi í seinasta lagi 31. mars 2028 og
+6) arbeiðið at installera hitapumpuskipanina vera gjørt av góðkendum installatøri, og um talan er um jarðhitaskipan, skal arbeiðið harumframt vera gjørt av góðkendum brunnborara, sbrt. løgtingslóg um el riknar hitapumpuskipanir.
+Stk. 4. Meirvirðisgjald verður bert endurrindað fyri hitapumpur, sum eru góðkendar sbrt. Bygningskunngerðini.

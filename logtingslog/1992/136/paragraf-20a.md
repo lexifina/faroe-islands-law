@@ -1,0 +1,1 @@
+§ 20 a. [^49] Freistin at boða TAKS frá støddini á útgangandi og inngangandi avgjaldinum og støddini av søluni, sbrt § 12, stk. 1-4, ið ikki skal roknast við í avgjaldskyldugu søluna fyri 1. ársfjórðing 2020, og freistin fyri avrokning av 1. avgjaldstíðarskeið 2020 er í seinasta lagi 15. november 2020.

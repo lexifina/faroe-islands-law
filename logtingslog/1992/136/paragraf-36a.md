@@ -1,0 +1,2 @@
+§ 36 a. [^41] Landsstýrið ásetur reglur um, at avgjald kann afturrindast avgjaldsskyldugum virkjum, ið ikki hava bústað e.t. her á landi, sum er goldið her fyri vørur og avgjaldsskyldugar tænastur til vinnuliga nýtslu hjá virkjum her á landi.
+Stk. 2. Afturrindan av avgjaldi sambært stk. 1 kann bert verða veitt fyri innkeyp av tí slagnum, sum skrásett virki kunnu rokna við í inngangandi avgjald sambært reglunum í §§ 15 og 16.
