@@ -1,0 +1,2 @@
+§ 1. Adresseraður postur, ið er innlatin til flutning hjá postvinnurekandi, kann í førum, har tað ikki hevur verið gjørligt at finna móttakaran ella sendaran, uttan rættarúrskurð, verða latin upp av viðkomandi postvinnurekandi.
+Stk. 2. Adresseraður postur kann somuleiðis, uttan rættarúrskurð, verða latin upp, tá tað verður gjørt fyri at staðfesta møguligan skaða á sendingina, meðan móttakarin er hjástaddur ella gevur sítt samtykki.

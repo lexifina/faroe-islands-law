@@ -1,0 +1,3 @@
+§ 2. Óavgreiddur postur, sum nevndur í § 1. kann einans latast upp og kannast av persónum, ið serliga eru útnevnd til hetta av leiðsluni hjá tí postvinnurekandi.
+Stk. 2. Teir í stk. 1 nevndu persónar skulu skriva undir tagnarskylduváttan, har viðkomandi lovar ikki við vilja at lesa annað í upplatnum posti enn navn og adressu hjá móttakara ella sendara. Viðkomandi lovar harumframt, at tey ikki fráboða óviðkomandi nakað, sum viðkomandi hevur fingið kunnleika til í hesum sambandi. Posteftirlitið ger eina standardútgávu til eina tagnarskylduváttan.
+Stk. 3. Tann í stk. 2 nevnda váttan skal verða goymd av tí postvinnurekandi í 7 ár eftir, at viðkomandi er givin í starvi hjá tí postvinnurekandi, ella at fulltrúin til at lata upp óavgreiddan post er tikin aftur.
