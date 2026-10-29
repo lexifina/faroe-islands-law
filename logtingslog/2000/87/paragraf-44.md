@@ -1,0 +1,2 @@
+§ 44. Føst ogn hjá kommununi má ikki seljast, uttan so, at ognin frammanundan hevur verið boðin út alment. Landsstýrismaðurin ásetir nærri reglur um mannagongdina við almennum útboði umframt reglur um, at ávísar ognir kunnu undantakast almennum útboði.
+Stk. 2. Skjøl viðvíkjandi keypi og sølu av fastari ogn o.t. skulu verða undirskrivað av borgarstjóranum og einum persóni, sum kommunustýrið hevur heimilað til tess.

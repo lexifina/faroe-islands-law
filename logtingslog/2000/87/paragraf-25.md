@@ -1,0 +1,2 @@
+§ 25. Borgarstjórin ansar eftir, at allar samtyktir á kommunustýrisfundi verða førdar í gerðabók, sum við fundarlok skal verða lisin upp og undirskrivað av øllum teimum luttakandi kommunustýrislimunum.
+Stk. 2. Hevur kommunustýrislimur serstøðu, kann hann krevja, at serstøða hansara í stuttum verður viðmerkt í gerðabókina. Tá mál, har kommunustýrislimur hevur serstøðu sambært gerðabókini, verður sent øðrum myndugleikum, kann kommunustýrislimur krevja, at myndugleikin verður kunnaður um tað, ið stendur í gerðabókini.

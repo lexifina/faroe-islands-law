@@ -1,0 +1,2 @@
+§ 24. Kemur tiltakslimur í staðin fyri borgarstjóran, tekur varaborgarstjórin við uttan so, at kommunustýrið skal velja nýggjan borgarstjóra, sbr. stk 2.
+Stk. 2. Er tiltakslimur komin inn fyri borgarstjóra ella varaborgarstjóra eftir reglunum í § 18, stk. 2, men sannlíkt er, at fráveran varir longri enn 2 mánaðir, skal kommunustýrið fyribils velja borgarstjóra ella varaborgarstjóra í teirra stað eftir reglunum í ávíkavist § 6, stk. 2 og stk. 3. Ásetingin í § 23, stk. 3 er somuleiðis galdandi.

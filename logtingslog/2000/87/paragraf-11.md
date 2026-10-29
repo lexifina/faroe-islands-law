@@ -1,0 +1,2 @@
+§ 11. Eingin, sum situr í starvi hjá kommununi, má vera limur í einari nevnd, sum hevur við hansara starvsviðurskifti at gera.
+Stk. 2. Ein nevndarlimur má ikki fyri viðurlag gera nakað arbeiði fyri tann partin av kommunalu fyrisitingini, ið verður stjórnað av avvarandi nevnd, uttan so at arbeiðið er boðið út alment, ella umstøðurnar serstakliga ráða til slíkt, og í seinra føri skal kommunustýrið hava samtykt hetta frammanundan.

@@ -1,0 +1,3 @@
+§ 31. Nevndarformaðurin ansar eftir, at farið verður fram eftir nevndarsamtyktunum. Hann ansar eftir, at allar útreiðslur og inntøkur hava neyðuga játtan.
+Stk. 2. Nevndarformaður kann taka avgerð í málum, ið ikki tola at bíða, ella har ongin orsøk er til iva. Tó skal borgarstjórin kunnast, áðrenn avgerð verður tikin í málum, ið ikki tola at bíða, uttan so er, at tað snýr seg um avgerðir, sum við lóg eru latnar nevndini.
+Stk. 3. Ein og hvør nevndarlimur kann leggja mál um virksemi hjá nevndarformanninum fyri nevndina. Formaðurin skal eftir áheitan geva nevndini allar upplýsingar, eins og hann í øllum lutum skal lýða tær avgerðir, nevndin tekur.

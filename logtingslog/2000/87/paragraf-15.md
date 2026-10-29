@@ -1,0 +1,2 @@
+§ 15. Kommunustýrislimur kann seta fram uppskot og spyrja um øll kommunal viðurskifti. Nevndir og borgarstjóri skulu geva kommunustýrinum allar kravdar upplýsingar, og skulu annars - við teimum avmarkingum, ið fylgja av lóggávuni – fylgja avgerðum kommunustýrisins.
+Stk. 2. Ein og hvør kommunustýrislimur, ið ikki er nevndarlimur, kann krevja at fáa sent dagsskráir, úrrit úr gerðabókum, málstilfar o.a., sum sent verður nevndarlimunum.

@@ -1,0 +1,2 @@
+§ 34. Nevndarformaðurin ansar eftir, at allar nevndarsamtyktir verða førdar í gerðabók, sum við fundarlok skal verða lisin upp og undirskrivað av øllum teimum luttakandi nevndarlimunum.
+Stk. 2. Hevur nevndarlimur serstøðu, kann hann krevja, at serstøða hansara í stuttum verður viðmerkt í gerðabókina. Tá mál, har nevndarlimur hevur serstøðu sambært gerðabókini, verður sent øðrum myndugleikum, kann nevndarlimurin krevja, at myndugleikin verður kunnaður um tað, ið stendur í gerðabókini.

@@ -1,0 +1,2 @@
+§ 43. Til lántøku, veðsetan, nýtslu av rakstraravlopi og tílíkum krevst samtykt frá kommunustýrinum.
+Stk. 2. [^3] Er nettoskuldin meira enn árliga inntøkugrundarlagið hjá kommununi frá persónsskatti og flytingum frá landinum, krevst loyvi frá landsstýrismanninum til lántøku og til broytingar í lánitreytunum. Landsstýrismaðurin ásetur nærri reglur um, hvussu inntøkugrundarlagið og nettoskuldin skal roknast.

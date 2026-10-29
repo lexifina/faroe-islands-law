@@ -1,0 +1,2 @@
+§ 13. Kommunustýrið hevur vanliga fund eina ferð um mánaðin. Nærri reglur um vanligar fundir skulu vera ásettar í fundarskipanini. Almannakunngjørt skal verða við ársbyrjan, nær og hvar vanligir kommunustýrisfundir verða hildnir.
+Stk. 2. Kommunustýrið hevur eykafund, tá ið borgarstjórin heldur tað vera neyðugt, ella um 1/3 av kommunustýrislimunum krevja tað. Borgarstjórin ger av, nær og hvar eykafundir verða hildnir. Avgerð um eykafund skal verða almannakunngjørd, um høvi er til tess.

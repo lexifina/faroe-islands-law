@@ -1,0 +1,1 @@
+§ 40. Tá fíggjarætlanin er endaliga samtykt, verður eisini útskrivingin av kommunuskattinum fyri komandi árið samtykt við fíggjarætlanini sum grundarlag. Samtykta fíggjarætlanin er á sama hátt bindandi fyri kommunalu umsitingina komandi fíggjarárið.

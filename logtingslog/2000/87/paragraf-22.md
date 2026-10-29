@@ -1,0 +1,6 @@
+§ 22. Nærri reglur um virksemi borgarstjórans verða ásettar í kommunustýrisskipanini.
+Stk. 2. Ber borgarstjórin seg undan at fremja tær uppgávur, ið annaðhvørt eftir hesi lóg ella kommunustýrisskipanini eru latnar honum at umsita, kann kommunustýrið tilnevna ein annan kommunustýrislim at røkja hansara uppgávur. Kommunustýrið kann í álvarsomum føri, ella tá borgarstjórin ferð eftir ferð ber seg undan at fremja uppgávur sínar, fyribils velja ein annan kommunustýrislim sum virkandi borgarstjóra.
+Stk. 3. Avgerðin sambært stk. 2, 2. pkt., skal alt fyri eitt verða latin landsstýrismanninum til staðfestingar.
+Stk. 4. Staðfestir landsstýrismaðurin eina avgerð hjá kommunustýrinum sambært stk. 3, er borgarstjórin undantikin starvi sínum frá hesum mundi.
+Stk. 5. Hevur landsstýrismaðurin staðfest eina avgerð sambært stk. 4, skal kommunustýrið alt fyri eitt leggja málið inn fyri dómsvaldið til rættarroynd fyri at royna, um treytin í stk. 2, 2. pkt., er til staðar. Kemur dómsvaldið til ta niðurstøðu, at treytin í stk. 2, 2. pkt., er til staðar, skal borgarstjórin víkja sæti.
+Stk. 6. Landsstýrismaðurin kann í stk. 2 nevnda føri, eftir áheitan frá kommunustýrinum, gera av, at lønin hjá borgarstjóranum skal verða skerd við einum fjórðingi, eini helvt, ella at hon í versta føri fellur burtur.

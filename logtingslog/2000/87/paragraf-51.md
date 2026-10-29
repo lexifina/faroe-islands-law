@@ -1,0 +1,2 @@
+§ 51. Kommunusamstørv, ið hava við sær avmarkingar í teimum lógarásettu heimildunum, sum kommunustýrið hevur eftir hesi lóg, kunnu bert setast á stovn, um so er, at landsstýrismaðurin góðkennir eina tílíka samstarvsavtalu.
+Stk. 2. Hevur landsstýrismaðurin góðkent eina kommunusamstarvsavtalu eftir stk. 1, skal hann eisini góðkenna treytirnar í sambandi við avtaluslit. Er ósemja um treytirnar, verða tær ásettar av landsstýrismanninum.

@@ -1,0 +1,3 @@
+§ 2. Við meirilutavali í hesi lóg verður sipað til ein valhátt, har tað valevni, ið fær meir enn helmingin av atkvøðunum frá teimum, ið eru á fundi, er valt.
+Stk. 2. Fæst tílíkur meiriluti ikki við fyrstu atkvøðugreiðslu, verður atkvøtt umaftur. Fær heldur eingin meiriluta hesa ferð, verður bundið val ímillum tvey teirra, ið fingu flestar atkvøður. Stendur á jøvnum hjá fleiri enn tveimum valevnum, verður lutakast um, hvørji tey tvey skulu verða, sum endalig atkvøðugreiðsla tá verður um.
+Stk. 3. Fær hvørgin teirra meiriluta hesa ferð, verður lutakast, sum borgarstjórin skipar fyri. Er borgarstjóri ikki valdur, skipar fyrst valdi limurin fyri hesum lutakasti.
