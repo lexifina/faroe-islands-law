@@ -1,0 +1,3 @@
+## Kærur [^1]
+§ 8 a. [^1] Niðurstøða um førleikameting sambært hesi løgtingslóg kann verða kærd til landsstýrismannin sambært reglunum í viðkomandi útbúgvingarlóg, tó ikki, tá kært verður um niðurstøðu um førleikameting innan útbúgvingar á Fróðskaparsetri Føroya, sum verða viðgjørdar sambært ásetingunum í løgtingslóg um Fróðskaparsetur Føroya, og tá kært verður um verkliga partin í niðurstøðu um førleikameting innan yrkisútbúgvingar, sum verða viðgjørdar sambært reglunum í § 23, stk. 5 í løgtingslóg um yrkisútbúgvingar.
+Stk. 2. Landsstýrismaðurin ásetir nærri reglur um kærur, kæruvegleiðing og kærufreistir í sambandi við kærur um førleikameting sambært hesi løgtingslóg.
