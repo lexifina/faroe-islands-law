@@ -1,0 +1,1 @@
+§ 6. Persónur, sum hevur fingið stuðul til hjálparráð, sum kann endurnýtast, hevur skyldu til at fara væl um hjálparráðið og lata Almannaverkinum tað aftur, tá hetta ikki verður brúkt longur, ella hann flytur av landinum.

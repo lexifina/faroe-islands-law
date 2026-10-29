@@ -1,0 +1,1 @@
+§ 20. Stuðul kann í serligum føri veitast til hjálparráð, ið einans skal nýtast í sambandi við frítíðartilboð, í tann mun talan er um frítíðartilboð, sum persónur uttan brek í líknandi lívsstøðu, vanliga kann hugsast at luttaka í.

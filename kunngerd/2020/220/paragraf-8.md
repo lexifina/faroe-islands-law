@@ -1,0 +1,3 @@
+§ 8. Persónur, sum býr á eldrasambýli, ellisheimi ella røktarheimi, sum er skipað sambært løgtingslóg um heimatænastu, eldrarøkt v.m., kann fáa stuðul til persónligt tillagað hjálparráð.
+Stk. 2. Persónligt tillagað hjálparráð sambært stk. 1, fevnir eisini um persónligt tillagaðan koyristól í mun til vanligan koyristól. Koyristólur skal vera serframleiddur ella hava tillagingarmøguleikar og innstillingarmøguleikar, sum nøkta ítøkiliga tørvin.
+Stk. 3. Treytin fyri at fáa stuðul til koyristól sambært stk. 2 er, at tørvurin hjá umsøkjara ikki kann nøktast við einum vanligum koyristóli, og at umsøkjari hevur tørv á at brúka koyristólin meginpartin av degnum.

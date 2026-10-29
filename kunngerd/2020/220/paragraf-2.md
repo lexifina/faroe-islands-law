@@ -1,0 +1,2 @@
+§ 2. Hjálparráð er tól, lutur, útgerð o.l, sum er framleitt ella verður nýtt til at bøta um virkistarni hjá persóni. Hjálparráð kann vera kropsborið hjálparráð, sum t.d. brillur, ymiskar protesur, serligur fótbúni og hárkollur, og hjálparráð, sum verða veitt sum lán, eitt nú koyristólur, samskiftisútgerð, røktarsong, kúludýna, kúluvestur og ymisk flutningstól.
+Stk. 2. Hjálparráð, ið kann endurnýtast, kann veitast sum útlán til persón ella mótvegis gjaldi til myndugleika, sum brúkar hjálparráð í virkseminum.
