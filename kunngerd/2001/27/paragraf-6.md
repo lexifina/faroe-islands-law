@@ -1,0 +1,2 @@
+## Ferðafólkatrygd, surring av farmi og heildarstandur á skrokki
+§ 6. Skiparar, yvirstýrimenn, maskinstjórar, fyrstumeistarar og øll, ið hava beinleiðis ábyrgd, tá ið ferðafólk koma umborð og fara í land av ferðamannaskipi, tá ið lossað ella lastað verður, ella farmur verður surraður, ella, tá ið op í skrokkinum á ro-ro ferðamannaskipum skulu latast aftur, skulu, tá ið tænastan byrjar, hava tikið eina góðkenda útbúgving, sum viðvíkur ferðafólkatrygd, surring av farmi og heildarstandi á skrokki samsvarandi fylgiskjali nr. 6, og hava fingið prógv fyri hesum.

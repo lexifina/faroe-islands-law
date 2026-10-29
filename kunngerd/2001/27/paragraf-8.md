@@ -1,0 +1,2 @@
+## Tilrættislegging og fremjing av báta- og brandvenjingum
+§ 8. Brúgvar- og maskinyvirmenn og tey, sum hava tænastufólk undir sær umborð (yvirhovmeistarar, hovmeistarar, eftirlitsfólk o. fl.) skulu innan eitt ár eftir, at tey eru sett í starv, taka eina góðkenda útbúgving, sum viðvíkur tilrættislegging og fremjing av báta- og brandvenjingum samsvarandi fylgiskjali nr. 8, og hava fingið prógv fyri hesum.

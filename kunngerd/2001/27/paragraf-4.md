@@ -1,0 +1,3 @@
+## Vegleiðing av ferðafólki í neyðstøðu
+§ 4. Rakstrar- og trygdarmanningar, ið sambært trygdarskipanini hava til uppgávu at hjálpa ferðafólki tá ein neyðstøða hevur tikið seg upp, skulu, áðrenn tey fara í starv, hava tikið eina útbúgving í at vegleiða ferðafólki í neyðstøðu, sum samsvarar við fylgiskjal nr. 3, og hava fingið prógv fyri hesum.
+Stk. 2. Teir í stk. 1 umrøddu persónar og tey av tænastumanningini, ið veita beinleiðis tænastu til ferðafólk á ferðamannaskipum, skulu harafturat, áðrenn tey koma í starv, fáa eina trygdarvenjing fyri starvsfólk, ið veita beinleiðis tænastu til ferðafólk á ferðafólkaøkjum samsvarandi fylgiskjali nr. 4, og hava fingið prógv fyri hesum.
