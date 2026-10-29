@@ -1,0 +1,1 @@
+§ 2. Landsstýrismanninum verður heimilað uttan viðurlag at avhenda til Tórshavnar kommunu tað verklagsarbeiði, allar forkanningar og annað tilfar, ið Landsverk hevur framleitt í sambandi við hesa verkætlanina.
