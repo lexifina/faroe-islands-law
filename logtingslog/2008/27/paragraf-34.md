@@ -1,0 +1,3 @@
+§ 34. Stiftsstjórnin kann reisa endurgjaldskrav móti kirkjuráðslimi ella próstadømisráðslimi, sum hevur ábyrgdina av, at kirkjukassin ella fólkakirkjan annars hevur verið fyri fíggjarligum tapi.
+Stk. 2. Stiftsstjórnin kann sleppa einum endurgjaldssakarmáli, um so er, at ráðslimurin áðrenn eina ásetta freist rindar viðkomandi kassa ella grunni upphæddina. Stiftsstjórnin kann minka upphæddina, ið eigur at verða afturgoldin, við atliti til sýnda skuld, stødd á skaða og umstøðum annars. Játtar ráðslimur at rinda upphæddina, og rindar hann hana áðrenn ásetta freist, kann størri endurgjaldskrav ikki verða reist.
+Stk. 3. Avgerðin hjá stiftsstjórnini er endalig.

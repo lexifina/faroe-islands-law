@@ -1,0 +1,2 @@
+§ 6. Áðrenn nývaldur kirkjuráðslimur tekur sæti í kirkjuráðnum, skal hann á kirkjuráðsfundi vátta við trú og heiður at vilja inna tað starv, sum litið verður honum til, í trúskapi móti lærugrundarlagnum hjá evangelisk-luthersku fólkakirkjuni, soleiðis at hon kann bjóða kirkjuliðnum góð kor fyri lívi og vøkstri.
+Stk. 2. Stiftsstjórnin sær til, at kirkjuráðslimur verður kunnaður um arbeiðið í kirkjuráðnum og hvørjar skyldur áliggja honum.

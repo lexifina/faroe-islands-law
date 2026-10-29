@@ -1,0 +1,2 @@
+§ 12. Eru fortreytirnar fyri at vera limur í kirkjuráðnum ikki longur til staðar, ella noktar kirkjuráðslimur framhaldandi at røkja sínar skyldur sum limur í ráðnum, kann kirkjuráðið gera av, at viðkomandi skal fara úr kirkjuráðnum.
+Stk. 2. Avgerðin hjá kirkjuráðnum skal vera skrivlig og kann verða kærd til landsstýrismannin innan 2 vikur, uttan tá ið kirkjuráðslimurin hevur mist valbærið til Løgtingið. Kæra hevur ikki steðgandi virknað.

@@ -1,0 +1,2 @@
+§ 2. Nýggj kirkjusókn kann verða skipað, tá ið fíggjarkarmur fólkakirkjunnar rúmar tí. Kirkjusókn kann verða skipað í sambandi við, at nýggj kirkja verður tikin í nýtslu, ella tá ið onnur rímilig orsøk er at skipa nýggja kirkjusókn.
+Stk. 2. Landsstýrismaðurin kann seta biskupi, stiftsstjórn og kirkjuráði treytir, áðrenn loyvi verður givið. Treytirnar eru serliga í mun til tær fíggjarligu avleiðingar, ið standast av, at kirkjusóknin verður skipað.
