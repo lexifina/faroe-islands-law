@@ -1,0 +1,1 @@
+§ 3. Næmingastuðulin er eins fyri allar næmingar skúlans. Stuðulin kann í mesta lagi verða kr. 3.000,00 um mánaðin. Um játtanin á løgtingsfíggjarlógini ikki røkkur, verður stuðulin lækkaður samsvarandi.
