@@ -1,0 +1,1 @@
+§ 1. Landsstýrisfólkið tilnevnir eitt bókasavnsráð, sum skal ráðgeva landsstýrisfólkinum í bókasavnspolitiskum og bókasavnsfakligum málum og gera tilmæli til landsstýrisfólkið um menning og samskipan av bókasøvnunum.
