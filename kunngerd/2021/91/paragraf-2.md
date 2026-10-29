@@ -1,0 +1,1 @@
+§ 2. Føroyska nevndin fyri United World College, UWC Føroyar, sum virkar eftir reglum, sum landsstýrismaðurin góðkennir, velur ímillum umsøkjarar á hvørjum ári ein næming, sum verður mettur at vera skikkaður at verða tikin upp á UWC skúlanum.
