@@ -1,0 +1,5 @@
+## Almennar reglur
+§ 15. Uppi yvir staðnum, har kavararbeiði verður útint, má einki arbeiði fara fram, sum minkar um trygdina hjá kavarum.
+Stk. 2. Áðrenn byrjað verður uppá arbeiði, har neistar koma frá ella arbeiði við evni at rotviðgera tilfar o.l., skal tað tryggjast, at tilfar sum er etsandi og/ella sum spreingivandi kann standast av, í føstum, flótandi ella gasslíki, ikki er í tí tilfari, sum arbeitt verður upp á.
+Stk. 3. Áðrenn byrjað verður uppá arbeiði, har tað er neyðugt at brúka hjálpitól, seramboð ella spreingievnir, skal kavarin kunna seg gjølla um leiðbeiningarnar fyri tílíkum arbeiði, sum eru givnar av framleiðaranum.
+Stk. 4. Tá arbeitt verður við at skera, sveisa ella hátrýstspula ella arbeitt verður við amboðum, sum brúka orkuveiting frá landi, skal umframt kavarahjálparfólkið eisini neyðug manning til at passa orkuveitingina, vera skipað. Fólk skal støðugt vera hjá og passa orkuveitingina, meðan kavaraarbeiði fer fram. Um so er, at kavarahjálparfólkið ikki hevur beinleiðis samband við tann, sum passar orkuveitingina, skal annar beinleiðis samskiftismøguleiki vera skipaður millum hesi.

@@ -1,0 +1,4 @@
+§ 14. Kavaraarbeiði, sum fevnir um at skera, sveisa, spula við hátrýstamboði (30 bar ella meira) ella at spreingja, skal einans útinnast av kavarum, sum við nøktandi úrsliti hava luttikið á skeiði fyri tílíkt kavaraarbeiði umframt at hava tað í § 12, nevnda prógv.
+Stk. 2. Kaving í sambandi við bjarging, kann útinnast av persónum við vinnubrævi sum ávikavist SCUBA-kavari ella vinnukavari við luftveitan frá landi, tá hesir hava luttikið í skeiði í hesum arbeiði.
+Stk. 3. Skeiðini nevnd í stk. 1 og 2 skulu vera góðkend av tí í § 13, stk. 2 nevndu próvtøkunevnd. Kavaraprógvið skal áteknast av próvtøkunevndini ella øðrum stovni, sum próvtøkunevndin heimilar til tað.
+Stk. 4. Tann, sum brúkar kavarar at gera tey í stk. 1, 2 og 3 nevndu arbeiði, skal tryggja sær, at kavararnir hava kavaraprógv við tí átekning, sum er kravd eftir stk. 3.

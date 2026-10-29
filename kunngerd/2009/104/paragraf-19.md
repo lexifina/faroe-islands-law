@@ -1,0 +1,2 @@
+§ 19. Tá kavari arbeiðir á træverki o.l., stendur á kavaraleytara ella undir flutningi á kavarapalli ella líknandi, skal kavarin vera tryggjaður móti falli.
+Stk. 2. Tá kavað verður við SCUBA-útgerð, kann kavarin lata vera at brúka bjargingardrakt, sum hóskar til kaving, um tað sbr. § 9, stk. 1 verður mett, at vandin er størri av at brúka eina bjargingardrakt, enn at lata vera. Henda meting skal skrivast í arbeiðsdagbókina ella hjáleggjast hesi.

@@ -1,0 +1,1 @@
+§ 10. Tað áliggur kavaraleiðara, um tílíkur er á staðnum ella kavara, at veita neyva vegleiðing til persónar, ið eru knýttir at kavarauppgávuni, um teirra skyldur og viðurskifti, sum kunnu hava týdning fyri trygdina hjá kavaranum.

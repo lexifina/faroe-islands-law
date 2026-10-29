@@ -1,0 +1,5 @@
+§ 7. Um tað gerst neyðugt, tilnevnir arbeiðsgevarin í samráð við kavara ella møguligan kavaraleiðara hjálparfólk til kavaraarbeiðið. Um kava verður frá skipi, skal hjálparfólk tilnevnast í samráð við skipara, um so er, at kavarin er í starvi í felagnum.
+Stk. 2. Hjálparfólkið nevnt í stk. 1, skal kunna prógva neyðugan kunnleika til viðkomandi arbeiði, annaðhvørt við vinnubrævi til kavaraarbeiði, ella við at hava góðkenda kavaraútbúgving sbrt. kunngerð um kavaraskúlar og kavaraskeið.
+Stk. 3. Hjálparfólkið, nevnt í stk. 1, skal í minsta lagi annaðhvørt ár taka endurútbúgvingarskeið í fyrstuhjálp, sum er góðkent av Arbeiðseftirlitinum.
+Stk. 4. Hjálparfólkið, nevnt í stk. 1, skal í sambandi við kavaraarbeiði, einans passa ein kavara og má ikki taka á seg aðrar uppgávur.
+Stk. 5. Kavaraarbeiði skal altíð vera tillagað hvussu umfatandi, arbeiðið er. Er kavaraarbeiði umfatandi, skal eitt kavaralið av hóskandi stødd skipast. Tað skal tó í minsta lagi vera ein kavari og eitt kavarahjálparfólk á kavaraliðinum, umframt eitt fólk, sum kann veita hjálp til kavaran og kavarahjálparfólkið.

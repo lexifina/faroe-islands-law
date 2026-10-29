@@ -1,0 +1,6 @@
+## Reinleiki á andingarevninum, samanseting, nøgd, evnislýsing v.m.
+§ 25. Andingarevnið skal, við atliti til reinleika, samanseting, nøgd, evnislýsing v.m. lúka ásetingarnar í kunngerð um kavaraútgerð.
+Stk. 2. Verður vanlig luft brúkt sum andingarevnið tá kava verður, skal keldan sum veitir andingarevni, hava nóg nógv andingarevni tá byrjað verður at kava, við atliti til tíðina og til dýpi, sum kava verður.
+Stk. 3. Kelda, sum veitir andingarevnið, sum kavarin ikki hevur uppi á sær, skal uttan mun til, hvussu andingarevnið er samansett meðan kava verður, altíð hava eykanøgd av andingarevni, sum svarar til nýtslu hjá kavara í 5 minuttir á kavaradýpdini uttan so, at kavarin kann fáa tilsvarandi nøgd av andingarevni frá aðrari serstakari keldu. Henda kelda skal vera sett til og vera klár at nýta, tá byrjað verður at kava.
+Stk. 4. Uttan mun til hvussu andingarevnið er sett saman, skulu kavarar, sum fáa andingarevni veitt gjøgnum slangur frá landi, frá opnum kavaraklokkum ella líknandi, hava hjá sær eyka nøgd av andingarevni ætlað til neyðstøðu, sum svarar til nýtslu í minst 5 minuttir á tí mesta dýpinum, har kavað verður.
+Stk. 5. Nøgdirnar av eyka andingarevni og andingarevni at nýta í neyðstøðu, sum eru nevndar í stk. 3 og 4, verða ásettar eftir einum brúki uppá 40 litur/minutt á tí viðkomandi dýpinum.
