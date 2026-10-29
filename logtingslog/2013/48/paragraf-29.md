@@ -1,0 +1,8 @@
+## Kapittul 6
+## Kirkjutænari og hjálparfólk
+§ 29. Kirkjuráðið skipar kirkjutænastuna, heitir á fólk um at taka á seg tænastu sum kirkjutænari ella hjálparfólk, og kann veita kirkjutænara og hjálparfólki samsýning ella endurgjald fyri útreiðslur. Samsýningin og endurgjaldið fyri útreiðslur kunnu í meðal um mánaðin í mesta lagi svara til 0,08% av samtalda landskirkjuskattinum undanfarna ár.
+Stk. 2. Kirkjuráðið heitir á Próstadømisráðið um loyvi til at veita endurgjald, hægri enn hámarkið eftir stk. 1, og um at biðja Stiftsstjórnina seta í verk samsýning, hægri enn hámarkið eftir stk. 1, til hjálparfólk við kirkjuna.
+Stk. 3. Kirkjuráð í kirkjusókn við fleiri enn 4,5% av kirkjufólkinum í landinum heitir á Próstadømisráðið um at mæla Stiftsstjórnini til at seta kirkjutænara ella hjálparfólk í starv.
+Stk. 4. Kirkjuráðini í prestagjaldi ella kirkjuráð í kirkjusóknum við meira kirkjufólki, enn lágmarkið eftir stk. 3, heita eftir avgerð á felags kirkjuráðsfundi á Próstadømisráðið um at mæla Stiftsstjórnini til at seta kirkjutænara ella hjálparfólk í starv.
+Stk. 5. Við atliti at ítøkiliga tørvinum og at fíggjarstøðuni hjá kirkjusóknunum yvirhøvur ger Próstadømisráðið av, hvørt tiltak eftir stk. 2 kann verða framt, og mælir til, hvørt tiltak eftir stk. 3 ella 4 kann verða framt. Stiftsstjórnin ger av, um og hvussu starvið verður sett, og tænastan samsýnt, ella um tørvurin verður nøktaður á annan hátt, harundir í samstarvsavtalu við annan veitara, tó so at kostnaður og tímatal ikki verða størri, enn kirkjuráðið hevur ætlað.
+Stk. 6. Kirkjuráðið kann ikki kæra avgerðir Próstadømisráðsins og Stiftsstjórnarinnar eftir stk. 5, men kirkjuráðið kann taka áheitanina aftur, tekur tað ikki undir við loysnini, ið Stiftsstjórnin velur.

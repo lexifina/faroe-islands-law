@@ -1,0 +1,5 @@
+§ 13. Tá ið biskupur hevur tikið støðu til tilráðingina frá kirkjuráðunum, ger hann landsstýrismanninum tilmæli og leggur tilráðingina frá kirkjuráðunum við. Tekur umsøkjari, ið kirkjuráðini hava rátt til, seg aftur, gevur biskupur kirkjuráðunum høvi at gera nýggja tilráðing.
+Stk. 2. Landsstýrismaðurin setir umsøkjara, ið allir kirkjuráðslimirnir atkvøddu fyri í fyrstu atkvøðugreiðslu. Er eittans sóknarprestaembæti í prestagjaldinum,setir landsstýrismaðurin umsøkjara, ið tveir triðingar av kirkjuráðslimunum atkvøddu fyri í fyrstu atkvøðugreiðslu.
+Stk. 3. Landsstýrismaðurin hevur serlig fyrilit fyri minnilutum í prestagjaldinum, tá hann setir starv í prestagjaldi, har fleiri sóknarprestaembæti eru.
+Stk. 4. Landsstýrismaðurin setir ikki umsøkjara, ið ikki er teirra millum, sum kirkjuráðini ráða til at seta. Landsstýrismaðurin kann gera av, at embætið verður lýst leyst av nýggjum.
+Stk. 5. Landsstýrismaðurin ásetir greiniligari reglur um mannagongdir í sambandi við tilráðing, krøv til viðgerð og um atkvøðugreiðslu, tá kirkjuráðini gera tilráðing um setan.

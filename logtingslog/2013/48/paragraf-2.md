@@ -1,0 +1,2 @@
+§ 2. Tann, ið ikki hevur tikið lært nám í føroyskari kirkjusøgu, skipan, siðum og embætisførslu, sum galda í fólkakirkjuni í Føroyum, áðrenn hann søkir embæti fyrstu ferð, hevur embætisskyldu at taka tey, áðrenn 2 ára starvstíð er lokin.
+Stk. 2. Tann, ið tekur við føstum starvi fyrstu ferð, og sum ikki hevur føroyskt sum móðurmál, skal í verki vísa, at hann skilir føroyskt, og skal innan 2 ár frá starvssetanardegnum prógva, at hann í hóskandi mun er førur fyri at orðbera seg skilliga á føroyskum.

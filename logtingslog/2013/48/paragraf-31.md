@@ -1,0 +1,2 @@
+§ 31. Kirkjutænari og hjálparfólk eru í øllum virki í kirkjuni ella fyri kirkjuna fevnd av ásetingunum í áttanda kapitli í fyrisitingarlógini.
+Stk. 2. Lønt tænasta sum kirkjutænari ella hjálparfólk heldur uppat fyri aldur, samsvarandi reglunum um fráfaringaraldur hjá alment settum. Samsýnt tænasta sum kirkjutænari ella hjálparfólk steðgar við endan á mánaðinum, hann fyllir 5 ár meira, enn almenni fráfaringaraldurin er. Kirkjuráðið kann tó lata Stiftsstjórnini grundgivið tilmæli um, at samsýnta tænastan verður longd við einum ári í senn.
