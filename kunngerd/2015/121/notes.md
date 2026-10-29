@@ -1,0 +1,2 @@
+[^1]: Broytt við kunngerð nr. 152 frá 7. oktober 2025, har § 2 ljóðar soleiðis: “Stk. 1. Henda kunngerð kemur í gildi dagin eftir, at hon er kunngjørd. Stk. 2. Tey, sum fóru undir endaskeið í útbúgving til skipsatstøðara áðrenn 1. august 2024, eru framhaldandi fevnd av kunngerð nr. 121 frá 11. november 2015 um endaskeið í útbúgving til skipsatstøðara.”
+[^2]: Broytt við kunngerð nr. 133 frá 17. desember 2024.
