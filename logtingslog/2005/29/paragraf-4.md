@@ -1,0 +1,1 @@
+§ 4. Skuld sambært § 2 kann vera heilt ella lutvíst eftirgivin ella umskipað. Verður skuldin lutvíst eftirgivin ella umskipað, skal avtala gerast um gjaldskáa og/ella avdráttarskipan fyri tann partin av skuldini, sum ikki er eftirgivin. Í gjaldskáa- og avdráttartíðarskeiðinum verður skuldin ikki rentað.
