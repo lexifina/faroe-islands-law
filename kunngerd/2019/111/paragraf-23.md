@@ -1,0 +1,1 @@
+§ 23. Arbeiðs- og brunaeftirlitið kann taka eitt vinnubræv sambært § 22, stk. 2 aftur varandi ella fyri ávísa tíð, um tann, ið hevur vinnubrævið, tilætlað ella við grovum ósketni fremur revsivert brot á hesa kunngerð ella av heilsuligum orsøkum verður mettur óegnaður.

@@ -1,0 +1,2 @@
+§ 11. Arbeiðs- og brunaeftirlitið kann loyva frávikum frá ávísum ásetingum í hesi kunngerð í sambandi við flutning av vandamiklum farmi, sum fer fram á sama ella fleiri samanhangandi virkisøkjum, har sum virkisøkið er stongt, innhegnað ella á annan hátt avmarkað frá øðrum vegi. Tað skal vera greitt tilskilað í avgerðini frá Arbeiðs- og brunaeftirlitinum, hvørjum ásetingum frávik vera loyvd frá.
+Stk. 2. Í sambandi við frávik sambært stk. 1 kann Arbeiðs- og brunaeftirlitið áseta serkrøv fyri viðkomandi flutning.

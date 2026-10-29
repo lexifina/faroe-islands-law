@@ -1,0 +1,1 @@
+§ 15. Kravið um flutningsskjal sambært § 13, stk. 1 er ikki galdandi í sambandi við flutning av brennievni, ið skal veitast til tveir ella fleiri móttakarar, um onnur skjøl í flutningsfarinum skjalfesta innihaldið av vandamikla farminum.

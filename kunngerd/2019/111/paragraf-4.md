@@ -1,0 +1,4 @@
+§ 4. Tann, sum fæst við flutning av vandamiklum farmi sambært hesi kunngerð, skal vísa størsta varsemi og eftiransni, soleiðis at skaði á mannalív, heilsu, umhvørvi og ogn verður fyribyrgdur.
+Stk. 2. Í sambandi við flutning av vandamiklum farmi skal altíð tryggjast, at skynsamasta farleið verður vald, og at flutningurin verður gjørdur uttan óneyðugan støðg.
+Stk. 3. Eindir á einum flutningsfari ella í einari last, sum inniheldur vandamiklan farm, skulu stúgvast fullgott á flutningsfarinum og skulu festast ella kílast fastar, soleiðis at hesar ikki kunnu skjótast í mun til hvørja aðra ella flutningsfarið í sambandi við vanlig flutningsviðurskifti.
+Stk. 4. Vandamikil farmur má ikki vera í sama rúmi, sum bilførarin er, ella í rúmum til ferðafólk ella sett í rúm, ið hava samband við førararúm ella ferðafólkarúm.

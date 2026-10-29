@@ -1,0 +1,3 @@
+17. juli 2019 Nr. 111
+# Kunngerð um flutning av vandamiklum farmi á landi o.a.
+Við heimild í § 36, stk. 1, nr. 2 og § 43 í løgtingslóg nr. 61 frá 15. mai 2012 um tilbúgving (Tilbúgvingarlógin), § 9, stk. 2, § 10, stk. 2 og § 21 í løgtingslóg nr. 28 frá 30. apríl 2007 um spreingievni og spreingiarbeiði v.m., § 41, stk. 1, § 47, § 56 og § 66 í løgtingslóg nr. 70 frá 11. mai 2000 um arbeiðsumhvørvi, sum broytt við løgtingslóg nr. 40 frá 13. mai 2013, og § 36, stk. 5 og 6 í løgtingslóg um ferðslu, sbrt. løgtingslógarkunngerð nr. 14 frá 22. mars 1988, sum broytt við løgtingslóg nr. 49 frá 11. mai 2009, verður ásett:
