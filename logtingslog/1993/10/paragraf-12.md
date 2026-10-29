@@ -1,0 +1,1 @@
+§ 12. Fyrrverandi landsstýrismenn, sum fáa bíðipening, tá henda lóg kemur í gildi, kunnu velja, um teir vilja hava bíðipening ta ásettu tíðina, ella um teir heldur vilja hava rætt til eftirløn sambært reglunum í hesi lóg.

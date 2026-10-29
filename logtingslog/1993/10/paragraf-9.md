@@ -1,0 +1,2 @@
+## Starvsreglur
+§ 9. [^5] Hevur løgmaður ella landsstýrismaður, tá hann tekur við, størv í almennari tænastu ella privatum virkjum, samtøkum ella stovnum, skal hann vanliga siga tey frá sær. Tó kann hann í hendinga førum við samtykki løgmans halda tílíkum størvum, um løgmaður heldur, at tey ikki kunnu hava við sær trupulleikar í røkjan av embætisskyld hansara sum landsstýrismaður. Løgmaður boðar løgtinginum frá, hvørji størv avvarðandi landsstýrismaður framvegis hevur loyvi at røkja, og hvørji størv hann sjálvur framhaldandi ætlar at røkja.

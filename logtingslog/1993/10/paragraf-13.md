@@ -1,0 +1,3 @@
+§ 13. Lógin fær gildi 1. januar 1993 og fer samstundis úr gildi løgtingslóg nr. 39 frá 5. august 1971 um samsýning landsstýrismanna við seinni broytingum.
+Stk. 2. [^4] Landsstýrið ásetur í kunngerð, nær §§ 3, 4, 4 a, 4 b og 5 og § 8, stk. 2 fara úr gildi. Greinarnar hava tó framvegis gildi fyri landsstýrismenn, sum sita, ella hava sitið áðrenn úrgildissetanardagin og hjúnafelaga ella børn teirra. Eftirlønaraldurin hjá landsstýrismanninum hækkar tó ikki eftir nevnda dag.
+Stk. 3. [^4] Tænastumaður hjá føroyskum myndugleika, sum fer í farloyvi fyri at gerast landsstýrismaður, fær ikki eftirlønargjald sbrt. § 1, stk. 7, men tíðin sum landsstýrismaður telur við í tænastualdri hansara sum tænastumaður.
