@@ -1,0 +1,1 @@
+§ 6. Í sambandi við innsigling av bingjum við viðgjørdum seyðaskinnum og neytahúðum skal Heilsufrøðiliga starvsstovan hava eftirlit við, at samsvar er millum kravdu eigaraváttanina í § 3, stk. 1 og útflutningsváttanina í § 4, stk. 2.

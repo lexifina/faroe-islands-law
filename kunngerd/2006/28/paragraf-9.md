@@ -1,0 +1,1 @@
+§ 9. Heilsufrøðiliga starvsstovan kann krevja eitt gjald, sum dekkar veruligu útreiðslurnar í sambandi við eftirlit við skinnmóttøku, og fyri at almennar váttanir verða givnar í sambandi við útflutning av seyðaskinnum og neytahúðum.
