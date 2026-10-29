@@ -1,0 +1,1 @@
+§ 4. Landsstýrismaðurin kann í kunngerð áseta reglur um førleikakrøv til eftirlits- og sýnsfólk, sum vegna myndugleikan føra eftirlit og sýn við bygningum sambært hesi lóg og sambært kunngerðum, ásettar við heimild í hesi lóg.

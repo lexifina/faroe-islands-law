@@ -1,0 +1,3 @@
+§ 15. Staðfestir kommunala byggieftirlitið, at tað, sum bygt, umbygt, umvælt ella broytt er, ikki er í samsvari við ásetingarnar í lógini, reglur ásettar við heimild í lógini ella byggiloyvið, skal kommunala byggieftirlitið geva eigaranum boð um at fáa hesi viðurskifti í rættlag innan ávísa freist.
+Stk. 2. Um staðfestast kann, at viðurskiftini ikki eru fingin í rættlag, eftir at freistin sambært stk. 1 er farin, kann kommunala byggieftirlitið áseta nýggja freist.
+Stk. 3. Fylgir eigari ikki boðum sambært stk. 1 og stk. 2, kann kommunala byggieftirlitið skipa so fyri, at bøtt verður um feilir og manglar í bygninginum fyri eigarans rokning, ella at bygningurin verður niðurtikin.

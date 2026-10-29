@@ -1,0 +1,4 @@
+§ 21. Landsstýrismaðurin, ella tann, ið landsstýrismaðurin heimilar, kann í málum um brot á reglur, ásettar við heimild í § 3, við einum sektaruppskoti boða frá, at málið kann verða avgjørt uttan rættarmál, um tann, ið hevur framt brotið, játtar seg sekan í brotinum og váttar at vera til reiðar at gjalda bótina sambært sektaruppskotinum innan nærri ásetta freist. Eftir áheitan kann landsstýrismaðurin, ella tann, ið landsstýrismaðurin hevur heimilað, leingja freistina.
+Stk. 2. Stk. 1 verður samsvarandi nýtt í málum um brot á § 10, stk. 1, stk. 4 og stk. 6, § 13, stk. 1 og stk. 4, § 14, § 15, stk. 1, § 16, stk. 1 og § 17, stk. 1.
+Stk. 3. Reglurnar í rættargangslógini um krøv til innihaldið í ákæruritum og reglurnar um, at ein ákærdur ikki hevur skyldu at geva frágreiðing, verða samsvarandi nýttar viðvíkjandi sektaruppskotum.
+Stk. 4. Góðtekur tann, ið hevur framt brotið, bótina, fellur rættarsóknin burtur.

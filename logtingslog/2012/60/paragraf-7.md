@@ -1,0 +1,2 @@
+§ 7. Landsstýrismaðurin kann í kunngerð áseta reglur um, at bygningar skulu skrásetast í eini bygningsskrá, sum er atkomulig hjá almenninginum.
+Stk. 2. Landsstýrismaðurin kann í kunngerð áseta reglur um bygningsskránna, um formkrøv til kort og dátur, um skyldu at senda kort og dátur til skránna, um gjøld fyri brúk av upplýsingum úr skránni og annað, sum hevur týdning fyri at skipa eina landsfevnandi bygningsskrá.

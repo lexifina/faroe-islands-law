@@ -1,0 +1,2 @@
+§ 16. Verður kommunala byggieftirlitið varugt við bygning, sum vegna feilir og manglar má metast at vera til ampa ella skaða fyri tey, sum bygningurin hýsir, ella onnur, kann kommunala byggieftirlitið geva eigaranum boð um, at bygningurin ikki framhaldandi kann nýtast, fyrr enn bøtt er um hesar feilir og manglar.
+Stk. 2. Fylgir eigarin ikki boðum sambært stk. 1, kann kommunala byggieftirlitið skipa so fyri, at bøtt verður um feilir og manglar í bygninginum fyri eigarans rokning, ella at bygningurin verður niðurtikin.
