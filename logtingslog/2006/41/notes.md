@@ -1,0 +1,15 @@
+[^1]: Broytt við løgtingslóg nr. 39 frá 29. mars 2023, har § 2 ljóðar soleiðis: “Henda løgtingslóg kemur í gildi 1. januar 2024.” (Teksturin í § 1, stk. 2, nr. 7 er broyttur frá “Heilsumál, læknar, jarðamøður, sjúkrahús.” til: “Heilsumál, læknar, jarðarmøður, sjúkrahús, tó ikki farsóttarmálsøkið.”
+[^2]: Broytt við løgtingslóg nr. 53 frá 11. mai 2009, har § 2 ljóðar soleiðis: “Henda løgtingslóg kemur í gildi 1. januar 2010.” (Strikaður tekstur: “Fíggjarrættur.”)
+[^3]: Broytt við løgtingslóg nr. 62 frá 7. juni 2007, har § 2 ljóðar soleiðis: “Løgtingslógin fær gildi ólavsøkudag 2007.” (Strikaður tekstur: § 1, stk. 2, nr. 5 “Fólkakirkjan” og í § 1, stk. 2, nr. 19 verða orðini “Tey frá fólkakirkjuni víkjandi trúarsamfeløg,” strikað.)
+[^4]: Broytt við løgtingslóg nr. 151 frá 12. desember 2018, har § 2 ljóðar soleiðis: “Henda løgtingslóg kemur í gildi 1. apríl 2019, tó viðvíkjandi kortmyndugleikanum á sjónum 1. januar 2020.” Strikaður tekstur: (“Kort- og landmátingarmyndugleiki.”)
+[^5]: Broytt við løgtingslóg nr. 54 frá 7. juni 2008, har § 2 ljóðar soleiðis: “Henda løgtingslóg kemur í gildi ólavsøkudag 2008.” (Strikaður tekstur: “Mát og vekt.”)
+[^6]: Broytt við løgtingslóg nr. 69 frá 29. mai 2017, har § 2 ljóðar soleiðis: “Hendan løgtingslóg kemur í gildi ólavsøkudag 2018.” (Strikaður tekstur: “Persóns-, húsfólka- og arvarættur.”)
+[^7]: Broytt við løgtingslóg nr. 7 frá 17. februar 2010, har § 2 er soljóðandi: “Henda løgtingslóg kemur í gildi 1. mars 2010.” (Strikaður tekstur: “Revsirættur.”)
+[^8]: Broytt við løgtingslóg nr. 55 frá 26. mai 2011, har § 2 ljóðar soleiðis: “Løgtingslógin kemur í gildi 1. august 2011.” (Strikaður tekstur: “Loðslógarøki.”)
+[^9]: Broytt við løgtingslóg nr. 60 frá 22. mai 2023, har § 2 ljóðar soleiðis: “Henda løgtingslóg kemur í gildi 1. juni 2024.” (Strikaður tekstur: “, sjóuppmerking og vitaverk”.
+[^10]: Broytt við løgtingslóg nr. 38 frá 16. mai 2024, har § 2 ljóðar soleiðis: “Henda løgtingslóg kemur í gildi 29. juli 2025.” (Strikaður tekstur: “Sjórættur.”)
+[^11]: Broytt við løgtingslóg nr. 35 frá 19. mai 2008, har § 2 ljóðar soleiðis: “Henda løgtingslóg kemur í gildi ólavsøkudag 2008.” (Strikaður tekstur: “Halgidagslóggávan.”)
+[^12]: Broytt við løgtingslóg nr. 105 frá 12. desember 2006, har § 2 ljóðar soleiðis: “Henda løgtingslóg kemur í gildi 1. januar 2007.” (Strikaður tekstur: “Tilbúgving.”)
+[^13]: Broytt við løgtingsló nr. 54 frá 11. mai 2009, har § 2 ljóðar soleiðis: “Henda løgtingslóg kemur í gildi 1. januar 2010.” (Strikaður tekstur: “Upphavsrættur.”)
+[^14]: Broytt við løgtingslóg nr. 53 frá 7.juni 2008, har § 2 ljóðar soleiðis: “Henda løgtingslóg kemur í gildi 1. apríl 2009.” (Strikaður tekstur: “Veðurtænasta.”)
+[^15]: Broytt við løgtingslóg nr. 93 frá 22. oktober 2007, har § 2 ljóðar soleiðis: “Løgtingslógin fær gildi 1. januar 2008.” (Strikaður tekstur: “Vinnufeløg, grunnar og feløg og ársroknskaparlóggáva.”)
