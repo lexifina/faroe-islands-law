@@ -1,0 +1,1 @@
+§ 3. Henda kunngerð kemur í gildi dagin eftir at hon er lýst. Samstundis fer løgtingslóg nr. 41 frá 22. juni 1972 um løggilding av virkjum og fiskiførum við framleiðslu av mati, sum broytt við løgtingslóg nr. 29 frá 1. juni 1978 úr gildi.

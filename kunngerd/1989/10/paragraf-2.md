@@ -1,0 +1,1 @@
+§ 2. Umsóknir um løggilding eftir § 30, góðkenning eftir § 32 og fráboðanir um skráseting eftir § 34 av virkjum, sum eru tá lógin fær gildi, skulu vera Heilsufrøðiligu Starvsstovuni í hendi í seinasta lagi 1. mai 1989.
