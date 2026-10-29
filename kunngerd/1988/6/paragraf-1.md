@@ -1,0 +1,1 @@
+§ 1. Frítíðarvirksemi er virksemi fyri øll børn og ung undir 25 ár, og fyri onnur eftir góðkenning kommununnar, sum áhugafeløg og áhugabólkar skipa fyri, ella sum bý-/bygdarráðið á annan hátt tryggjar íbúgvunum.
