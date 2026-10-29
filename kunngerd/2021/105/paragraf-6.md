@@ -1,0 +1,1 @@
+§ 6. Motorakfør, sum lúka krøvini, sbrt. § 1, stk. 1 ella § 3, men har ætlanin framhaldandi er, at hesi akfør skulu nýtast til dagliga koyring, kunnu ikki skrásetast sum ellisakfør ella sniðbroytt ellisakfør.
