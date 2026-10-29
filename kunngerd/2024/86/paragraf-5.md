@@ -1,0 +1,1 @@
+§ 5. Fyri at fáa atgongd til gransking í PKU-kortskránni, skal ein granskingarverkætlan verða mett at hava munandi samfelagsligum týdning, umframt at koma við einum týðandi íkasti til føroyska heilsugransking, sum kann koma føroyska fólkinum til gagns. PKU-kortini skulu harumframt vera mett at vera neyðug fyri at kunna uppfylla endamálið við verkætlanini.
