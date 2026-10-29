@@ -1,0 +1,1 @@
+§ 5. Viðvíkjandi sildaveiðu verður á sama hátt til landsstýrið um vrakarastovnin at senda taluppgávu yvir fong, fiskifar o.s.fr. smbr. §§ 1, 2 og 4, við teimum broytingum, sum landsstýrið greiniligari fyriskipar.

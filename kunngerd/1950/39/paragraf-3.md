@@ -1,0 +1,2 @@
+§ 3. Hvørja ferð føroyskt fiskiskip ikki kemur til Føroyar, men landar fongin í danskari ella útlendskari havn, hevur avvarandi reiðari skyldu til, seinast 14 dagar frá landing, at senda landsstýrinum um vrakarastovnin greiða taluppgávu (statistikk) yvir fiskaslag, nøgd, bruttosøluprís og yvir nøgd av vrakfiski, um slíkur hevur verið uppi í.
+Taluppgávan skal greiða frá, hvørt skipið er, veiðupláss, hvussu langur túrurin hevur verið, herav veiðudagar, hvar og nær landað var o.s.fr. samsvarandi landsstýrisins fyriskipanum.

@@ -1,0 +1,1 @@
+§ 9. Hann, ið vanrøkir sína plikt at geva tær upplýsingar, sum skylda hans er at geva, ella sum við vilja gevur skeivar upplýsingar, og somuleiðis hann, ið ikki ansar eftir, at upplýsingar verða givnar, verður at sekta við bót, sum í minnsta lagi er 10 kr.

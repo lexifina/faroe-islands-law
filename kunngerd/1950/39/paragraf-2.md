@@ -1,0 +1,3 @@
+§ 2. Hvørja ferð farmur av fiski, landaður í føroyskari havn, verður avskipaður til Danmark ella útlandið, hevur avvarandi reiðari skyldu til, í seinasta lagi 2 dagar eftir avskipanina, at senda landsstýrinum um vrakistovnin fullfíggjaða taluppgávu (statistikk) yvir fiskasløg, nøgd, bruttosøluprís og góðsku, váttað av avvarandi vrakieftirlitsmanni ella av vrakara, sum hann hevur lagt hetta starv á.
+Taluppgávan skal greiða frá, hvørjum fiskiskapi og hvørjum túri fongurin er frá samsvarandi landsstýrisins greiniligu fyriskipanum.
+Verður ein fiskafarmur avskipaður í fleiri pørtum, skulu allar taluppgávur verða sendar í senn, tá ið allur farmurin er avskipaður.
