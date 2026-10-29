@@ -1,0 +1,2 @@
+§ 1. Á landleiðini er tað forboðið við skipum, sum hava heimstað og eru skrásett í fremmandum landi og fremmandum ríkisborgarum at røkja vinnuliga hvalaveiðu yvirhøvur, herundir at fáast við slíkt, ið stendur í samband við hvalaveiðu, so sum umskiping av veiðu, virking, pakking ella onnur handfaring av hvali ella hvalaúrdrátti, umskiping av útgerð ella ankring við tí í hyggju at taka lut í umskiping av hvali ella hvalaúrdrátti ella at taka inn útgerð.
+2. stk. Landsstýrinum er heimilað at gera undantak frá forboðnum í 1. stk. til fremmandar ríkisborgarar, búsettir í Føroyum.

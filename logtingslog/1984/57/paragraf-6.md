@@ -1,0 +1,3 @@
+§ 6. Brot móti reglunum í § 1, tá ið talan er um ólógliga veiðu, koma undir bót og herafturat koma øll veiðuamboð so sum kanónir, lóður, línur o.t. og fongur undir konfiskatión. Skipið kann eisini heftast til rindingar av bót og kostnað.
+2. stk. Brot móti forboðnum í § 1 um at fáast við slíkt, ið stendur í samband við veiðu og boðnum eftir § 2 koma undir bót, herafturat kann skip, fongur og allur reiðskapur heftast til rindingar av bót og kostnað.
+3. stk. Brot móti kunngerðum landsstýrisins eftir §§ 3 og 5, 3. stk. koma undir bót og herafturat kann allur veiðureiðskapur, so sum kanónir, lóður, línur o.t. og fongur koma undir konfiskatión. Skipið kann eisini heftast til rindingar av bót og kostnað.
