@@ -1,0 +1,4 @@
+## Fiskiloyvi
+§ 22. Fiskiskapur eftir makreli sambært hesi kunngerð kann bert fara fram við fiskiførum, sum hava veiðiloyvi, og sum eftir umsókn hava fingið fiskiloyvi frá Vørn. Tó krevst ikki veiðiloyvi til fiskiskap av kvotum sambært § 15, sum ikki eru lagdar um eftir § 9 í løgtingslógini, og við fiskiførum í bólki 5 sambært § 18, stk. 1, nr. 5 í løgtingslógini.
+Stk. 2. Fiskifør undir føroyskum flaggi kunnu bert byrja fiskiskap í bretskum sjógvi, norskum sjógvi ella í NEAFC-skipanarøkinum, um Vørn hevur váttað, at tey eru á lista yvir fiskifør, sum Bretland ella Noreg hava givið loyvi at fiska í teirra sjóøki, ella eru fráboðað NEAFC at fiska í NEAFC-skipanarøkinum.
+Stk. 3. Tá søkt verður um fiskiloyvi til fiskiskap eftir makreli sambært §§ 4-12 og 14-16, skal umsóknarblað nýtast, ið er tøkt á www.torvan.fo.

@@ -1,0 +1,7 @@
+## Umskiping, virking o.a.
+§ 38. Fiskifør og onnur før undir føroyskum flaggi, kunnu eftir umsókn fáa loyvi frá Vørn til at umskipa, lata og taka ímóti veiðu, sum er fiskað sambært hesi kunngerð. Sama er galdandi fyri før undir fremmandum flaggi í føroyskum sjógvi, sum eru limir í NEAFC ella hava støðu sum samstarvandi land í NEAFC.
+Stk. 2. Í 2026 er loyvt at virka veiðu sambært hesi kunngerð umborð eftir treytum, sum Vørn ásetir. Virking umborð er eftir hesi kunngerð, tá fiskurin er meiri viðgjørdur enn sløgdur ella avhøvdaður, sama hvussu hann er goymdur.
+Stk. 3. Í loyvið, sambært stk. 1, verða settar treytir um innvigingarskipan, fráboðanir í sambandi við landing til móttøkuskip ella flutningsskip og umskiping, eygleiðara o.a.
+Stk. 4. Umskiping frá skipum, sum taka ímóti og frysta makrel í føroyskum sjógvi, kann bert fara fram við bryggju í føroyskari havn og við loyvi frá Vørn. Vørn kann í serligum førum geva undantak frá hesum kravi treytað av, at eftirlitið í sambandi við umskiping verður mett nøktandi.
+Stk. 5. Vørn kann áleggja skipum, sum taka ímóti og frysta makrel í føroyskum sjógvi, at koma í føroyska havn til eftirlit, áðrenn tey fara úr føroyskum sjógvi.
+Stk. 6. Treytað av, at eftirlitið verður mett nøktandi, kann Vørn eftir umsókn geva skipum, sum taka ímóti veiðu frá øðrum, undantak frá kravinum um at hava góðkenda innvigingarskipan sambært kunngerð um landingar og avreiðingar av fiski og fiskavørum.

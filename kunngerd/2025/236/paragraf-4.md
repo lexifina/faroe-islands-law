@@ -1,0 +1,1 @@
+§ 4. [^1] Av kvotuni sambært § 3, stk. 1 verða 12.222 tons latin eigarum av fiskiførum, sum í 2019 høvdu rættindi at fiska av egnari árskvotu av makreli, undantikið kvota keypt á uppboði, ella teimum, sum hesin rættur seinni er fluttur til. Fiskiskapurin verður skipaður við egnari árskvotu.

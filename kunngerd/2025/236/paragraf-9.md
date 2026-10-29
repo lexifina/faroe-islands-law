@@ -1,0 +1,1 @@
+§ 9. [^1] Av kvotuni sambært § 3, stk. 1 verða 1.321 tons latin eigarum av fiskiførum, sum í 2026 hava rætt til fiskiloyvi í bólki 3, sambært § 18, stk. 1, nr. 2 í løgtingslógini, og sum í 2022 høvdu rætt at fiska makrel ella teimum, sum hesi rættindi seinni eru flutt til. Fiskiskapurin verður skipaður við egnari árskvotu.

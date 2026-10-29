@@ -1,0 +1,1 @@
+§ 7. [^1] Av kvotuni sambært § 3, stk. 1 verða 649 tons latin eigarum av fiskiførum, sum í 2016 fingu útskrivað fiskiloyvi við fiskifari undir føroyskum flaggi at veiða rækjur í NEAFC-skipanarøkinum, og sum í 2025 høvdu rætt at fiska makrel ella fiskiførum, sum hesi rættindi seinni eru flutt til. Fiskiskapurin verður skipaður við egnari árskvotu.

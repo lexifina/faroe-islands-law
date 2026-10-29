@@ -1,0 +1,1 @@
+§ 5. [^1] Av kvotuni sambært § 3, stk. 1 verða 2.588 tons latin øðrum enn teimum í § 4 nevndu, sum í 2009 høvdu rætt til fiskiloyvi at fiska uppsjóvarfisk í føroyskum sjógvi, og sum í 2023 høvdu rætt at fiska makrel ella teimum, sum hesin rættur seinni er fluttur til. Fiskiskapurin verður skipaður við egnari árskvotu.

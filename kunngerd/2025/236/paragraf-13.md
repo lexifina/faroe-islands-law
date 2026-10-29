@@ -1,0 +1,2 @@
+§ 13. Eigari av ávísum fiskifari við kvotu sambært §§ 4-11 kann sambært § 34, stk. 4, 1. pkt. í løgtingslógini flyta kvotu, sum ikki er fiskað í 2026, til 2027, tó í mesta lagi eina nøgd, ið samsvarar við 10% av egnu árskvotuni í 2026.
+Stk. 2. Eigari av ávísum fiskifari við kvotu sambært §§ 4-11 kann, sambært § 34, stk. 4, 1. pkt. í løgtingslógini, fiska upp um egnu árskvotuna í 2026, tó í mesta lagi eina nøgd, ið samsvarar við 10% av egnu árskvotuni í 2026. Ov nógv fiskað í 2026 verður sambært § 34, stk. 4, 2. pkt. í løgtingslógini mótroknað av egnari árskvotu í 2027.

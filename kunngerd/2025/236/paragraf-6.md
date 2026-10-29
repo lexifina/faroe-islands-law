@@ -1,0 +1,1 @@
+§ 6. [^1] Av kvotuni sambært § 3, stk. 1 verða 649 tons latin eigarum av trolarum, hvørs fiskirættindi upprunaliga vóru avmarkað til altjóða sjógv, og sum í 2025 høvdu rætt at fiska makrel, ella teimum, sum hesin rættur seinni er fluttur til. Fiskiskapurin verður skipaður við egnari árskvotu.
