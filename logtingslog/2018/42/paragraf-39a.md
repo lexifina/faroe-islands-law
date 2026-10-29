@@ -1,0 +1,4 @@
+## Fyribils staðseting [^3]
+§ 39 a. [^3] Tá Familjufyrisitingin hevur tikið avgerð sambært § 11 um, at eitt barn skal ættleiðast eftir § 10, stk. 1 og 2, verður barnið fyribils staðsett hjá tí umsøkjara, sum barnið er ávíst til við atliti at ættleiðing. Fyribils staðsetingin steðgar, tá ið Familjufyrisitingin gevur loyvi til ættleiðing sambært § 1, ella rætturin avger, at avgerðin hjá Familjufyrisitingini um ættleiðing verður sett úr gildi, og kærufreistin er farin.
+Stk. 2. Umsøkjarin hevur, sambært § 8, stk. 5 í løgtingslóg um foreldramyndugleika og samveru, foreldramyndugleika yvir barninum, meðan barnið fyribils er staðsett hjá umsøkjaranum. Somuleiðis hevur umsøkjarin skyldu til at uppihalda barninum.
+Stk. 3. Landsstýrisfólkið kann áseta nærri reglur um fyribils staðseting sambært stk. 1.

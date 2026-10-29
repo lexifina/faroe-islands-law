@@ -1,0 +1,6 @@
+## Samráð og ógildan av góðkenning
+§ 26. Landsstýrismaðurin stovnar eitt samráð, ið letur Familjufyrisitingini tilmæli at nýta til avgerð hjá Familjufyrisitingini, hvørt ein umsøkjari kann góðkennast sum ættleiðari, sbr. § 4. Familjufyrisitingin syrgir fyri at fáa upplýsingar um umstøðurnar hjá umsøkjara til vega, ið liggja til grund fyri tilmælinum hjá samráðnum. Samráðið kann undir viðgerðini av málinum heita á Familjufyrisitingina um at innheinta fleiri upplýsingar, áðrenn samráðið letur sítt tilmæli.
+Stk. 2. Familjufyrisitingin kann gera av, at góðkenningin til at ættleiða fellur burtur, um treytirnar fyri at fáa eina góðkenning sum ættleiðari ikki eru til staðar longur, ella um umsøkjari annars ikki verður mettur at vera egnaður sum ættleiðari.
+Stk. 3. Samráðið er sett saman av trimum limum. Einum løgfrøðingi, einum lækna og einum við einari sosialari útbúgving við serkunnleika til børn.
+Stk. 4. Landsstýrismaðurin tilnevnir limirnar og varalimirnar, og verða hesir tilnevndir í upp til fýra ár í senn.
+Stk. 5. Tilmælini hjá samráðnum verða førd inn í eina gerðabók. Er semja í samráðnum um, at umsóknin ikki skal gangast á møti, verður ein stutt grundgeving fyri hesum førd inn í gerðabókina. Eru limirnir ikki samdir, verða tær ymsu grundgevingarnar førdar inn í gerðabókina.

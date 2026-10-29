@@ -1,0 +1,2 @@
+## Samtykki og váttan
+§ 24. Áðrenn ein ættleiðing verður ógildað sbrt. § 19, skal Føroya Rættur innheinta váttanir frá teimum persónum, hvørs samtykki ella váttan krevst í sambandi við, at ættleiðingarloyvi verður latið. Føroya Rættur kann tó gera av, tá ið serligar umstøður tala fyri tí, og spurningur ikki er um rættarligu viðurskiftini í mun til uppruna ættina skulu koma afturíaftur, at ein tílík váttan ikki skal innheintast.

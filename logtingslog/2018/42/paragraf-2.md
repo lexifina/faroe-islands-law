@@ -1,0 +1,1 @@
+§ 2. Ættleiðing kann bert loyvast, um mett verður út frá upplýsingunum í málinum, at ættleiðingin er til barnsins besta, og ynski er um, at barnið verður fostrað upp hjá ættleiðara ella er vorðið fostrað upp hjá ættleiðara, ella um onnur serlig orsøk er til ættleiðingina.

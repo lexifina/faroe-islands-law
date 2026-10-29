@@ -1,0 +1,1 @@
+§ 21. [^3] Er ikki møguligt sambært vanligu ásetingunum í Retsplejelov for Færøerne om rettens pleje at ávísa nakað varnarting, har mál um úrgildissetan av ættleiðing kann takast upp, avger danski løgmálaráðharrin hvønn rætt, málið skal leggjast fyri.

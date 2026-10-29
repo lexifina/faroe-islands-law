@@ -1,0 +1,2 @@
+§ 36. Hjálp at knýta samband millum persónar, ið ynskja at ættleiða, og eitt barn, við tí endamáli at fremja ættleiðing og annars at veita ættleiðingarhjálp, kann bert fremjast av landsstýrismanninum, Familjufyrisitingini og felagsskapum, ið eru nevnd í § 35.
+Stk. 2. Ásetingin í stk. 1 fevnir tó ikki um løgfrøðiliga hjálp og líknandi í sambandi við áheitan á teir nevndu myndugleikarnar ella til at útvega upplýsingar, ið krevjast frá hesum.

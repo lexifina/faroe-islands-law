@@ -1,0 +1,2 @@
+§ 4. Er tann, ið ynskist ættleiddur, undir 18 ár, kann ættleiðing bert verða loyvd, um umsøkjarin er góðkendur sum ættleiðari, sbrt. § 26.
+Stk. 2. Góðkenning sbrt. § 26, verður tó ikki kravd, tá barn hjá hjúnafelaga ella hjá samliva verður ættleitt. Ættleiðing sambært reglum, ásettum av landsstýrismanninum í førum, har tað er tættur skyldskapur ella annað serligt tilknýti ímillum ættleiðara og tað ættleidda barnið ella foreldrini hjá barninum, krevur heldur ikki góðkenning.

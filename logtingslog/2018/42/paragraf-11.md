@@ -1,0 +1,1 @@
+§ 11. [^1] Familjufyrisitingin kann eftir áheitan frá Føroya Kærustovni loyva, at eitt barn, sum er umsorganaryvirtikið, seinni verður burturættleitt, hóast samtykki sbrt. § 8 ikki verður fingið til vega. Loyvi kann bert latast sambært treytunum í § 10, stk. 2.

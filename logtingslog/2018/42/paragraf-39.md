@@ -1,0 +1,2 @@
+§ 39. [^4] Høvuðsmyndugleikin kann biðja Familjufyrisitingina og Føroya Kærustovn um ummæli viðvíkjandi ítøkiligum ella yvirskipaðum viðurskiftum av týdningi í mun til eftirlitið við einum felagsskapi, ið veitir ættleiðingarhjálp.
+Stk. 2. [^4] Familjufyrisitingin og Føroya Kærustovnur skulu boða Høvuðsmyndugleikanum frá um øll viðurskifti, ið sambært metingini hjá Føroya Kærustovni ella Familjufyrisitingini hava ella kunnu hava týdning fyri eftirlitið við einum felagskapi, ið veitir ættleiðingarhjálp.

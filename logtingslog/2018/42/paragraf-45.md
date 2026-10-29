@@ -1,0 +1,2 @@
+§ 45. Fyri ættleiðingar, sum eru stovnaðar innan 1. januar 1957, og sum ikki eru fevndar av § 46, stk. 1, nr. 2 ella 3, er Lov nr. 87 af 26. mars 1923 om adpotion galdandi, tó undantikið § 13, stk. 2, og §§ 18-24 í Anordning nr. 1169 frá 25. november 2006 om ikrafttræden for Færøerne af lov om adoption.
+Stk. 2. Landsstýrismaðurin kann, tá ið umstøðurnar tala fyri hesum, geva einari ættleiðing, ið er stovnað innan 1. januar 1957, rættarvirknað eftir kapittul 2 í hesari løgtingslóg.

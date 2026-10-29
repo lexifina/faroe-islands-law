@@ -1,0 +1,6 @@
+## Rættarvirknaður av úrgildissetan
+§ 23. Verður ein ættleiðing ógildað, fellur rættarvirknaðurin av ættleiðingini millum tað ættleidda barnið og ættleiðara og ættina hjá hesum burtur. Um serlig viðurskifti tala fyri tí, kann Føroya Rættur, í sambandi við úrgildissetan sbrt. § 19, avgera, at ættleiðari skal gjalda uppihaldspening fyri barnið.
+Stk. 2. Verður ættleiðingin sett úr gildi sbrt. § 18, stk. 2 ella 5, koma tey rættarligu viðurskiftini millum barnið og uppruna ættina afturíaftur.
+Stk. 3. Í teimum førum, ið nevnd eru í § 19, kann Føroya Rættur við atliti til orsøkina til úrgildissetanina, aldurin hjá barninum og umstøðurnar annars avgera, at rættarligu viðurskiftini millum ættleidda barnið og uppruna ættina skulu koma afturíaftur.
+Stk. 4. Er ættleiðingin sett úr gildi fyri persón, ið er fyltur 18 ár, kann Familjufyrisitingin ella Føroya Rættur sambært umbøn frá tí ættleidda avgera, at rættarligu viðurskiftini millum ættleidda og uppruna ættina skulu koma afturíaftur, um uppruna foreldrini samtykkja hetta. Um bert annað av uppruna foreldrunum samtykkir sbrt. 1. pkt., kann verða avgjørt at rættarligu viðurskiftini skulu koma afturíaftur í mun til tað foreldrið og ættina hjá hesum.
+Stk. 5. Annars íafturkemur ongin rættarvirknaður í mun til upprunaættina.
