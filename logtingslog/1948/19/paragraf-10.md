@@ -1,0 +1,1 @@
+§ 10. Sóknarstýri, bygginevnd og landfúti, sum fáa kunnleika um viðurskifti, ið eftir frammanfyri standandi greinum mega hava landsstýrisins áhuga at fáa vitan um, skulu uttan steðg siga stýrinum frá.

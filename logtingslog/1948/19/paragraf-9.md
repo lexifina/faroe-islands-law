@@ -1,0 +1,1 @@
+§ 9. Í samráð við fornminnisnevndina ger landsstýrið lista yvir kirkjur og kirkjuinnbúgv og avger, hvørjar kirkjur og hvat kirkjuinnbúgv friðing skal galda fyri. Fyri slíkar galda reglurnar í hesi lóg um friðing av verðsligum byggningum.

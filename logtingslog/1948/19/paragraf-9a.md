@@ -1,0 +1,2 @@
+§ 9 a. [^2] Lutir eldri enn 100 ár við listarligum, mentunnarligum ella søguligum virði mugu ikki flytast av landinum uttan við loyvi frá landsantikvarinum. Forboðið er galdandi fyri lutir bæði í privatari og almennari ogn. Er ivi um aldurin á einum luti ella noktar landsantikvarurin útflutningsloyvi, tekur landsstýrið endaliga avgerð.
+Antikvarurin kann við landsstýrisins góðkenning nokta útflutning av sera merkisverdum lutum, ið eru yngri enn omanfyri tilskilað.

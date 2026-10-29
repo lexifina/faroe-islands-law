@@ -1,0 +1,2 @@
+§ 3. Avgerð um, hvørvítt hitt listarliga ella søguliga virðið í byggninginum er nóg stórt til, at byggningurin skal verða settur á listan, verður tikin av landsstýrinum eftir tilmæli frá fornminnisnevndini, og avvarðandi kunna ikki flyta málið fram fyri dómstól.
+Landsstýrið setur fornminnisnevndina við 3 limum, sum eru stjóri fyri Føroya Forngripasavni, ein løgfrøðingur og ein byggningskønur maður. Landsstýrið velur formannin. Nevndin verður vald fyri 4 ár.

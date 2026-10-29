@@ -1,0 +1,1 @@
+§ 7. Øllum av eldbruna ella aðrari vanlukku orsakaðum skaða á byggning, sum stendur á listanum, skal ánarin ella brúkarin beinan vegin boða landsstýrinum frá, og stýrið letur tá sum skjótast skaðan sýna. Við møguligari umvølan av byggninginum er ánarin skyldugur at fylgja teim í § 6 givnu reglum.

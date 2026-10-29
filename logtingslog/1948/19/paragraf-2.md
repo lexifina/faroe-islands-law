@@ -1,0 +1,2 @@
+§ 2. Landsstýrið letur gera staðarskipaðan lista yvir verðsligar byggningar ella byggningspartar, sum verða at friða. Á listan, ið verður kannaður 5. hvørt ár, mega til hvørja tíð bert verða tiknir byggningar ella byggningspartar, sum hava listarligt ella søguligt virði og vanliga eisini eru yvir 100 ára gamlir.
+[^1] Umliggjandi øki innan fyri 100 m frá friðaðum bygningum kann verða lagt undir friðing samsvarandi reglunum í § 1.
