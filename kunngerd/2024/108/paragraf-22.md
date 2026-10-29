@@ -1,0 +1,3 @@
+## Revsing
+§ 22. [^2] Er ikki hægri revsing ásett í aðrari lógávu, verður við sekt ella fongsli upp í eitt ár, ella undir skerpandi umstøðum fongsli upp í tvey ár, tann revsaður, sum tilætlað ella av grovum ósketni brýtur ásetingarnar í § 5, stk. 1, § 6, stk. 1 og 3, § 7, stk. 1, § 8, stk. 1, § 10, stk. 1, § 11, stk. 1, § 12, § 13, stk. 1 og 2, § 14, § 15 stk. 1, § 17, stk. 1 og 2, § 19, stk. 1 og § 21. Á sama hátt verður tann revsaður, sum í sambandi við eina umsókn um undantak eftir § 20, tilætlað ella av grovum ósketni letur myndugleikanum ósannar ella villleiðandi upplýsingar eftir § 20, stk. 2-4.
+Stk. 2. Feløg og aðrir løgfrøðiligir persónar verða revsaðir sambært reglunum í kapittul 5 í revsilógini.
