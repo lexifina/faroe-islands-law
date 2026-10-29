@@ -1,0 +1,1 @@
+§ 6. Limir, ið ikki fáa møtt á fundi, skulu skjótast gjørligt geva skrivstovuni hjá eftirlitinum boð um hetta. Limurin gevur tá sjálvur boð til varalimin um at møta á fundinum og gevur varaliminum tað tilfar, sum longu er sent limunum.

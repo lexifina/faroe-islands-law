@@ -1,0 +1,1 @@
+§ 13. Eftirlitið ger eina árliga frágreiðing um sítt virksemi. Frágreiðingin inniheldur yvirskipaðu úrslitini frá góðskueftirlitinum. Úrslitini verða almannakunngjørd í hagfrøðiligum líki uttan at tilskila, hvørji grannskoðanarvirkini eru. Frágreiðingin verður almannakunngjørd á heimasíðuni hjá Skráseting Føroya - www.skraseting.fo.

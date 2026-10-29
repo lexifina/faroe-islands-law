@@ -1,0 +1,1 @@
+§ 4. Formaðurin í Grannskoðaraeftirlitinum skipar og leiðir arbeiðið hjá eftirlitinum. Formaðurin syrgir fyri, at avgerðir hjá eftirlitinum verða almannakunngjørdar og útintar. Formaðurin undirskrivar avgerðir hjá eftirlitinum.

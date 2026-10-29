@@ -1,0 +1,4 @@
+## Kapittul 1
+## Limir og skrivstova hjá Grannskoðaraeftirlitinum
+§ 1. [^1] Grannskoðaraeftirlitið hevur 1 formann og 4 aðrar limir, harav 2 limir skulu hava hóskandi útbúgving og viðkomandi royndir innan grannskoðan og roknskapargreiðslu, og 2 limir skulu umboða roknskaparbrúkararnar. Formaðurin og limirnir skulu ikki innanfyri seinastu 3 árini hava verið góðkendir grannskoðarar ella hava verið í starvi hjá ella rikið eitt grannskoðanarvirki saman við góðkendum grannskoðarum. Fyri hvønn lim verður valdur ein varalimur. Tá ið limur hevur forfall luttekur varalimurin í hansara stað. Varalimirnir verða valdir á sama hátt sum limirnir.
+Stk. 2. Skráseting Føroya tilnevnir formannin, limirnar og varalimirnar fyri í mesta lagi eitt 4 ára tíðarskeið hvørja ferð. Limirnir kunnu verða tilnevndir aftur, tá ið hetta tíðarskeiðið er farið.
