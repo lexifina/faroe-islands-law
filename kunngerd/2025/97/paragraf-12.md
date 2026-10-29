@@ -1,0 +1,1 @@
+§ 12. Brýtur flutningsfyritøka ella speditørur § 1, stk. 2, § 3, stk. 1, §§ 4-8, § 9, stk. 1-5, § 10 ella § 11, stk. 2 í hesi kunngerð, ella tær í loyvinum ásettu treytir, kann TAKS taka loyvið eftir kunngerðini aftur.

@@ -1,0 +1,2 @@
+§ 5. Flutningsfyritøka skal skráseta góðs, sum kemur til Føroyar við flogfari, sum flutningsfyritøkan rekur, elektroniskt í skipan hjá TAKS í seinasta lagi, tá ið flogfarið fer úr útlendskari floghavn.
+Stk. 2. Er tað eitt høvuðsgóðs, skal flutningsfyritøka ella speditørur beinanvegin býta góðsið sundur, og í minsta lagi skráseta móttakara av vøruni, avsendara av vøruni, kolli, vekt og vøruheiti elektroniskt í skipan hjá TAKS. Er talan ikki um høvuðsgóðs, skal góðsið skrásetast á sama hátt sum ásett í 1. pkt. TAKS kann krevja aðrar skrásetingar.

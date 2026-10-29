@@ -1,0 +1,1 @@
+§ 8. Flutningsfyritøka ella speditørur kann bert strika góðs eftir vegleiðing frá TAKS. Tann, sum strikar góðs, skal elektroniskt í skipan hjá TAKS grundgeva fyri, hví góðs er strikað. TAKS vegleiðir um, hvussu grundgevast skal. Allar aðrar broytingar ella strikingar av góðsi skulu til TAKS til avgreiðslu.

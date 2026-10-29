@@ -1,0 +1,4 @@
+§ 6. Flutningsfyritøka ella speditørur kann ikki útflýggja vøru, sum er komin við skipi, fyri enn 24 tímar eru gingnir frá tí góðsið er skrásett í skipan hjá TAKS sambært § 4, stk. 2. TAKS kann geva loyvi til, at vøra kann útflýggjast, áðrenn 24 tímar eru gingnir.
+Stk. 2. Flutningsfyritøka ella speditørur kann ikki útflýggja vøru, sum er komin við flogfari, fyri enn 6 tímar eru gingnir frá tí góðsið er skrásett í skipan hjá TAKS sambært § 5, stk. 2. TAKS kann geva loyvi til, at vøra kann útflýggjast, áðrenn 6 tímar eru gingnir. TAKS kann geva loyvi til, at ávís vøra altíð kann útflýggjast áðrenn 6 tímar eru gingnir. TAKS kann taka loyvið eftir pkt. 2 og 3 aftur.
+Stk. 3. Hóast ásetingina í § 6, stk. 1 og 2 kann flutningsfyritøka ella speditørur útflýggja vøru til speditørar, sum hava loyvi frá TAKS eftir hesi kunngerð.
+Stk. 4. § 6, stk. 1 og 2 eru ikki galdandi fyri vøru, sum kemur við posti til P/F Postverk Føroya.
