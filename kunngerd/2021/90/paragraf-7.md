@@ -1,0 +1,2 @@
+§ 7. Starvssetti hevur ikki rætt til røkt ella fría heimferð, um viðkomandi svikafult hevur dult sjúkuna ella løstin við setanina. Sama er, um viðkomandi eftir setanina við vilja ella av grovum ósketni verður skaddur ella sjúkur.
+Stk. 2. Starvssetti ber harafturat útreiðslur í sambandi við heimferðina aftaná, at freistirnar upp á ávikavist 16 ella 2 vikur, í § 30, stk. 2, sbr. § 35 í løgtingslógini, eru farnar.

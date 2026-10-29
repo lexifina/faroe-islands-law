@@ -1,0 +1,1 @@
+§ 5. Starvssetti kann siga frá sær rættin til fría heimferð. Hetta er tó ikki galdandi fyri ferðina til heimstaðin ella mynstringarstaðið í sambandi við røkt, sum er ein avleiðing av sjúku ella skaða. Um starvssetti hevur sagt frá sær rættin til fría heimferð, kann starvssetti ikki krevja endurgjald ístaðin.

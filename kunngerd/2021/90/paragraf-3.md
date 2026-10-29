@@ -1,0 +1,1 @@
+§ 3. Ferðin skal leggjast til rættis soleiðis, at hon verður framd skjótast gjørligt. Vanligur ferðaháttur á heimferðini eigur at vera við flogfari og annars við einum og hvørjum almennum flutningsfari. Til ber at avtala annan serligan ferðahátt. Tá ið ferðin verður løgd til rættis, skulu fyrilit vera fyri ynskjum og heilsustøðu hjá starvssetta og fyri útreiðslunum.

@@ -1,0 +1,1 @@
+§ 8. Fyri starvssett við bústaði í Føroyum rindar landið útreiðslurnar til heimferðina og til bústaðin í Føroyum, um talan er um sjúku sambært § 30, stk. 5 í løgtingslógini, ið hevur verið ella kann hava verið orsøk til, at starvið heldur uppat.

@@ -1,0 +1,1 @@
+§ 4. Tá starvssetti fer av skipinum, og heimferðin er til Føroya sbrt. § 8 í løgtingslógini, má kravið um heimferð verða sett fram samstundis, sum tann starvssetti sigur upp ella biður um at verða loystur úr starvi.
