@@ -1,0 +1,3 @@
+## Fyribyrgjandi og heilsufremjandi kanningar og ráðgeving hjá heilsufrøðingi
+§ 5. Børn og ung skulu fáa tilboð um fyribyrgjandi kanningar og ráðgeving frá heilsufrøðingi, frá føðing til ásetta undirvísingarskyldan endar.
+Stk. 2. Onnur enn tey, ið eru nevnd í stk. 1, og sum hava tørv á tí, kunnu eisini fáa ráðgeving frá heilsufrøðingi. Hesi kunnu t.d. vera barnakonur, foreldur, fosturforeldur, sum hava tørv á vegleiðing og ráðgeving í mun til foreldraførleika ella foreldraleiklut, og foreldur ella fosturforeldur at børnum við likamligum og sálarligum brekum, sosialum trupulleikum ella varandi sjúkum.

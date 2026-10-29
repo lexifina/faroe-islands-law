@@ -1,0 +1,1 @@
+§ 4. Í sambandi við kanningarnar, sum verða bjóðaðar barninum og tí unga við ávikavist byrjan av skúlatíð barnsins og stutt fyri, at ásetta undirvísingarskyldan endar, veitir heilsufrøðingurin ella kommunulæknin neyðuga vegleiðing, ávísing og uppfylgjan.
