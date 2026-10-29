@@ -1,0 +1,1 @@
+§ 1. Landsstýrið verður heimilað til við kunngerð at seta neyðturviligar reglur í gildi statistikki viðvíkjandi fyri tey sambært lóg um heimastýri Føroya til heimastýrið fluttu sermál og herundir áleggja avvarandi skyldu at geva neyðturviligar upplýsingar.
