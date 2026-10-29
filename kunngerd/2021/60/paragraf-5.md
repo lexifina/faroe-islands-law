@@ -1,0 +1,1 @@
+§ 5. Er skattur rindaður uttanlands av inntøku, sum eftirlønargjald er rindað av, verður eftirlønarprosentið, sbrt. § 12, stk. 2 í eftirlønarlógini, lækkað við lutfallinum millum samlaða skattin, sum er rindaður uttanlands, og samlaðu uttanlandsinntøkuna. Lækkingin kann tó í mesta lagi samsvara við eftirlønarprosentið, sbrt. § 12, stk. 2 í eftirlønarlógini.

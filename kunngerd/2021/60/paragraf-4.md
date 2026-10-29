@@ -1,0 +1,2 @@
+§ 4. Tá inntøkuárið verður gjørt upp, verður staðfest, um nøktandi eftirlønargjald er goldið. Manglandi eftirlønargjald skal rindast í seinasta lagi 1. november árið eftir inntøkuárið. Verður eftirlønargjald ikki rindað rættstundis, kann TAKS fara fram eftir § 2, stk. 7 í eftirlønarlógini.
+Stk. 2. Um eftirlønarsamansparari ikki kann vísa á eina eftirlønaravtalu, verður eftirlønarupphæddin set á depotkonto hjá TAKS, og farið verður fram, sbrt. § 16 a í eftirlønarlógini.
