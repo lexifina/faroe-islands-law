@@ -1,0 +1,1 @@
+§ 1. “Sundhedsstyrelsens bekendtgørelse nr. 777 af 12. december 1989 om forbrugerpakninger til lægemidler optaget i sundhedsstyrelsens specialitetsregister” fær gildi í Føroyum við tí fráviki, at heimildir heilsustýrisins liggja hjá landsapotekaranum.
