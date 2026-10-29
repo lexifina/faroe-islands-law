@@ -1,0 +1,1 @@
+§ 1. Feløg, sum eru fevnd av § 1, stk. 3-6, í løgtingslóg nr. 55 frá 9. juni 2008 um tryggingarvirksemi, kunnu viðvíkjandi tryggingarvirkemi, fevnt av fylgiskjali 2 til løgtingslóg um tryggingarvirkemi, reka tryggingarvirksemi í Føroyum.
