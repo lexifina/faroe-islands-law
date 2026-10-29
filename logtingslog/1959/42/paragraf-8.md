@@ -1,0 +1,2 @@
+§ 8. Ongin má vanvirða flaggið hvørki í orðum ella gerðum. Tað er ólógligt at gera nýtslu av flagginum sum merki hjá einstøkum persónum, feløgum ella stovnum ella sum eyðkenni á atgongumerkjum ella á annan tílíkan hátt.
+Tað er bert loyvt at nýta flaggið í reklamuendamáli, herundir at seta endurgevingar á vørur, sum verða bodnar út til sølu, ella á tílíka vøru etikette ella íløt, tá ið vøran er føroysk framleiðsla. Sama er galdandi fyri vøru- og firmamerkir.

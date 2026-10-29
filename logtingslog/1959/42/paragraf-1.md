@@ -1,0 +1,1 @@
+§ 1. [^1] Føroya flagg er hvítt krossmerki. Krossurin er fagurreyður (PMS 032) og azurblárandaður (PMS 300). Reyði liturin er 1/8 av flaggsins breidd og bláu rendurnar 1/2 av reyða litinum. Teir hvítu teigarnir eru ferhyrndir. Teir næst stongini javnliðaðir, men hinir tvær ferðir so langir. Munurin millum breidd og longd flaggsins er sum 8-11.

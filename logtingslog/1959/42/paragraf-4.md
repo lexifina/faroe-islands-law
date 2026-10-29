@@ -1,0 +1,1 @@
+§ 4. Flaggið verður at vinda á stong, sum tilætlað er flagginum. Verður stongin sett á hús, kann hon antin standa steyrrætt upp frá taki ella út frá klædningi, tó má stongin altíð standa, so tað hóskar. Tað sama er eisini galdandi fyri stong, sum reist er frá jørð. Á skipi og báti skal stongin altíð vera í afturenda ella kann afturmastur nýtast.
