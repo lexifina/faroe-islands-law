@@ -1,0 +1,2 @@
+§ 1. Landsstýrismanninum verður heimilað av árligu játtanini á fíggjarlógini og eftir umsókn at veita kommunum stuðul til íløgur í infrakervið í Fugloy, Svínoy, Mykinesi, Kalsoy, Hesti, Koltri, Skúvoy og Stóru Dímun.
+Stk. 2. Harumframt verður landsstýrismanninum heimilað í leypandi fíggjarári at geva tilsagnir um, at stuðul verður veittur av árligu játtanini í tveimum fylgjandi fíggjarárum. Upphæddin, sum tilsøgn verður givin um, skal í hvørjum 1. ella 2. fylgjandi fíggjarári ikki fara upp um játtaðu upphæddina í leypandi fíggjarárinum.

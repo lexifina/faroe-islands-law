@@ -1,0 +1,2 @@
+§ 2. Landsstýrismanninum verður heimilað at veita stuðul til íløgur í infrakervið til byggi- og løguarbeiði viðvíkjandi samferðslu og samskifti og byggi- og løguarbeiði til vinnulig, mentanarlig, ítróttarlig og onnur endamál, innanfyri karmarnar í § 50 í Kommunustýrislógini.
+Stk. 2. Landsstýrismanninum verður heimilað at áseta nærri reglur um, hvussu stuðulin verður umsitin, hvat stuðul verður veittur til, treytir fyri at fáa stuðul og um afturgjald av útgoldnum stuðli.
