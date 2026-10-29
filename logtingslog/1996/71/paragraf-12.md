@@ -1,0 +1,1 @@
+§ 12. Rindar ein gjaldsskyldugur til tað almenna eina upphædd til fullnað fyri forskotsvíst útgoldin gjøld, hevur hann rætt til at krevja, at upphæddin fyrst verður nýtt til fullnað fyri tann partin av gjøldunum, har avgerð er tikin um avsiting.

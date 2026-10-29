@@ -1,0 +1,2 @@
+§ 8. Rætturin til at krevja gjald útgoldið forskotsvíst stendur við til og við ársdagin fyri forfallsdegnum fyri gjaldinum.
+Stk. 2. Um barnið, um tað mundið eitt gjald verður kravt útgoldið forkostsvíst, verður uppihildið av tí almenna, ella foreldur tess búgva saman um hetta mundið, ella móðirin býr saman við tí gjaldsskylduga, kann gjald einans útgjaldast fyri tíðina inntil almenna umsorganin ella samlívið byrjar.

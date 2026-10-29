@@ -1,0 +1,1 @@
+§ 4. Verður biðið um at fáa gjald útgoldið fyri tíðina frammanundan dagsetingini á gjaldsskjalinum, kann gjaldið verða útgoldið hálvárliga í tann mun, sum treytirnar hava verið loknar á teimum hálvárligu forfalsdøgunum, sum høvdu komið, um gjaldsskjalið hevði verið til við byrjanini av gjaldstíðarskeiðnum.

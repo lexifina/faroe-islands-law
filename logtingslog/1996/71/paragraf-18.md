@@ -1,0 +1,2 @@
+§ 18. [^3] [^1] Gjaldið verður útgoldið av Almannaverkinum mánaðarliga frammanundan. Gjaldið verður útgoldið fyrstu ferð fyri mánaðin aftan á tann mánaðin, tá treytirnar fyri at fáa gjaldið eru loknar, og seinastu ferð fyri tann mánaðin, tá rætturin til gjaldið heldur uppat. Gjøld sum skulu veitast einum barni, aftan á at ein gjaldsskyldugur er deyður, verða útgoldin frá endanum av tí tíðarskeiðnum, sum tað seinast er útgoldið gjald fyri sambært lóggávuni um rættarstøðu barnanna.
+Stk. 2. [^5] (Strikað).

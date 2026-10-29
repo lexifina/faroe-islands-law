@@ -1,0 +1,1 @@
+§ 14. Um tann gjaldsskyldugi er staddur í Danmark ella Grønlandi, verða reglurnar sambært tí har galdandi lóggávuni um innheinting av forskotsvíst útgoldnum gjøldum og um eftirgeving av slíkum gjøldum v.m. nýttar.

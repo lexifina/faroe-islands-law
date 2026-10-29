@@ -1,0 +1,2 @@
+§ 6. [^2] [^4] Um tær í § 3 nevndu treytir eru loknar, kunnu serstøk gjøld, sum eru ásett sambært lógini um rættarstøðu barnanna til útreiðslur í samband við føðing og uppihald til móðrina fyri og aftaná føðing, rindast forskotsvíst.
+Stk. 2. Um tær í § 3 nevndu treytir eru loknar, kunnu serstøk gjøld, sum eru ásett sambært lógina um rættarstøðu barnanna til útreiðslur í samband við barnsins dóp, konfirmatión, sjúku ella jarðarferð ella av øðrum serligum orsøkum, rindast forskotsvíst av tí almenna við eini upphædd, sum liggur innanfyri tað markið, sum háyvirvaldið setir.

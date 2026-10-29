@@ -1,0 +1,1 @@
+§ 11. Tað almenna skal hjá tí gjaldsskylduga royna at innheinta alla upphæddina, sum sambært resolutiónini eftir lógini um rættarstøðu barnanna eigur at verða rindað. Um so er, at upphæddin, sum verður innheintað er størri enn forskotsvís útgoldnu gjøldini, verður avlopsupphæddin útgoldin til tann, sum hevur rætt til at krevja barnagjaldið.

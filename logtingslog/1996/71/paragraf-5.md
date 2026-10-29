@@ -1,0 +1,1 @@
+§ 5. [^2] [^3] Gjald kann verða kravt útgoldið forskotsvís við tí upphædd, sum er ásett við heimild í lógini um rættarstøðu barnanna, tó í mesta lagi við eini upphædd, ið svarar til tað vanliga gjaldið sambært lógini um áseting og javning av almannaveitingum.

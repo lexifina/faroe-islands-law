@@ -1,0 +1,2 @@
+§ 2. Um barnagjaldið, ásett sambært lóggávuna um rættarstøðu barnanna, ikki er goldið forfallsdagin, kann tann persónur, sum hevur rætt til at innheinta gjaldið, biðja um, at tað verður goldið av tí almenna.
+Stk. 2. Í sáttmála við onnur lond kann ásetast, at eitt útlendskt gjaldsskjal kann verða javnsett við eitt føroyskt, danskt og grønlendskt gjaldsskjal í samband við forskotsvísari rindan av barnagjaldi. Fyritreytin fyri javnseting er, at skjalið í viðkomandi landi kann verða nýtt sum grundarlag fyri rættiligari innheintan av barnagjaldi.
