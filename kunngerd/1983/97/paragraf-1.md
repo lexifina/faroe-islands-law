@@ -1,0 +1,2 @@
+§ 1. Ein skrá verður gjørd yvir teir persónar, feløg og felagsskapir v.m., sum eru ávísingarskyldugir eftir 6. kapitli í lóg um landsskatt og kommunuskatt. Líkningarráð Føroya stovnar og umsitur skránna, sum verður nevnd arbeiðsgevaraskráin.
+2. stk. Fyri partafeløg er serstakliga galdandi, at hesi uttan mun til ávísingarskyldu annars verða tikin við í arbeiðsgevaraskránni. Tað í § 4 í hesi kunngerð nevnda arbeiðsgevaratal verður samstundis skrásetingartal hjá tí einstaka felagnum í skattaskránni.

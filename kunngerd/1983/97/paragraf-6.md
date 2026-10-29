@@ -1,0 +1,1 @@
+§ 6. Føroya Landsstýri ásetir støddina á teimum í § 126 í lógini nevndu dagligu sektunum í teimum førum, tá ið ein ávísingarskyldugur ber seg undan at gera eftir teimum reglum, sum nevndar eru frammanfyri.
