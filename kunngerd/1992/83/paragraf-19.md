@@ -1,0 +1,7 @@
+## Kapittul 3.
+## Broytingar skráseting.
+§ 19. Er eigarin føroyskur, jvb. § 2, stk. 2, skal broyting skrivliga verða meldað til skrásetingina av øllum ábyrdarluttakarum fyri íognarfeløg og samløgufeløg og av nevndini fyri feløg ella felagsskapir, møguliga próvført við íognarsáttmála ella við gerðabókum ella úrskrift úr gerðabókum. Tilmeldingin skal verða undirskrivað av øllum ábyrgdarluttakarum ella nevndarlimum, bæði farandi og komandi ábyrgdarluttakarum og limum. Komandi ábyrgdarluttakarar ella nevndarlimir skulu eisini skriva undir tjóðskaparváttan sum nevnt í § 3, stk. 1. Skipaskrásetingin kann í heilt serligum føri loyva frávik í hesum reglum, jvb. § 3, stk. 2.
+Stk. 2. Broytingar í stjórn ella viðvíkjandi korresponderandi reiðara skal avvarðandi nevnd melda til. Hetta er eisini galdandi fyri broytingum um nýggjar tekningarreglur um sølu og veðseting skipa.
+Stk. 3. Fyri partsreiðarí, sum hevur valt nýggjan stjórnandi reiðara, skulu partsreiðarar skrivliga melda hetta til.
+Stk. 4. Er eigarin útlendskt felag, er tað skylda eigarans skrivliga at melda til broytingar í upplýsingum, sum eru meldaðir til eftir § 2, stk. 4 og § 3, stk. 3.
+Stk. 5. Verða gjørdar broytingar við atliti av slag av skipi, nýtsluhátti, kenningarmáli, tonsatali ella framtøkumegi, skal reiðaríið, innan 30 dagar eru farnir eftir, at broyting er gjørd, melda broytingina til. Fráboðanartreytin er lokin, um fráboðan er gjørd til Skipaeftirlitið innan hesa freist.

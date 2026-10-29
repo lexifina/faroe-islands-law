@@ -1,0 +1,1 @@
+§ 56. Eru 10 ár runnin, uttan at nakað er móttikið frá skipi, sum er skrásett í Føroysku Altjóða Skipaskránni, og tað verður mett, at skipið ikki longur er til, kann skipaskrásetingin taka avgerð um, at skipið verður strikað úr skránni, tó ikki áður enn kallað er inn eftir reglunum sambært § 55.

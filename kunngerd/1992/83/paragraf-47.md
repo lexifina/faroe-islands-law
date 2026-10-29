@@ -1,0 +1,1 @@
+§ 47. Striking eftir § 46 verður gjørd soleiðis, at innførslan í skránni verður strikað yvir, tó so at tað upprunaliga innihaldið framvegis er lesandi. Eftirskjølini av skrásettum skjølum verða tikin upp úr skipsmappuni.

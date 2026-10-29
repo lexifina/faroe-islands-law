@@ -1,0 +1,2 @@
+§ 46. Skrásett rættindir kunnu strikast, um skrivlig samtykki liggur fyri frá honum, sum í skránni stendur sum rættindishavari, ella prógv er fyri, at rættindini eru dottin burtur eftir sínum innihaldi, eftir dómi ella øðrum rættarúrskurði.
+Stk. 2. Til strikingar av pantibrøvum, sum eru umfarspappír, krevst kvittað pantibræv fyrilagt, prógv fyri ógilding ella uppathald eftir dómsavgerð. Pantibrøv til ríkiskassan, landskassan og teir av hesum stovnaðu lánistovnar kunnu tó eftir avgerð skipaskrásetinganna strikast móti kvittan frá rættindishavaranum sambært skránni.

@@ -1,0 +1,2 @@
+§ 20. Verður skrásett skip ella partur í skipi latið av hondum til føroyskan keypara, hava seljari og keypari skyldu at melda hetta til. Seljari hevur skyldu til at útvega keypara skeyti.
+Stk. 2. Er nýggjur eigari ikki frammanundan skrásettur sum eigari av føroyskum skipi ella parti í skipi, skal tilmelding um skráseting eftir § 2 verða gjørd og tjóðskaparváttan eftir § 3, stk. 1 verða skrivað. Annars skal nýggjur eigari samstundis við skeytinum skrivliga geva upp, hvørji føroysk skip ella partar í skipi, sum avvarðandi longu er skrásettur eigari í.

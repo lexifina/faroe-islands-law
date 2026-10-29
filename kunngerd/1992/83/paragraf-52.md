@@ -1,0 +1,2 @@
+§ 52. Er tað í einum pantibrævi ásett, at høvuðsstólur og restskuld fylgir einum ávísum indeksi (indekspantibræv), kann tað uttan avmarkingar av § 51, stk. 3, 1. pkt., í einum aftanfyri standandi pantibrævi gyldugt samtykkjast, at pantirættur tess tekur seg fram, so hvørt sum indekspantibrævið verður avdrigið ella verður innloyst við gjøldum, sum eru tíðarfest sambært pantibrævinum.
+Stk. 2. § 51, stk. 3, 2.-4. pkt., verða at nýta samsvarandi.

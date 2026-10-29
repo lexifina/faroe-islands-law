@@ -1,0 +1,3 @@
+§ 38. Við strikingina verður rætturin mistur at hava skipið undir føroyskum flaggi og rætturin til navnið, jvb. tó § 2, stk. 7 og § 36, stk. 4.
+Stk. 2. Rætturin til navnið kann tó skilast eigaranum til, tá hann biður um tað, fyri eitt tíðarskeið uppá 3 ár, frá strikingini uttan so, at skipið verður flutt til Skipaskránna.
+Stk. 3. Skipaskrásetingin kann skjóta út strikingina, um so er, at viðurskiftini, sum skuldu vera orsøk til strikingina, jvb. § 36, stk. 1, 2 og 4, kunnu væntast rættað, ella vónir eru fyri, at skipið kemur afturíaftur ella verður bjargað ella umvælt innanfyri eina av skipaskrásetingini fyrisettari freist.

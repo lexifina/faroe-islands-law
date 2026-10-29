@@ -1,0 +1,4 @@
+§ 32. Skipaskrásetingin kann geva út fyribils tjóðskaparbræv í niðanfyri standandi føri:
+a) til ikki skrásett føroyskt skip, sum er liðugt bygt á føroyskari skipasmiðju, ella tá tað eftir at vera keypt í útlandinum og hevur fingið fyribils tjóðskaparbræv frá donskum uttanríkisumboði er komið í føroyska havn. Treytin fyri útgávu er tó, at skipið er meldað til skráseting, og at mett verður um haldgóð próvførsla, at skipið lýkur skrásetingartreytirnar, og at vansketni reiðarans er ikki orsøk til, at skipið ikki kundi skrásetast. Fyribils tjóðskaparbræv verður givið fyri einstaka ferð í senn og vanliga bert til komu í føroyska ella nærliggjandi útlendska havn,
+b) til skrásett skip, tá tjóðskaparbrævið er ikki um borð. Fyribils tjóðskaparbræv verður tá bert givið parbræv til nýbygd skip á føroyskari ella danskari skipasmiðju til tess, at royndartúrar kunnu gerast.
+Stk. 3. Skipaskrásetingin kann taka aftur fyribils tjóðskaparbrøv, um misnýtsla verður staðfest.

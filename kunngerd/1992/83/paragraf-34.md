@@ -1,0 +1,1 @@
+§ 34. Skipaeftirlitið hevur eftirlit við, at navn, heimstaður og kenningarbókstavir eru merktir á skipum og at merkingin verður hóskandi røkt. Skipaeftirlitið kann í hesum sambandi gera avtalur við aðrar almennar myndugleikar um at ansa merkingini og hevur skyldu at boða Skipaskrásetingini frá, um boð ikki verða hildin.

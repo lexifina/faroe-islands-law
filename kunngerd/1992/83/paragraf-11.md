@@ -1,0 +1,2 @@
+§ 11. Øll skjøl, sum verða meldað til skráseting, skulu vera á føroyskum ella donskum. Byggiváttanir, ognarbrøv, pantibrøv og skaðaloysisbrøv skulu vera skrivað á oyðubløð, sum landsstýrið hevur góðkent. Skipaskrásetingin kann í serligum føri loyva, at eisini onnur skjøl verða tikin upp til skrásetingar.
+Stk. 2. Árit til eins og strikingar og rættingar til tann partin av pantibrøvum og skaðaloysisbrøvum, sum oyðiblaðnum er skilt úr sum siðvenja, kunnu bert verða gjørdar, um hesar eru endurgivnar fyri seg í skjalinum.

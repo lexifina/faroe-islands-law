@@ -1,0 +1,3 @@
+§ 49. Tá skjal er ført inn í skránna, kann eingin atfinning gerast móti tess gildi afturímóti honum, sum í góðari trúgv hevur fingið tað eftir skrásetta avtalu. Tað sama er eisini galdandi hjá honum, sum fær pantibræv, sum er umfarsskjal, við transport.
+Stk. 2. Tó hevst mót tílíkum, sum fingið hevur skjal í góðari trúgv, tað mótmæli, at skjalið er falsað ella givið rættstríðandi orsakað av persónligum harðskapi ella hóttan ella at hann, sum gav tað út, var ómyndugur, tá ið hann gav tað.
+Stk. 3. Reglurnar í stk. 1 og 2 verða ikki at nýta, tá talan er um rættindir, sum eru flutt frá útlendskari skrá eftir regluni í § 6, stk. 4.

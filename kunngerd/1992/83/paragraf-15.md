@@ -1,0 +1,1 @@
+§ 15. Aftrat Føroysku Altjóða Skipaskránni verður førd ein reiðarískrá. Í hesi skrá skulu tey reiðaríini standa, sum hava skip í Føroysku Altjóða Skipaskránni, og skal vera tilskilað, hvat skip hvørt reiðarí eigur. Fyri hvørt skip verður víst til skipsblaðið.

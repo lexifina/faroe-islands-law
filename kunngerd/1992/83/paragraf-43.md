@@ -1,0 +1,1 @@
+§ 43. Fyri skráseting av hald í skipi, úttøku, dómi ella aðrari almennari rættargerð í skipi krevst, at tilmeldari leggur fram váttan frá tí valdinum, sum framt hetta hevur, ella útskrift av tess bókum, og gerðin skal viðkoma honum, sum eftir skrásetingini hevur heimild at ráða fyri skipinum ella skipspartinum.

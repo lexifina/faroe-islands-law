@@ -1,0 +1,4 @@
+§ 45. Skrásetingin verður gjørd eftir reglunum §§ 7-17, § 23 og §§1-3 í kunngerð um gjøld fyri skráseting v.m. í Føroysku Altjóða Skipaskr, smb. tó fylgjandi reglur.
+Stk. 2. Um so er, at skjal ikki heldur treytirnar í §§ 8-12 og 41-44 fyri skráseting, skal tað vísast aftur.
+Stk. 3. Um so er, at okkurt vantar, sum ætlast at kunna fáast í lag, kann skipaskrásetingin tó fyriseta freist at útvega tørvandi próvførslu, at skráseting kann fara fram, soleiðis at burturvísing verður ikki gjørd, fyrr enn freistin er úti og próvførslan ikki komin til ta tíð.
+Stk. 4. [^3] Hevur skjal ikki tilskilaða forrættarstøðu hjá rættindishavara ella tilskilað hana soleiðis, at tað gongur ímóti skránni, ella eru minni ójavnar millum innihaldið í skjalinum og próvførslur, sum liggja fyri, skal skjalið hava viðmerking um tað, og innihaldið í henni skal førast í skránna.

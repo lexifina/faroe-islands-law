@@ -1,0 +1,2 @@
+§ 33. Merking skipa sambært §§ 25 og 26 við navni, heimstaði og kenningarbókstavum og broytingar sambært hesum skulu gerast beinanvegin eftir skráseting, hóast skipið ikki er í sigling og skal verða víst myndugleikunum, áðrenn 30 dagar eru farnir. Fráboðan um merking skal áðrenn somu tíðarfreist verða send skipaskrásetingini, um biðið verður um tað. Tjóðskaparbrævið verður útflýggjað, tá merkingin er staðfest.
+Stk. 2. Tjóðskaparbrævið saman við innhøgdu kenningarbókstavunum er samleikaprógv skipsins.

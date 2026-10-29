@@ -1,0 +1,3 @@
+§ 12. Í serstaka skipsmappu verða løgd makaskjøl ella fotoavrit av teimum skjølum, sum eru komin til skrásetingar í Føroysku Altjóða Skipaskránni.
+Stk. 2. Lógmætisprógv verða ikki skrásett, tó skal Skipaskrásetingin ansa, at neyðug lógmætisprógv eru framløgd, áðrenn skráseting ella striking verður gjørd. Á skjalið og avrit av skjølunum verður viðmerkt, hvørji lógmætisprógv eru framløgd.
+Stk. 3. Tá skjøl útgivin av útlendskum eigara, jbr. § 1, stk. 2, í løgtingslóg um Føroyska Altjóða Skipaskrá, verða meldað til skrásetingar, skulu neyðug lógmætisprógv verða løgd hjá, um at undirskrivararnir hava tekningarrætt.
