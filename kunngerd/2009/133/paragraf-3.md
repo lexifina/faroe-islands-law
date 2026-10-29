@@ -1,0 +1,2 @@
+§ 3. Í viðgerðini av tí einstaka málinum er nevndin mannað við formanni, ið skal vera løgfrøðingur og tveimum limum valdir eftir tilmæli frá Læknafelagnum og Meginfelag teirra Brekaðu í Føroyum ella varalimum teirra.
+Stk. 2. Føroya Kærustovnur røkir skrivstovuhaldið og rindar útreiðslurnar av virkseminum hjá kærunevndini, her undir eisini samsýning til limir og varalimir. Formaðurin fær eina fasta samsýning. Hinir nevndarlimirnir og varalimir fáa fundarsamsýning sbrt. almennu ásetingunum um nevndarsamsýningar.

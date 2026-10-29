@@ -1,0 +1,2 @@
+§ 2. Psykiatriska sjúklingakærunevndin viðger kærur um tvingsilsinnlegging, tvingsilsafturhaldan, afturføring, tvingsilsviðgerð, tvingsilsfastspenning, nýtslu av kropsligari megi, verjufastspenning, nýtslu av persónligum ávaringar- og peiliskipanum og serligum hurðalásum, persónligari avbyrging, sum uttan steðg varir í meira enn 24 tímar, og avgerðum um at læsa hurðar á deildini.
+Stk. 2. Partar í málinum eru sjúklingurin og sjúkrahúsið. Er klagan eisini vend ímóti ávísum heilsustarvsfólkum, eru hesi eisini at meta sum partar í málinum.

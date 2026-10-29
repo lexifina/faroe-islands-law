@@ -1,0 +1,3 @@
+§ 6. Í sambandi við móttøkuna av málinum, kannar Føroya Kærustovnur um neyðugu upplýsingarnar eru sendar við, her undir ein frágreiðing um, hvat kæran fevnir um, ein útskrift úr tvingsilsgerðarbókini, ein frágreiðing frá ábyrgdarhavandi yvirlæknanum umframt viðgerðarætlanin.
+Stk. 2. Leggur sjúklingurin ella sjúklingaráðgevin sjálvur málið fyri psykiatrisku sjúklingakærunevndina, boðar Føroya Kærustovnur sjúkrahúsinum frá kæruni og biður samstundis sjúkrahúsið um at senda nevndini neyðugu upplýsingarnar, sbrt. stk. 1.
+Stk. 3. Føroya Kærustovnur syrgir annars fyri, at málið verður lýst og tekur avgerð um at fáa til vega møguligar aðrar frágreiðingar v.m.

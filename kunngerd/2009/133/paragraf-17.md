@@ -1,0 +1,4 @@
+§ 17. Psykiatriska sjúklingakærunevndin skal vegleiða sjúklingin og sjúklingaráðgevan um møguleikan at royna málið í rættinum sambært kap. 43 a í rættargangslógini.
+Stk. 2. Nevndin skal eisini vegleiða um, at áheitan um at leggja málið fyri rættin eftir reglunum í kap. 43 a í rættargangslógini skal verða sett fram innan 4 vikur frá tí, at nevndin hevur tikið avgerð, og at rætturin í undantaksføri kann loyva fráviki frá freistini, um serligar orsøkir eru til tess, tá áheitan verður sett fram seinni, tó innan 6 mánaðir aftan á avgerðina.
+Stk. 3. Psykiatriska sjúklingakærunevndin skal harumframt kunna sjúklingin og sjúklingaráðgevan um, at nevndin leggur málið fyri rættin, og at rætturin tilnevnir ein advokat fyri sjúklingin, um hesin ikki sjálvur hevur fingið sær ein advokat.
+Stk. 4. Psykiatriska sjúklingakærunevndin skal eisini vegleiða pørtunum í málinum um møguleikan at kæra aðrar avgerðir hjá nevndini til Sundhedsvæsenets Patientklagenævn.

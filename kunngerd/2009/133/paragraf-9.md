@@ -1,0 +1,3 @@
+§ 9. Sjúklingaráðgevin skal sambært § 24, stk. 2, 3. pkt. í lógini í mest møguligan mun vera til staðar, tá málið verður viðgjørt í nevndini. Tað sama er galdandi fyri læknan, sum hevur tikið avgerð um tvingsilsatgerðina, sum kært verður um.
+Stk. 2. Sambært § 36, stk. 2 í lógini hava sjúklingurin og sjúklingaráðgevin rætt til munnliga at greiða nevndini frá málinum. Sama rætt hava umboð fyri sjúkrahúsið, avvarðandi yvirlækni og onnur viðkomandi heilsustarvsfólk.
+Stk. 3. Í serligum førum, har atlit til heilsustøðuna hjá sjúklinginum ella til viðgerðina í nevndini avgjørt tala fyri tí, kann nevndin gera av, at sjúklingurin heilt ella lutvíst skal verða avskorin frá at luttaka í umrøðuni, sbrt. § 36, stk. 2, 2. pkt. í lógini.

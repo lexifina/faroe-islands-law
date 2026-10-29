@@ -1,0 +1,1 @@
+§ 5. Í sambandi við móttøkuna av málinum, ger Føroya Kærustovnur av, um kæran liggur innan fyri málsøkið hjá kærunevndini. Er eingin ivi um, at kæran ikki liggur innan fyri málsøkið hjá nevndini, sendir Føroya Kærustovnur málið víðari til rætta myndugleika og boðar pørtunum frá hesum. Í øðrum førum verður spurningurin viðgjørdur av psykiatrisku sjúklingakærunevndini.

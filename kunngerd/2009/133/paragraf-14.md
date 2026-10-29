@@ -1,0 +1,3 @@
+§ 14. Avgerðir hjá psykiatrisku sjúklingakærunevndini kunnu vera, at ein tvingsilsatgerð verður góðkend, ella at henda verður mett at verða framd av órøttum.
+Stk. 2. Verður kært um avgerð um tvingsilsviðgerð, kann nevndin góðkenna ella ógilda hesa avgerð. Hetta er eisini galdandi, um kæran viðvíkur tí tilbúning ella teirri skamtan, sum er ásett í avgerðini. Psykiatriska sjúklingakærunevndin kann ikki ávísa aðra tilbúning ella aðra skamtan.
+Stk. 3. Er kæran eisini vend ímóti tí ella teimum heilsustarvsfólkum, sum hava tikið lut í kærdu tvingsilsnýtsluni, tekur psykiatriska sjúklingakærunevndin støðu til, um grundarlag í hesum sambandi er fyri at finnast at teimum.
