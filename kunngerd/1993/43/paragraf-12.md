@@ -1,0 +1,1 @@
+§ 12. Almannastovan kann taka avgerð um at avskriva afturgjaldskravið, tá tað innanfyri eitt rímiligt áramál ikki hevur verið gjørligt at fremja kravið, og tá mett verður, at fíggjarliga grundarlagið hjá skuldaranum ikki verður broytt innan fyri eitt rímiligt áramál.

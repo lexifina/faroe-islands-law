@@ -1,0 +1,1 @@
+§ 9. Afturgjaldsskyldugar veitingar til egnan bústað skulu tryggjast við tinglýsing av fráboðanum um hetta sum skuldbinding í føstu ognini við upprykkjandi veðrætti eftir frammanfyri standandi veðhavarar ella við tinglýsing av skaðaloysisbrævi.

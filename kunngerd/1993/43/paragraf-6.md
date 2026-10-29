@@ -1,0 +1,1 @@
+§ 6. Av útreiðslum, ið kunnu gjaldast sum stuðul til egnan bústað, kunnu nevnast rentur og viðvíkjandi pensiónistum harumframt avdráttir av lánum í egnum bústaði, umbyggingar, afturatbyggingar, innleggingar fyri brekað, innleggingar av miðstøðuhita, innleggingar av vatni og ravmagni og líknandi.

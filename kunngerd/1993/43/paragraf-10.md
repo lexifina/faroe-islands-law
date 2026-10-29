@@ -1,0 +1,1 @@
+§ 10. Almannastovan kann gera av, at skuldin ikki fellur til gjaldingar í sambandi við eigaraskifti. Tað er ikki eigaraskifti, tá longstlivandi hjúnafelagin situr í óskiftum búgvi. Undantaksreglan umfatar bæði húsfólk og aðrar eigarar av teirri føstu ognini.
