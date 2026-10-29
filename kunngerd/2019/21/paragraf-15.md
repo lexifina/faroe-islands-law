@@ -1,0 +1,1 @@
+§ 15. Samstarvsnevndin kann taka upp øll mál, sum eru við til at fremja trivnaðin á stovninum sum t.d. evnisdagar, felagstímar, frítíðarvirksemi, innleiðsluskeið, ítróttadagur, sjónleik og sangleik, veitslur, kvøldsetur, tónleikatiltøk og tílík tiltøk.
