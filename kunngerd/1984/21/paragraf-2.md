@@ -1,0 +1,2 @@
+§ 2. Brot móti ásetanini í § 1 koma undir bót og heraftrat kann allur fiskireiðskapur, so sum net, lemmar, wirar, línur, uppstandarar v.m. og fongur koma undir konfiskatión. Skipið kann eisini heftast til rindingar av bót og kostnað.
+2. stk. Um brotið er komi undir straff ella konfiskatión í fremmandum landi ella hinum partinum av kongaríkinum, verður hesum givið gætur í útmetingini av bótini, soleiðis at bótin í givnum føri fellur burtur, og eisini í spurninginum um konfiskatión.
