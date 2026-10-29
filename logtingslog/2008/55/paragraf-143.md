@@ -1,0 +1,1 @@
+§ 143. Tryggingareftirlitið hevur rætt til at luttaka á fundum í ognaranevnd og á skiftifundum. Bústjórin sendir Tryggingareftirlitinum uppskot til endaligan roknskap og endaútbýti í trotabúnum til viðmerkingar, áðrenn bústjórin sendir tað til skiftirættin.

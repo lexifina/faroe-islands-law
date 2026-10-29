@@ -1,0 +1,6 @@
+§ 26. Tryggingarfelagið skal tilnevna eitt aðalumboð til at stýra deildini, og bert aðalumboðið kann skriva undir vegna deildina. Aðalumboðið skal hava heimild til at skriva undir vegna felagið mótvegis triðjamanni, og til at umboða felagið annars, undir hesum yvir fyri Tryggingareftirlitinum og Skráseting Føroya, umframt í rættarmálum móti felagnum.
+Stk. 2. Um so er, at aðalumboðið ikki virkar sum tað í § 23, stk. 3, nevnda umboð fyri virksemi hjá tryggingarfelagnum í tryggingarflokki 10, sbrt. fylgiskjali 1, nr. 10, undantikið ábyrgd hjá fraktførara, eru reglurnar í § 23, stk. 3-6, harumframt galdandi.
+Stk. 3. Eitt tryggingarfelag skal bara hava eitt aðalumboð í Føroyum.
+Stk. 4. Aðalumboðið kann fráboða umboðsfulltrú til eitt ella fleiri undirumboð.
+Stk. 5. Aðalumboð skulu vera persónar, sum eru myndugir og antin hava føroyskan heimarætt ella ríkisborgararætt í einum landi, sum Føroyar hava gjørt sínámillum avtalu við sanbært § 1, stk. 4. Tryggingareftirlitið kann geva undantaksloyvi frá kravinum um ríkisborgararætt, har viðurskiftini tala fyri tí.
+Stk. 6. Eitt partafelag, smápartafelag ella íognarfelag, heimahoyrandi í Føroyum, kann vera aðalumboð, um so er, at aðalumboðið sum sítt umboð tilnevnir ein persón, sum lýkur tær í stk. 5 nevndu treytir til at vera aðalumboð.

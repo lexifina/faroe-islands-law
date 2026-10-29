@@ -1,0 +1,1 @@
+§ 169. [^1] So leingi felagsins grundarfæfeingi ikki lýkur fæfeingiskrøvini sambært hesi lóg, kann vinningsbýti ella serstakt vinningsbýti ikki verða latið partaeigarunum, renta ikki verða latin ábyrgdarunum, ella peningur latin limunum í sínámillum feløgum.

@@ -1,0 +1,1 @@
+§ 154. Sum liður í teimum í § 151, stk. 3, § 152, stk. 1 og § 153, stk. 1, nevndu tiltøkum, kann Tryggingareftirlitið sýta felagnum at ráða yvir tess ognum, ella avmarka tess ræði yvir hesum. § 103 verður at nýta samsvarandi.

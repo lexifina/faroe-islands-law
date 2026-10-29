@@ -1,0 +1,2 @@
+§ 122. Ársfrásøgnin skal í tí líki, hon er víst fram og góðkend av nevndini, sendast Tryggingareftirlitinum í tveimum eintøkum, uttan ógrundaðan steðg aftan á tann nevndarfundin, har ársfrásøgnin er endaliga góðkend.
+Stk. 2. Grannskoðanarprotokoll viðvíkjandi ársfrásøgnini hjá uttanhýsis grannskoðaranum, og fyri fyritøkur við innanhýsis grannskoðan eisini innanhýsis grannskoðanarprotokoll grannskoðanarleiðarans viðvíkjandi ársfrásøgnini, skulu sendast Tryggingareftirlitinum samstundis, sum ársfrásøgnin verður send sambært stk. 1.

@@ -1,0 +1,1 @@
+§ 135. Avtøka, sbr. § 134, fer fram við í avtøku ella húsagangi, ella við samanlegging sambært § 129. Fer avtøkan fram á annan hátt, skal Tryggingareftirlitið góðkenna avtøkuform, innihald og fremjan.

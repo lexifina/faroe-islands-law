@@ -1,0 +1,4 @@
+§ 80. Eitt samtykki til víðarilatan av upplýsingum skal vera skrivligt.
+Stk. 2. Tá ein tryggingaravtala verður gjørd við støði í telefonáheitan, kann samtykki til víðarilatan av upplýsingum til hesa nýtslu tó latast munnliga. Í slíkum føri skal tryggingarfelagið í seinasta lagi 14 dagar eftir, at tryggingaravtalan er gjørd, skrivliga kunna kundan um, hvørji sløg av upplýsingum kunnu latast víðari við hansara munnliga samtykki, til hvørji endamál víðarilatast kann, og hvør kann fáa upplýsingarnar við støði í munnliga samtykki kundans.
+Stk. 3. Biður kundin um tað, skal tryggingarfelagið upplýsa hann um, hvørji sløg av upplýsingum kunnu latast víðari við hansara samtykki, til hvørji endamál víðarilatast kann, og hvør kann fáa upplýsingarnar við støði í samtykki kundans.
+Stk. 4. Tryggingarfelagið skal, tá skrivligt samtykki verður fingið til vega, upplýsa kundan um møguleikarnar fyri, sambært stk. 3, at fáa upplýsingar um, hvat samtykkið fevnir um.

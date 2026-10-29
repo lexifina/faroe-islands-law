@@ -1,0 +1,1 @@
+§ 92. Við váðamettar postar skilst upphæddir, sum eru javnaðar í mun til tryggingarslag, útgjaldstíð, serlig viðurskifti í sambandi við endurtrygging, miðal tryggingargjaldsgrundarlag, umsitingarkostnað og endurgjaldskostnað, umframt aðrar postar í váðaupphæddini.

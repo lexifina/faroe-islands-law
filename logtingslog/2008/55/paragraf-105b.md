@@ -1,0 +1,1 @@
+§ 105 b. [^2] Í samtøkum, har móðurfelagið er ein tryggingarhaldfelagsskapur ella eitt tryggingarfelag, verða ásetingarnar í § 81 at nýta samsvarandi fyri tryggingarhaldfelagsskapin. Móðurfelagið hevur eftirlit við, at hesar ásetingar verða hildnar.

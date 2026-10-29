@@ -1,0 +1,5 @@
+§ 109. [^2] Tryggingareftirlitið ásetir neyvari reglur fyri flytingar (transaksjónir), ið verða gjørdar millum eitt fíggjarfelag og
+1) fyritøkur, ið beinleiðis ella óbeinleiðis eru heftar at fíggjarfelagnum sum dótturfeløg, afturatknýttar fyritøkur ella móðurfeløg, ella sum fyritøkur, ið eru afturatknýttar móðurfelagnum og onnur dótturfeløg,
+2) fyritøkur ella persónar, sum eru heft at fíggjarfelagnum gjøgnum tøtt sambond sbrt. § 5, stk. 1, nr. 8, ella
+3) fyritøkur, ið ikki eru fevndar av nr. 1 og 2, har meginparturin av persónunum í leiðslu fyritøkunnar eru teir somu, ella har fyritøkurnar hava eina felags leiðslu sambært avtalu ella viðtøkuásetingum.
+Stk. 2. Innanhýsis samtøkuflytingar, sum eru gjørdar ímóti teimum sambært stk. 1 ásettu reglum, skulu ógildast soleiðis, at veitingarnar, um tað er gjørligt, skulu latast aftur, umframt at møguligar veðsetingar enda. Útgjøld frá fíggjarfelagnum, ið eru gjørd í sambandi við innanhýsis samtøkuflytingar ímóti teimum sambært stk. 1 ásettu reglum, skulu flytast aftur saman við einari árligari rentu av upphæddini samsvarandi tí rentu, ið er ásett eftir § 5, stk. 1 og 2, í lóg um rentu við ov seinum gjaldi.

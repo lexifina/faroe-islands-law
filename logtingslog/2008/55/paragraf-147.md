@@ -1,0 +1,1 @@
+§ 147. [^9] Reglurnar í hesi løgtingslóg um heimildir hjá landsstýrismanninum og Tryggingareftirlitinum og skyldur hjá tryggingarfeløgum mótvegis landsstýrismanninum og Tryggingareftirlitinum verða, við neyðugum tillagingum, at nýta fyri tær fyritøkur, ið eru undir endurskipanarviðgerð ella eru farnar í avtøku.

@@ -1,0 +1,1 @@
+§ 54. Ein umboðsnevnd kann verða sett á stovn til tess at røkja ávísar uppgávur, ið eru tilskilaðar í viðtøkunum, undir hesum val av nevnd. Limir í umboðsnevndini eru undir somu ábyrgd sum nevndin viðvíkjandi røkt av sínum starvi.

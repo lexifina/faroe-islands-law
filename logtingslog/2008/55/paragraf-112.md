@@ -1,0 +1,2 @@
+§ 112. Nevndin og stjórnin skulu gera ársfrásøgn fyri fyritøkuna.
+Stk. 2. [^1] Hvør einstakur leiðslulimur hevur ábyrgd av, at ársfrásøgnin verður gjørd í samsvari við lóggávuna og onnur møgulig krøv til roknskap í viðtøkum ella avtalu. Harumframt hevur hvør einstakur limur ábyrgd fyri, at ársroknskapurin og møguligur samtøkuroknskapur kann grannskoðast rættstundis og at ársfrásøgnin kann góðkennast rættstundis.Somuleiðis hevur hvør einstakur nevndarlimur ábyrgd av, at ársfrásøgnin verður send Tryggingareftirlitinum innan fyri tær í lóggávuni ásettu freistir.

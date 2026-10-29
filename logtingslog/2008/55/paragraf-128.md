@@ -1,0 +1,1 @@
+§ 128. Ein uttanhýsis grannskoðari og ein innanhýsis grannskoðanarleiðari skulu beinanvegin upplýsa Tryggingareftirlitið um viðurskifti, ið hava avgerandi týdning fyri tað framhaldandi virksemið hjá fyritøkuni, undir hesum viðurskifti, ið grannskoðararnir hava fingið kunnleika til sum liður í starvinum sum grannskoðari í fyritøkum, ið fyritøkan hevur tøtt sambond við.

@@ -1,0 +1,3 @@
+§ 215 a. [^1] Landsstýrismaðurin kann áseta reglur um, at Tryggingareftirlitið í nærri ásettum førum um brot á ásetingar í hesi lóg, ið ikki metast at hava við sær hægri revsing enn bót, í einum sektaruppskoti kann boða frá, at málið kann verða gjørt av uttan rættarsókn, um tann, sum hevur framt brotið, játtar seg sekan í brotinum og váttar at vera til reiðar innan eina nærri ásetta freist at rinda eina í sektaruppskotinum ásetta bót.
+Stk. 2. [^12] Ásetingar rættargangslógarinnar um krøv til innihaldið í ákæruritum og um, at ein skuldsettur ikki hevur skyldu at úttala seg, verða at nýta á sama hátt fyri sektaruppskot.
+Stk. 3. Verður tikið við bótini, fellur onnur rættarsókn burtur.

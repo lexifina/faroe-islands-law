@@ -1,0 +1,3 @@
+§ 9. [^3] [^1] Partapeningurin í tryggingarfeløgum skal allur vera inngoldin. Óevnislig ogn kann ikki verða nýtt at gjalda partapening við.
+Stk. 2. [^1] Í tryggingarfeløgum er loyvt at býta partapeningin sundur í partabrævaflokkar, sum hava ymisk atkvøðuvirði.
+Stk. 3. [^1] Eitt tryggingarfelag kann ikki móti viðurgjaldi ogna sær egin partabrøv sum ogn ella veð, um áljóðandi virði av samlaðu innistøðuni av partabrøvum felagsins og dótturfeløgum tess við hesum fer upp um 10 prosent. Upp í loyvdu goymsluna av egnum partabrøvum verða íroknað tey partabrøv, sum triðimaður hevur útvegað sær í egnum navni, men fyri rokning felagsins.

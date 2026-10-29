@@ -1,0 +1,2 @@
+§ 67. [^3] [^1] § 199 í vinnufelagslógini er ikki galdandi, tá ið eitt tryggingarfelag útvegar sær egin partabrøv.
+Stk. 2. [^1] Útvega nevndarlimir, umboð ella stjórar sær, gjøgnum luttøku í umboðs- ella meklaravirksemi, ella við fíggjarligum áhugamálum í slíkum feløgum, umboðsløn ella aðra inntøku av tryggingum, ið felagið yvirtekur ella letur frá sær, skal fráboðan um hetta sendast Tryggingareftirlitinum.

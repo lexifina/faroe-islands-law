@@ -1,0 +1,13 @@
+## Virksemi hjá føroyskum tryggingarfeløgum í útlandinum
+§ 30. Eitt tryggingarfelag, ið ynskir at stovna eina deild í einum øðrum landi, skal geva Tryggingareftirlitinum boð um hetta, saman við hesum upplýsingum um deildina:
+1) Í hvørjum landi ynskt verður at stovna deildina,
+2) einari lýsing av virkseminum hjá deildini, undir hesum upplýsingar um bygnað og ætlað virksemi,
+3) bústað deildarinnar,
+4) nøvnini hjá leiðslu deildarinnar,
+5) navnið á aðalumboði deildarinnar.
+Stk. 2. [^1] Tá ein deild verður stovnað í einum landi, sum Føroyar hava gjørt sínámillum avtalu við sambært § 1, stk. 4 sendir Tryggingareftirlitið upplýsingarnar, sum eru nevndar í stk. 1, víðari til eftirlitsmyndugleikarnar í vertslandinum. Samstundis sendir Tryggingareftirlitið eftirlitsmyndugleikunum í vertslandinum solvensprógv og eina váttan um, at ætlaða virksemið er fevnt av loyvi tryggingarfelagsins í heimlandinum.
+Stk. 3. Upplýsingarnar sbrt. stk. 2 verða sendar í seinasta lagi 3 mánaðir eftir, at Tryggingareftirlitið hevur móttikið upplýsingarnar. Samstundis sum upplýsingarnar verða sendar, kunnar Tryggingareftirlitið tryggingarfelagið um hetta.
+Stk. 4. Tryggingareftirlitið kann lata vera við at senda upplýsingarnar sbrt. stk. 2, um orsøk er at ivast í, um fyrisitingarligi bygnaðurin og fíggjarstøðan hjá felagnum eru skynsom sum grundarlag fyri ætlaðu stovnanini. Tryggingareftirlitið gevur felagnum boð um hetta í seinasta lagi 2 mánaðir eftir, at upplýsingarnar, sum eru nevndar í stk. 1, eru móttiknar.
+Stk. 5. Tryggingarfelagið skal boða Tryggingareftirlitinum frá eini og hvørjari broyting í viðurskiftunum, ið eru nevnd í stk. 1. Eftirlitið skal hava fingið fráboðanina í seinasta lagi 1 mánað, áðrenn broytingin verður gjørd. Um tað ikki er gjørligt at boða eftirlitinum frá broytingini í seinasta lagi 1 mánað, áðrenn broytingin verður gjørd, skal fráboðan gerast skjótast gjørligt. Felagið er pliktað á sama hátt mótvegis eftirlitsmyndugleikunum í vertslandinum, um vertslandið er eitt land, sum Føroyar hava gjørt sínámillum avtalu við sambært § 1, stk. 4.
+Stk. 6. Eitt tryggingarfelag skal hava loyvi frá Tryggingareftirlitinum til at stovna eina deild í einum landi, sum Føroyar ikki hava gjørt sínámillum avtalu við sambært § 1, stk. 4 (ávikavist stk. 5). Er orsøk til at ivast í, um fyrisitingarligi bygnaðurin og fíggjarstøðan hjá felagnum eru skynsom sum grundarlag fyri ætlaðu stovnanini, kann eftirlitið vraka eina umsókn um loyvi.
+Stk. 7. [^1] Um Tryggingareftirlitið hevur kravt, at eitt tryggingarfelag ger eina endurreisingarætlan sbrt. § 151, skal eftirlitið ikki lata solvensprógv víðari.

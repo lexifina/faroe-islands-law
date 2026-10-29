@@ -1,0 +1,1 @@
+§ 137. Eitt felag, ið rekur lívstryggingarvirksemi, kann ikki uttan samtykki frá hvørjum einstøkum tryggingartakara verða upployst, um ikki tað frammanundan hevur flutt alla sína tryggingarmongd til eitt annað felag í samsvari við tær í § 129 ásettu reglur, ella tess tryggingarmongd er tikin undir umsiting.

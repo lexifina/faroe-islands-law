@@ -1,0 +1,1 @@
+§ 193 a. [^1] Landsstýrismaðurin kann áseta reglur um skyldu tryggingarfelagsins at almannakunngera upplýsingar um meting Tryggingareftirlitsins av tryggingarfelagnum og um, at Tryggingareftirlitið hevur møguleika fyri at almannakunngera upplýsingarnar áðrenn tryggingarfelagið.

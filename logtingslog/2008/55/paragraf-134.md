@@ -1,0 +1,3 @@
+## Avtøka
+§ 134. Tá Tryggingareftirlitið tekur aftur loyvi hjá einum tryggingarfelag, ger eftirlitið av, um tryggingarfelagið skal royna at fáa tryggingarmongdina avhendaða til eitt ella fleiri tryggingarfeløg, ið reka tryggingarvirksemi í Føroyum, ella um felagið á annan hátt skal royna at fáa tryggingarmongdina avtikna. Fyri lívstryggingarfeløg kann Tryggingareftirlitið gera av, at tryggingarmongdin verður tikin undir umsiting í samsvari við §§ 156-161.
+Stk. 2. Tryggingareftirlitið kann í sambandi við afturtøku av loyvinum hjá einum tryggingarfelag sýta felagnum at ráða yvir tess ognum, ella avmarka tess ræði yvir hesum. § 103, stk. 6 og 7, verða at nýta samsvarandi.

@@ -1,0 +1,6 @@
+## Freistir
+§ 204. Tær freistir, sum eru ásettar í ella sambært hesi lóg, taka við frá og við dagin eftir tann dag, har tann hending, sum hevði við sær, at freistin tók við, hendi. Hetta er galdandi fyri bæði útrokning av dags-, viku-, mánaða-, og ársfreistum.
+Stk. 2. Er freistin tilskilað í vikum, er freistin úti vikudagin fyri tann dag, har tann hending, sum gjørdi, at freistin tók við, hendi, sbr. stk. 1.
+Stk. 3. Er freistin tilskilað í mánaðum, er freistin úti á mánaðadegnum fyri tann dag, har tann hending, sum gjørdi, at freistin tók við, hendi, sbr. stk. 1. Um tann dagurin, har tann hending, sum gjørdi, at freistin tók við, hendi, er seinasti dagur í mánaðinum, ella um freistin er úti eina tíðarfesting, sum ikki er til, er freistin altíð úti tann seinasta dagin í mánaðinum, uttan mun til hvussu langur hann er.
+Stk. 4. Er freistin tilskilað í árum, er freistin úti ársdagin fyri tann dag, har hendingin, sum hevði við sær, at freistin tók við, hendi, sbr. stk. 1.
+Stk. 5. Er freistin úti í einum vikuskifti ella ein halgidag, ella flaggdagin, grundlógardagin, páskaaftan, ólavsøkuaftan, ólavsøkudag, jólaaftan ella nýggjársaftan, verður freistin longd til tann fyrstkomandi gerandisdagin.

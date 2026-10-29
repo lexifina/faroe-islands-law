@@ -1,0 +1,1 @@
+§ 24. Eitt útlendskt tryggingarfelag kann nýta sama navn, sum felagið nýtir í heimlandinum. Er vandi fyri samanblanding við eitt annað navn, ið verður nýtt í Føroyum, kann Skráseting Føroya krevja eitt útgreinandi uppískoyti.

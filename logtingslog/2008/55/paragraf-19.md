@@ -1,0 +1,1 @@
+§ 19. Tryggingarfeløg kunnu fyribils reka annað virksemi, til tess at tryggja ella avtaka frammanundan gjørdar skuldbindingar, ella til tess at hjálpa til við umskipan av vinnufyritøkum. Tryggingarfelagið skal kunna Tryggingareftirlitið um hetta.

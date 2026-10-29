@@ -1,0 +1,1 @@
+§ 138. Eitt tryggingarfelag, ið rekur arbeiðsskaðatrygging, kann ikki verða upployst, uttan so at tað frammanundan hevur avhendað alla sína arbeiðsskaðatryggingarmongd til eitt annað felag, í samsvari við tær í § 129 ásettu reglur, ella tess tryggingarmongd er undir umsiting av Tryggingareftirlitinum.

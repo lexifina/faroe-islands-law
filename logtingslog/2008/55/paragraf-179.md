@@ -1,0 +1,3 @@
+§ 179. Sínámillum tryggingarfeløg, ið § 172, stk. 1, fevnir um, og sum einans reka virksemi innan eitt heilt avmarkað landøki, koma ikki undir reglurnar í hesi lóg, sbr. tó stk. 2 og 3, um so er, at tær teknaðu tryggingarnar tilsamans ikki fara upp um 3 mió. kr.
+Stk. 2. Feløg, sum stk. 1 fevnir um, skulu tó frámerkja seg sum sínámillum. § 7, stk. 4, verður at nýta samsvarandi.
+Stk. 3. Er eitt sínámillum tryggingarfelag undir eftirliti sambært hesi lóg, verður felagið verandi undir eftirliti, hóast tað seinri lýkur treytirnar fyri undantøku sambært stk. 1. Tryggingareftirlitið kann tó sleppa felagnum undan eftirliti, um so er, at felagið setur fram áheitan um tað sambært eini aðalfundarsamtykt.

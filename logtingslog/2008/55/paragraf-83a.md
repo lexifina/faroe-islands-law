@@ -1,0 +1,1 @@
+§ 83 a. [^1] Tryggingareftirlitið kann áseta reglur um, at tryggingarfeløg kunnu skriva út skuldarbrøv við treytum um umskifti til partapening, ábyrgdarpening ella lutapening, undir hesum í hvønn mun kapittul 10 í vinnufelagslógini verður at nýta.

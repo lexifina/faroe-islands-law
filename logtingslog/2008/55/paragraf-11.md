@@ -1,0 +1,3 @@
+§ 11. Tá Tryggingareftirlitið hevur givið loyvi sambært § 10, kann tann føroyski skrásetingarmyndugleikin gera tær neyðugu skrásetingarnar.
+Stk. 2. Við fráboðan um skráseting sbr. stk. 1, og við fráboðan um broytingar í viðtøkum, skal tryggingarfelagið senda eitt dagfest eintak av viðtøkunum við tí fullfíggjaðu, nýggju orðingini til tann føroyska skrásetingarmyndugleikan, sum sendir eitt avrit til Tryggingareftirlitið.
+Stk. 3. Við fráboðan av loyvi, ella broytingum í loyvi hjá tryggingarfeløgum, sendir Tryggingareftirlitið samstundis avrit av hesum til føroyska skrásetingarmyndugleikan. Tann føroyski skrásetingarmyndugleikin skrásetir dagfestingina fyri, nær loyvið varð givið.

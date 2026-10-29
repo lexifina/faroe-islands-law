@@ -1,0 +1,2 @@
+§ 77. [^2] Upplýsingar kunnu latast víðari til móðurfelagið hjá tryggingarfelagnum til at nýta í sambandi við váðastýring av fyritøkum í samtøkuni, um so er, at móðurfelagið er eitt tryggingarfelag, ein fíggjarligur haldfelagsskapur ella ein tryggingarhaldfelagsskapur. Hetta er tó ikki galdandi fyri upplýsingar um heilt privat viðurskifti.
+Stk. 2. Upplýsingar um privatkundar kunnu ikki latast víðari at nýta í váðastýring, sbrt. stk. 1, uttan í serligum førum, har upplýsingarnar um ein privatkunda viðvíkja skyldum, ið hava ella kunnu fáa munandi stødd.

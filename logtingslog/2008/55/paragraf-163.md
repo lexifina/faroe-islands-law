@@ -1,0 +1,1 @@
+§ 163. Tryggingareftirlitið kann áseta reglur fyri sínámillum tryggingarfeløg viðvíkjandi ábyrgdini hjá limum og ábyrgdarum, afturgjalding av ábyrgdarpeningi, og treytum fyri býti av ognum felagsins til limirnar.

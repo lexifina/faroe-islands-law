@@ -1,0 +1,1 @@
+§ 158. Tá tryggingarmongdin er tikin undir umsiting, kunnu tryggingar ikki verða keyptar aftur. Tó kann afturkeypsvirðið heilt, ella fyri ein part, verða nýtt til at rinda tryggingarskjalslánini, nevnd í § 98, stk. 1, nr. 7.

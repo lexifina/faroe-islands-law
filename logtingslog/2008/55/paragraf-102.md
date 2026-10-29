@@ -1,0 +1,3 @@
+§ 102. § 95, stk. 2 og §§ 99-101 eru ikki galdandi fyri tryggingarligar burturleggingar í tryggingarflokki III, har tryggingarfelagið ella eftirlønargrunnurin ikki hevur átikið sær nakran íløguváða.
+Stk. 2. [^1] § 99, stk. 1, nr. 4 og § 100, stk. 1, nr. 3, eru ikki galdandi fyri pening, ið er settur í íløgufeløg, serfeløg og góðkend fámannafeløg, fevnd av § 98, stk. 1, nr. 8.
+Stk. 3. [^1] § 99, stk. 1, nr. 1, er ikki galdandi fyri pening, ið er settur í íløgufeløg, serfeløg og góðkend fámannafeløg, fevnd av § 98, stk. 1, nr. 8, við tí fyritreyt, at goymslan av ognum hjá hesum feløgum verður roknað við í uppgerðina av plasering av peningi, fevndur av stk. 3, og at ásetingarnar í §§ 94-105 við teimum í stk. 2 nevndu undantøkum við hesi uppgerð eru hildnar.

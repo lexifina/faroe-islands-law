@@ -1,0 +1,1 @@
+§ 32. Eitt tryggingarfelag, sum ætlar at stovna eitt dótturfelag í einum landi, sum Føroyar ikki hava gjørt sínámillum avtalu við sambært § 1, stk. 4 (ávikavist stk. 5), skal hava loyvi frá Tryggingareftirlitinum. Er orsøk til at ivast í, um fyrisitingarligi bygnaðurin og fíggjarstøðan hjá felagnum eru skynsom sum grundarlag fyri ætlaðu stovnanini, gevur eftirlitið ikki loyvi.

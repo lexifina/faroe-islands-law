@@ -1,0 +1,96 @@
+## Fylgiskjal 3
+Europa-Parlamentets og Rådets forordning (EF) nr. 1606/2002 af 19. juli 2002 om anvendelse af internationale regnskabsstandarder
+Europa-Parlamentets og Rådets forordning (EF) nr. 1606/2002 af 19. juli 2002
+om anvendelse af internationale regnskabsstandarder
+EUROPA-PARLAMENTET OG RÅDET FOR DEN EUROPÆISKE UNION HAR -
+under henvisning til traktaten om oprettelse af Det Europæiske Fællesskab, særlig artikel 95, stk. 1,
+under henvisning til forslag fra Kommissionen(1),
+under henvisning til udtalelse fra Det Økonomiske og Sociale Udvalg(2),
+efter proceduren i traktatens artikel 251(3), og
+ud fra følgende betragtninger:
+(1) Det Europæiske Råd fremhævede på sit møde i Lissabon den 23. og 24. marts 2000 behovet for at fremskynde virkeliggørelsen af det indre marked for finansielle tjenesteydelser, og satte 2005 som frist for implementeringen af Kommissionens handlingsplan for finansielle tjenesteydelser og opfordrede til, at der tages skridt til at forbedre sammenligneligheden af regnskaber, der udarbejdes af børsnoterede selskaber.
+(2) Med henblik på at forbedre det indre markeds funktion bør det være et krav, at børsnoterede selskaber anvender et sæt internationale regnskabsstandarder af høj kvalitet ved udarbejdelsen af deres koncernregnskaber. Det er desuden vigtigt, at de standarder for regnskabsaflæggelse, der anvendes af selskaber i Fællesskabet, som er aktive på finansmarkederne, er accepteret internationalt og er egentlige globale standarder. Dette forudsætter en stadig større samordning af de internationalt anvendte regnskabsstandarder med det mål i sidste ende at opnå et fælles sæt globale regnskabsstandarder.
+(3) Rådets direktiv 78/660/EØF af 25. juli 1978 om årsregnskaberne for visse selskabsformer(4), Rådets direktiv 83/349/EØF af 13. juni 1983 om konsoliderede regnskaber(5), Rådets direktiv 86/635/EØF af 8. december 1986 om bankers og andre penge- og finansieringsinstitutters årsregnskaber og konsoliderede regnskaber(6) og Rådets direktiv 91/674/EØF af 19. december 1991 om forsikringsselskabers årsregnskaber og konsoliderede regnskaber(7) vedrører ligeledes børsnoterede selskaber i Fællesskabet. Kravene til regnskabsaflæggelse i ovennævnte direktiver kan ikke sikre den høje grad af gennemsigtighed og sammenlignelighed i forbindelse med regnskabsaflæggelse i alle børsnoterede selskaber i Fællesskabet, der er en betingelse for opbygningen af et integreret kapitalmarked, som fungerer virkningsfuldt, gnidningsløst og effektivt. Det er derfor nødvendigt at supplere de retlige rammer
+for børsnoterede selskaber.
+(4) Denne forordning sigter på at bidrage til, at kapitalmarkedet fungerer effektivt og omkostningseffektivt. Investorbeskyttelsen og bevarelsen af tilliden til de finansielle markeder er også et vigtigt aspekt af virkeliggørelsen af det indre marked på dette område. Denne forordning styrker kapitalens frie bevægelighed på det indre marked og hjælper til at sætte selskaber i Fællesskabet i stand til at konkurrere på lige fod om de finansielle ressourcer på Fællesskabets kapitalmarkeder såvel som på de internationale kapitalmarkeder.
+(5) Det er vigtigt for Fællesskabets kapitalmarkeders konkurrenceevne, at de standarder, der anvendes i Europa ved udarbejdelse af regnskaber, tilnærmes internationale regnskabsstandarder, der kan bruges globalt, ved grænseoverskridende transaktioner og børsnotering overalt i verden.
+(6) Den 13. juni 2000 offentliggjorde Kommissionen sin meddelelse "EU's regnskabsstrategi: vejen frem", hvori den foreslog, at alle børsnoterede selskaber i Fællesskabet inden 2005 går over til at udarbejde deres koncernregnskaber i henhold til et enkelt sæt regnskabsstandarder, International Accounting Standards (IAS).
+(7) Internationale regnskabsstandarder (IAS) udarbejdes af International Accounting Standards Committee (IASC), hvis formål er at udarbejde et fælles sæt globale regnskabsstandarder. I forlængelse af omstruktureringen af IASC besluttede den nye instans (the Board) den 1. april 2001 som en af sine første beslutninger at ændre IASC's navn til International Accounting Standards Board (IASB) og hvad angår fremtidige internationale regnskabsstandarder at ændre betegnelsen IAS til International Financial Reporting Standards (IFRS). Disse standarder bør, når det er muligt, og forudsat at de sikrer en høj grad af gennemsigtighed og sammenlignelighed i forbindelse med regnskabsaflæggelse i Fællesskabet, gøres obligatoriske for alle børsnoterede selskaber i Fællesskabet.
+(8) Foranstaltninger til gennemførelse af denne forordning bør vedtages i overensstemmelse med Rådets afgørelse 1999/468/EF af 28. juni 1999 om fastsættelse af de nærmere vilkår for udøvelsen af de gennemførelsesbeføjelser, der tillægges Kommissionen(8), og under hensyntagen til Kommissionens erklæring i Europa-Parlamentet den 5. februar 2002 om gennemførelse af lovgivningen om finansielle tjenesteydelser.
+(9) Vedtagelse af en international regnskabsstandard med henblik på dens anvendelse i Fællesskabet forudsætter for det første, at den opfylder de nævnte rådsdirektivers grundlæggende krav, dvs. at dens anvendelse fører til et pålideligt billede af et selskabs økonomiske stilling og resultat, idet dette princip må ses i lyset af de nævnte rådsdirektiver, men der kræves ikke en nøje overensstemmelse med hver enkelt bestemmelse heri. For det andet er det nødvendigt, at regnskabsstandarden i overensstemmelse med konklusionerne fra samlingen i Rådet den 17. juli 2000 er i offentlighedens interesse i EU, og endelig at den opfylder de grundlæggende kriterier, for så vidt angår kvaliteten af de oplysninger, der kræves, for at regnskaberne kan være nyttige for brugerne.
+(10) Et regnskabsteknisk udvalg vil yde støtte og ekspertbistand til Kommissionen ved vurderingen af internationale regnskabsstandarder.
+(11) Godkendelsesmekanismen bør sikre en hurtig behandling af foreslåede internationale regnskabsstandarder og også være et middel til at anspore til drøftelser, overvejelser og informationsudveksling om internationale regnskabsstandarder blandt de berørte hovedparter, særlig nationale organisationer, der udarbejder regnskabsstandarder, tilsynsmyndigheder inden for områderne værdipapirer, bankvæsen og forsikring, centralbanker, herunder Den Europæiske Centralbank, regnskabs- og revisorbranchen og brugere og producenter af regnskaber. Denne mekanisme bør være et middel til at skabe fælles forståelse for vedtagne internationale regnskabsstandarder i Fællesskabet.
+(12) I overensstemmelse med proportionalitetsprincippet er foranstaltningerne i denne forordning, der indebærer, at børsnoterede selskaber skal anvende et fælles sæt regnskabsstandarder, nødvendige for at realisere det mål at bidrage til, at kapitalmarkederne i Fællesskabet fungerer effektivt og omkostningseffektivt, og dermed til virkeliggørelsen af det indre marked.
+(13) I overensstemmelse med samme princip er det nødvendigt i forbindelse med årsregnskaber at give medlemsstaterne mulighed for at tillade eller kræve, at børsnoterede selskaber udarbejder dem i overensstemmelse med internationale regnskabsstandarder, der er vedtaget efter den procedure, der er fastsat i denne forordning. Medlemsstaterne kan beslutte at udvide denne tilladelse eller dette krav til også at omfatte andre selskaber, for så vidt angår udarbejdelsen af disse selskabers koncernregnskaber og/eller årsregnskaber.
+(14) For at fremme en udveksling af synspunkter og gøre det muligt for medlemsstaterne at samordne deres holdninger bør Kommissionen regelmæssigt informere Regnskabskontroludvalget om igangværende projekter, diskussionsoplæg, rapporter samt udkast og forslag til regnskabsstandarder, der udsendes af IASB, samt om Det Regnskabstekniske Udvalgs arbejde i denne forbindelse. Det er tillige vigtigt, at Regnskabskontroludvalget orienteres på et tidligt tidspunkt, hvis Kommissionen ikke agter at foreslå vedtagelse af en international regnskabsstandard.
+(15) I forbindelse med Kommissionens overvejelser om og udarbejdelse af holdninger til dokumenter og oplæg udsendt af IASB i forbindelse med udviklingen af internationale regnskabsstandarder (IFRS og Standing Interpretations Committee Rulings (SIC-fortolkninger)) bør den tage hensyn til det vigtige i at undgå ugunstige konkurrenceforhold for europæiske selskaber, der er aktive på det globale marked, og i videst muligt omfang til de synspunkter, der er fremsat af delegationerne i Regnskabskontroludvalget. Kommissionen vil være repræsenteret i IASB's organer.
+(16) En korrekt og effektiv gennemførelsesordning er afgørende for at sikre investorernes tillid til finansmarkederne. Medlemsstaterne skal i henhold til EF-traktatens artikel 10 træffe foranstaltninger, der er egnede til at sikre overholdelsen af internationale regnskabsstandarder. Kommissionen agter at samarbejde med medlemsstaterne, i særdeleshed via EU-udvalget for Værdipapirtilsynsmyndigheder (CESR), om at udvikle en fælles strategi vedrørende gennemførelse.
+(17) Endvidere er det nødvendigt at tillade medlemsstaterne at udsætte anvendelsen af visse bestemmelser til 2007 for de selskaber, der er børsnoterede både i Fællesskabet og på et reguleret tredjelandsmarked, og som i forvejen anvender et andet sæt internationalt accepterede standarder som det primære grundlag for deres koncernregnskaber, såvel som for selskaber, som kun har børsnoterede obligationer. Det er imidlertid afgørende, at et fælles sæt globale internationale regnskabsstandarder, IAS, senest i 2007 gælder for alle børsnoterede selskaber i Fællesskabet, hvis aktier omsættes på et reguleret marked i Fællesskabet.
+(18) Med henblik på at medlemsstaterne og selskaberne kan foretage de tilpasninger, som er nødvendige for anvendelsen af internationale regnskabsstandarder, kan visse bestemmelser først gennemføres i 2005. Der bør udarbejdes passende bestemmelser om selskabernes første anvendelse af IAS som følge af denne forordnings ikrafttræden. Disse bestemmelser bør udarbejdes på internationalt plan for at sikre international anerkendelse af de vedtagne løsninger
+-
+UDSTEDT FØLGENDE FORORDNING:
+Artikel 1
+Mål
+Formålet med denne forordning er vedtagelse og anvendelse af internationale regnskabsstandarder i Fællesskabet med henblik på at harmonisere de i artikel 4 anførte selskabers finansielle oplysninger for at opnå en høj grad af gennemsigtighed og sammenlignelighed i forbindelse med årsregnskaber og at sikre, at Fællesskabets kapitalmarked og det indre marked fungerer effektivt.
+Artikel 2
+Definitioner
+I denne forordning forstås ved "internationale regnskabsstandarder" International Accounting Standards (IAS), International Financial Reporting Standards (IFRS) og hermed forbundne fortolkninger (SIC/IFRIC-fortolkninger), efterfølgende ændringer af disse standarder og hermed forbundne fortolkninger, fremtidige standarder og hermed forbundne fortolkninger, der udarbejdes eller vedtages af International Accounting Standards Board (IASB).
+Artikel 3
+Vedtagelse og anvendelse af internationale regnskabsstandarder
+1. Efter proceduren i artikel 6, stk. 2, træffer Kommissionen afgørelse om anvendelse af de internationale regnskabsstandarder i Fællesskabet.
+2. De internationale regnskabsstandarder kan kun vedtages, hvis:
+- de er i overensstemmelse med principperne i artikel 2, stk. 3, i direktiv 78/660/EØF og artikel 16, stk. 3, i direktiv 83/349/EØF samt er i den europæiske offentligheds interesse, og
+- de opfylder kravene om gennemsigtighed, relevans, pålidelighed og sammenlignelighed, der kræves i forbindelse med de finansielle oplysninger, der er nødvendige for at træffe økonomiske afgørelser og evaluere virksomhedens ledelse.
+3. Kommissionen træffer efter proceduren i artikel 6, stk. 2, inden den 31. december 2002 afgørelse om, hvorvidt de internationale regnskabsstandarder, der findes på tidspunktet for denne forordnings ikrafttræden, skal anvendes i Fællesskabet.
+4. Vedtagne internationale regnskabsstandarder offentliggøres i deres fulde udstrækning på hvert af Fællesskabets sprog som Kommissionens forordning i De Europæiske Fællesskabers Tidende.
+Artikel 4
+Koncernregnskaber for børsnoterede selskaber
+For hvert regnskabsår, der starter den 1. januar 2005 eller senere, udarbejder selskaber, der reguleres af en medlemsstats lovgivning, deres koncernregnskaber i overensstemmelse med de internationale regnskabsstandarder, der vedtages efter proceduren i artikel 6, stk. 2, hvis deres værdipapirer på balancetidspunktet omsættes på et reguleret marked i en medlemsstat som defineret i artikel 1, nr. 13, i Rådets direktiv 93/22/EØF af 10. maj 1993 om investeringsservice i forbindelse med værdipapirer(9).
+Artikel 5
+Muligheder med hensyn til årsregnskaber og ikke-børsnoterede selskaber
+Medlemsstaterne kan tillade eller kræve
+a) at de selskaber, der er omhandlet i artikel 4, udarbejder deres årsregnskaber
+b) at andre selskaber end de i artikel 4 omhandlede udarbejder deres koncernregnskaberog/eller årsregnskaber
+i overensstemmelse med de internationale regnskabsstandarder, der vedtages efter proceduren i artikel 6, stk. 2.
+Artikel 6
+Udvalgsprocedure
+1. Kommissionen bistås af et regnskabskontroludvalg, i det følgende benævnt "udvalget".
+2. Når der henvises til dette stykke, anvendes artikel 5 og 7 i afgørelse 1999/468/EF, jf. dennes artikel 8.
+Perioden i artikel 5, stk. 6, i afgørelse 1999/468/EF fastsættes til tre måneder.
+3. Udvalget vedtager selv sin forretningsorden.
+Artikel 7
+Rapportering og samordning
+1. Kommissionen samarbejder løbende med udvalget vedrørende igangværende IASBprojekters status og de dokumenter, som IASB i denne forbindelse udarbejder, for at samordne holdningerne og fremme drøftelser vedrørende vedtagelse af standarder, der vil kunne blive resultatet af disse projekter og dokumenter.
+2. Kommissionen underretter hurtigst muligt udvalget, hvis den ikke agter at foreslå vedtagelse af en standard.
+Artikel 8
+Underretning
+Såfremt medlemsstaterne træffer foranstaltninger i medfør af artikel 5, underretter de
+omgående Kommissionen og de øvrige medlemsstater herom.
+Artikel 9
+Overgangsbestemmelser
+Uanset artikel 4 kan medlemsstaterne fastlægge, at kravene i artikel 4 kun finder anvendelse for regnskabsår, der starter i januar 2007 eller senere, på de selskaber:
+a) hvis obligationer kun kan omsættes på et reguleret marked som defineret i artikel 1, nr. 13, i direktiv 93/22/EØF, eller
+b) hvis værdipapirer er børsnoteret i et tredjeland, og som med henblik herpå har anvendt internationalt accepterede regnskabsstandarder fra et regnskabsår, der startede før offentliggørelsen af denne forordning i De Europæiske Fællesskabers Tidende.
+Artikel 10
+Oplysning og undersøgelse
+Kommissionen undersøger denne forordnings virkemåde og forelægger inden den 1. juli 2007 Europa-Parlamentet og Rådet en rapport herom.
+Artikel 11
+Ikrafttræden
+Denne forordning træder i kraft på tredjedagen efter offentliggørelsen i De Europæiske Fællesskabers Tidende.
+Denne forordning er bindende i alle enkeltheder og gælder umiddelbart i hver medlemsstat.
+Udfærdiget i Bruxelles, den 19. juli 2002.
+På Europa-Parlamentets vegne
+P. Cox
+Formand
+På Rådets vegne
+T. Pedersen
+Formand
+(1) EFT C 154 E af 29.5.2001, s. 285.
+(2) EFT C 260 af 17.9.2001, s. 86.
+(3) Europa-Parlamentets udtalelse af 12.3.2002 (endnu ikke offentliggjort i EFT) og Rådets afgørelse af 7.6.2002.
+(4) EFT L 222 af 14.8.1978, s. 11. Senest ændret ved Europa-Parlamentets og Rådets direktiv 2001/65/EF (EFT L 283 af 27.10.2001, s. 28).
+(5) EFT L 193 af 18.7.1983, s. 1. Senest ændret ved Europa-Parlamentets og Rådets direktiv 2001/65/EF.
+(6) EFT L 372 af 21.12.1986, s. 1. Senest ændret ved Europa-Parlamentets og Rådets direktiv 2001/65/EF.
+(7) EFT L 374 af 31.12.1991, s. 7.
+(8) EFT L 184 af 17.7.1999, s. 23.
+(9) EFT L 141 af 11.6.1993, s. 27. Senest ændret ved Europa-Parlamentets og Rådets direktiv 2000/64/EF (EFT L 290 af 17.11.2000, s. 27).

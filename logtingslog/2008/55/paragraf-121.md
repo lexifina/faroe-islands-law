@@ -1,0 +1,1 @@
+§ 121. [^1] Ársfrásøgnin skal grannskoðast av uttanhýsis grannskoðarum felagsins, sbrt. § 127. Grannskoðanin fevnir ikki um leiðslufrágreiðingina og ískoytisfrágreiðingarnar, sum eru partar av ársfrásøgnini, sbr. § 118. Grannskoðarin skal kortini gera sínar viðmerkingar um, hvørt upplýsingarnar í leiðslufrágreiðingini samsvara við ársroknskapin og møguligan samtøkuroknskap.

@@ -1,0 +1,5 @@
+§ 75. Vanligar upplýsingar um kundaviðurskifti kunnu latast víðari til at nýta í sambandi við røkt av umsitingarligum uppgávum.
+Stk. 2. Til tess at røkja umsitingarligar uppgávur kunnu upplýsingar latast víðari til umsitingarfelagið í einum tryggingarumsitingarfelagsskapi.
+Stk. 3. [^1] Tryggingarfeløg og eftirlønargrunnar kunnu í sambandi við ráðgeving um lívstryggingar- og eftirlønarskipanir umframt persónstryggingar, ið eru partur av slíkum skipanum, lata víðari upplýsingar um kundaviðurskifti til tryggingarfeløg, sum tryggingarfelagið ella eftirlønargrunnurin eru samtøkuknýtt at, ella til umsitingarfelagið í einum tryggingarumsitingarfelagsskapi. Upplýsingar um heilsulig viðurskifti ella aðrar viðkvæmar upplýsingar kunnu ikki latast víðari uttan kundans samtykki.
+Stk. 4. [^1] Tann, sum fær upplýsingar sambært stk. 1-3, er fevndur av tagnarskylduni, nevnd í § 74, stk. 1.
+Stk. 5. [^1] Tryggingareftirlitið ásetir neyvari reglur um, hvørjar upplýsingar eru vanligar kundaupplýsingar sambært stk. 1.

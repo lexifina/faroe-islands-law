@@ -1,0 +1,2 @@
+§ 171. Eitt tryggingarfelag kann, um viðtøkurnar hava reglur um hetta, gera burturleggingar í ein trygdargrunn.
+Stk. 2. [^1] Peningur, ið er burturlagdur í trygdargrunnin, kann ikki verða tikin úr hesum. Heldur ikki kunnu broytingar verða gjørdar í viðtøkunum, við teirri avleiðing, at peningur, ið sambært stk. 1 longu er burturlagdur í trygdargrunnin, kann verða tikin úr hesum. Peningurin í trygdargrunninum kann tó nýtast til at dekka tap, tá ið tryggingarligu skyldurnar verða greiddar, ella nýtast á annan hátt teimum tryggjaðu til fyrimunar.

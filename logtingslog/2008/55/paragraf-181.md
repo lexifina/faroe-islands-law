@@ -1,0 +1,1 @@
+§ 181. Setur eitt sínámillum skaðatryggingarfelag, ið kemur undir reglurnar í hesum kapitli, fram áheitan um undantøku sambært aðalfundarsamtykt, kann Tryggingareftirlitið áseta, at felagið skal koma undir tær vanligu reglurnar í hesi lóg. Tá ein slík avgerð er tikin, kunnu ásetingarnar í hesum kapitli tó verða nýttar, um eftirlitið loyvir tí.

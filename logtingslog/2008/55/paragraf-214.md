@@ -1,0 +1,2 @@
+§ 214. [^10] Avgerðir tiknar av Tryggingareftirlitinum ella av Skráseting Føroya eftir lógini ella reglum givnar við lógini kunnu av tí, sum avgerðin viðvíkur, leggjast fyri Føroya Kærustovn í seinasta lagi fýra vikur eftir, at avgerðin er fráboðað viðkomandi.
+Stk. 2. Verður ein avgerð, sum Tryggingareftirlitið hevur tikið um, at felagið skal fara í avtøku, ella tess tryggingarmongd verður tikin undir umsiting, umgjørd, skal Skráseting Føroya beinanvegin skráseta hetta. Eftirlitið skal, um felagið eigur fasta ogn, síggja til neyðuga tinglýsing.

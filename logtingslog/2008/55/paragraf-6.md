@@ -1,0 +1,1 @@
+§ 6. Landsstýrismaðurin ásetir neyvari reglur um at nýta talgilt samskifti, harundir talgilt undirskriftarmerki, tá upplýsingar sambært hesi lóg verða skiftar millum borgarar og fyritøkur øðrumegin og almennu umsitingina hinumegin.

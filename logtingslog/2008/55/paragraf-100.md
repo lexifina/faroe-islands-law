@@ -1,0 +1,13 @@
+§ 100. [^1] Ognir, ið eru ein váði fyri eitt einstakt felag ella ein bólk av innanhýsis atknýttum feløgum, kunnu verða tiknar við í ognirnar, nevndar eru í § 95, stk. 1, um tær eru innan fyri niðanfyri nevndu mørk, ið eru ásett í mun til tryggingarligu burturleggingarnar:
+1) Ognir, fevndar av § 98, stk. 1, nr. 3, mugu ikki fara upp um 40 prosent.
+2) Ognir, fevndar av § 98, stk. 1, nr. 4, mugu ikki fara upp um 10 prosent.
+3) Ognir, fevndar av § 98, stk. 1, nr. 8, sbr. tó stk. 4, mugu ikki fara upp um 10 prosent.
+4) Ognir, fevndar av § 98, stk. 1, nr. 14, mugu ikki fara upp um 10 prosent.
+5) Ognir, fevndar av § 98, stk. 1, nr. 6, 7, 9, 10, 12 og 13, mugu tilsamans ikki fara upp um 4 prosent í tryggingarfeløgum, ið ikki beinleiðis reka lívstryggingarvirksemi, sbr. tó stk. 2.
+6) Ognir, fevndar av § 98, stk. 1, nr. 6, 7, 9, 10, 12 og 13, mugu tilsamans ikki fara upp um 2 prosent í eftirlønargrunnum og tryggingarfeløgum, sum reka beinleiðis lívstryggingarvirksemi, sbr. tó stk. 2. Markið er 3 prosent, um so er, at eginpeningurin í tí felagnum, sum henda ogn viðvíkur, fer upp um 250 milliónir kr., tá ið felagið hevur heimstað í einum landi í A-økinum, og ognin er upptikin til handils á einum reguleraðum marknaði í einum ES-landi ella í einum landi, sum ES hevur avtalu við á fíggjarøkinum, ella á samsvarandi marknaðum í øðrum londum innan A-økið.
+7) Ognir, fevndar av § 98, stk. 1, nr. 5-7 og 9-13, mugu tilsamans ikki fara upp um 5 prosent.
+8) Lán, ið eru fevnd av § 98, stk. 1, nr. 13, mugu ikki fara upp um 1 prosent.
+Stk. 2. [^1] Tá ið íløgur verða gjørdar í fæfeingislutir og lán til eitt felag ella ein bólk af innanhýsis atknýttum feløgum, hvørs virksemi einans er at gera íløgur í ognir, fevndar av § 98, stk. 1, nr. 5 og 11, má íløgan tilsamans ikki fara upp um 5 prosent av tryggingarligu burturleggingunum, sbr. § 95, stk. 1.
+Stk. 3. [^1] Stk. 1, nr. 3 og 5-7, og stk. 2 og 5 eru ikki galdandi fyri íløgur í eitt dótturfelag, sum er fevnt av § 98, stk. 2-4.
+Stk. 4. [^1] Stk. 1, nr. 3 og 5-7, og stk. 2 og 5 eru ikki galdandi fyri íløgur í virkir, íløgustovnar og feløg, ið eru fevnd av § 98, stk. 1, nr. 8, hvørs virksemi sambært viðtøkunum er avmarkað til at gera íløgur í ognir, ið eru fevndar av § 98, stk. 1, nr. 1-3. Tílíkar íløgur kunnu, í mun til mørkini, ið eru ásett í stk. 1, nr. 5-8 og stk. 2 og § 99, stk. 1, nr. 1-3, verða mettar sum ognir, fevndar av § 98, stk. 1, nr. 1-3.
+Stk. 5. [^1] Fyri ognir, ið eru fevndar av § 98, stk. 1, nr. 6, 7, 9, 10, 12 og 13, er markið 5 prosent fyri íløgur í einstakt felag og 10 prosent fyri íløgur í ein bólk av innanhýsis atknýttum feløgum í mun til burturleggingar tryggingarfelagsins til at dekka endurtryggingarvirksemi tess.

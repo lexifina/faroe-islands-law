@@ -1,0 +1,1 @@
+§ 194. Tryggingareftirlitið kann geva boð um at rætta viðurskiftini, ið eru í ósamsvari við §§ 35 og 41. Eftirlitið kann í tí sambandi gera eftirlitsvitjanir í deildum hjá fyrisitingarfeløgum og íløgufeløgum.

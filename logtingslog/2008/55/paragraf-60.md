@@ -1,0 +1,1 @@
+§ 60. Ein stjóri kann ikki uttan nevndarinnar góðkenning gera avtalu millum tryggingarfelagið og seg sjálvan, ella avtalu millum tryggingarfelagið og triðjamann, har sum stjórin hevur týðandi áhugamál, ið kunnu stríða móti felagsins áhugamálum.

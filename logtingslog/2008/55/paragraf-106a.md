@@ -1,0 +1,1 @@
+§ 106 a. [^2] Tryggingarfeløg og dótturfeløg tess og feløg, ið fyribils verða rikin av tryggingarfeløgum, skulu ikki takast við í konsolideringina sambært § 105 a. Tryggingareftirlitið kann tó gera av, at hesi feløg skulu takast við.

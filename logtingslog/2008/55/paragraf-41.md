@@ -1,0 +1,3 @@
+§ 41. Eitt tryggingarfelag, sum bjóðar út brúkaratryggingar, skal bjóða, at viðkomandi tryggingar kunnu teknast við treyt um, at tryggingartakarin kann siga tryggingina upp við 30 daga freist til mánaðarlok.
+Stk. 2. Við eina brúkaratrygging sbr. stk. 1 skal skiljast ein tryggingaravtala, har tryggingartakarin (brúkarin), tá avtalan verður gjørd, í høvuðsheitum virkar uttan fyri sína vinnugrein.
+Stk. 3. Stk. 1 er ikki galdandi fyri lívstrygging. Stk. 1 er harumframt ikki galdandi fyri trygging, sum umfatar ein serstakan íkomnan váða, ið bert fevnir um eitt avmarkað tíðarskeið, tá tryggingaravtalan verður gjørd fyri eitt avtalað tíðarskeið, sum í mesta lagi er 1 mánaður (stutttíðartrygging), uttan so at tryggingin er ein partur av einum øðrum slagi av trygging.

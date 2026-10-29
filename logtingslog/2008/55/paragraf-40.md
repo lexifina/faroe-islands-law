@@ -1,0 +1,1 @@
+§ 40. Tryggingareftirlitið ásetir neyvari reglur um tær upplýsingar, sum eitt lívs- ella skaðatryggingarfelag skrivliga skal lata viðskiftafólki, áðrenn tryggingaravtala verður gjørd, og í framhaldandi kundaviðurskiftum.

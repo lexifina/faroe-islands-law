@@ -1,0 +1,1 @@
+§ 120. Útrokningar, mátingar og upplýsingar í gjaldoyraeindum skulu verða gjørdar í donskum krónum ella evru. Tryggingareftirlitið kann áseta í reglum, gjørdar við heimild í § 124, at upphæddirnar verða tilskilaðar í øðrum útlendskum gjaldoyra, ið hevur týdning fyri fyritøkuna ávikavist samtøku fyritøkunnar.
