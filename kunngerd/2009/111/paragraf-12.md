@@ -1,0 +1,2 @@
+§ 12. Spillivatn skal ikki leiðast út í økjum við privatum ella vinnuligum virksemi, sum t.d. inni í bátahyljum, innan fyri molar, nærhendis neystum, aliøkjum og strandaøkjum, har grind verður hildin til, ella nærhendis serligum frítíðarøkjum og økjum, ið antin eru serliga viðkvom ella hava náttúruvísindaligan týdning.
+Stk. 2. Spillivatn, sum kommunustýri av serligum ávum ynskir at leiða út innan fyri ein mola, eru undantiknar kravinum í stk. 1, treytað av, at kanningar hava staðfest, at útleiðingin er sambært § 10.
