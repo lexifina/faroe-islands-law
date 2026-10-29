@@ -1,0 +1,1 @@
+§ 12. Fyri rindan av avgjaldi eftir hesari lóg heftir tann ið, sum eigari, uppsitari ella líknandi, rekur virkið fyri egna rokning. Er eitt útlendskt virki skrásett við einum umboðsmanni her sambært § 3, stk. 3, bera hesin og virkið samábyrgd fyri rindan av avgjaldinum.

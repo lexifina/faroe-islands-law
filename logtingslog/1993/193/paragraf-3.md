@@ -1,0 +1,3 @@
+§ 3. [^2] TAKS útflýggjar virkjum fráboðan um, at tey eru skrásett eftir § 2.
+2. stk. Fráboðan til skrásetingar skal fara fram í seinasta lagi 8 dagar, áðrenn virkið byrjar. Broytingar í skrásetingarviðurskiftunum skulu verða fráboðaðar í seinasta lagi 8 dagar aftaná, at broytingin er gjørd.
+3. stk. [^3] Um eitt virki ikki hevur deild ella líknandi her á landi skal tað verða skrásett við einum persóni, sum er búsitandi her á landi, ella við einum virki, sum hevur handilsstað her á landi. Ásetingarnar í 1. pkt eru ikki galdandi í tann mun, annað er ásett í sáttmála frá 31. august 2005 millum stjórn Íslands øðrumegin og stjórn Danmarkar og Føroya Landstýri hinumegin (Hoyvíkssáttmálanum).

@@ -1,0 +1,4 @@
+§ 5. Avgjaldsgrundarlagið er fyri tey í § 1, stk. 1, nr. 1 nevndu virkir útgoldin A-lønarupphædd hjá virkinum við avlopi av sjálvstøðugum vinnuvirki afturatløgdum ella undirskoti frádrignum, gjørt upp eftir reglunum fyri uppgerð av skattskyldugari inntøku.
+2. stk. Avgjaldsgrundarlagið er fyri tey í § 1, stk. 1 nr. 2 og 3 nevndu virki útgoldna A-lønarupphæddin hjá virkinum í avgjaldstíðarskeiðnum.
+3. stk. Í samband við uppgerð av lønarupphæddini, skal lønarsamsýning í naturalia viðroknast í lønarupphæddina í tann mun, tað gevur rætt til frítíðarendurgjald sambært frítíðarlógini.
+4. stk. Virkir, sum bæði hava virksemi eftir § 1, stk. 1 og annað virksemi, skulu grundað á eitt økisuppbýti av virkinum, gera eitt býti av virkisins lønarupphædd og yvirskoti ella halli, sum viðvíkir tí avgjaldsskylduga partinum av virkinum, ávikavist restini av virkinum. Landsstýrið kann áseta nærri reglur fyri uppgerðina av avgjaldsgrundarlagnum eftir 1. og 2. pkt.

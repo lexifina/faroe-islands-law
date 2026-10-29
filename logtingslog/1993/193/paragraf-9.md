@@ -1,0 +1,1 @@
+§ 9. [^2] Fyri virkir, sum bert verða rikin í stutta tíð, kann TAKS áseta, at uppgerðartíðarskeiðið er tað tíðarskeiðið, sum virkið verður rikið í. TAKS kann somuleiðis fyri tílík virki, stytta um freistirnar fyri at senda uppgerð og krav út, og fyri at inngjalda avgjaldið.
