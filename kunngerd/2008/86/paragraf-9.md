@@ -1,0 +1,2 @@
+§ 9. Um so er, at ásetta freistin sbrt. § 8, stk. 2, er farin, og eingin uppstillingarlisti er latin inn, ella talið á valevnum á øllum listunum samanlagt er minni enn lógarásetta talið á foreldraumboðum, skal valnevndin gera ein valevnislista. Valnevndin er tá stillari.
+Stk. 2. Um so er, at tað ikki er møguligt at manna skúlastýrið við foreldraumboðum og eykaumboðum í sambandi við valið, skal landsstýrismaðurin hava boð um hesi viðurskifti sum skjótast og fyri valdagin.

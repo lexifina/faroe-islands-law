@@ -1,0 +1,1 @@
+§ 30. Kærur um valið av foreldraumboðum til skúlastýrið skulu skrivliga latast landsstýrismanninum í seinasta lagi 8 dagar eftir valið. Landsstýrismaðurin tekur, eftir at hava sent kæruna til ummælis hjá valnevndini, endaliga avgerð í málinum.

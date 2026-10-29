@@ -1,0 +1,1 @@
+§ 10. Valevni, sum ikki vilja verða á uppstillingarlista, skulu gera vart við seg innan 24 tímar, eftir at tey hava fingið boð frá ábyrgdarhavandi stillara. Sagt verður ábyrgdarhavandi stillara frá, um viðkomandi vil sleppa av listanum. Halda stillararnir fast við uppstillingina, sleppur valevni ikki av listanum, sbr. tó § 3, stk. 2 og 3.
