@@ -1,0 +1,2 @@
+§ 13. Skyldugir skattir, avgjøld og falnar rentur fella til gjaldingar tann 1. í mánaðinum aftaná, at skattavaldið hevur sett krav fram um gjalding við gjaldsfreist til 20. í mánaðinum.
+Stk. 2. Goldin peningakrøv eftir § 12, stk. 2, kunnu ikki dragast frá í útrokning av inntøku, tá inntøkan skal nýtast til at rokna skatt ella avgjøld. Sama er galdandi fyri útreiðslur av at gera upp møguliga fíggjarliga ábyrgd av skatti og avgjøldum, her íroknað útreiðslur av at veita trygd fyri skatta- og avgjaldskrøvum o.ø.

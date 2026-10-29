@@ -1,0 +1,2 @@
+§ 7. Skattskyldug, sum reka virksemi, ið kemur undir reglurnar í kolvetnisskattalógini, skulu ókravd lata avvarðandi loyvishavara eftir § 6, stk. 2, upplýsingar um arbeiðsavtalur, ið tey gera við persónar ella feløg v.m.
+Stk. 2. Upplýsingarskyldan eftir stk. 1 fevnir um, hvat slag av arbeiði avtala er gjørd um, navn á persóni ella felag, sum ger arbeiðið, møguligt virkistal, nær og hvar arbeiðið verður gjørt, sáttmálaupphædd, tann væntaða útgoldna lønarupphæddin tilsamans saman við avriti av møguligari skrivligari arbeiðsavtalu.

@@ -1,0 +1,2 @@
+§ 8. Arbeiðsgevari, sum rekur virksemi, ið kemur undir reglurnar í kolvetnisskattalógini, skal ókravdur lata avvarðandi loyvishavara eftir § 6, stk. 2, upplýsingar um persónar, hann hevur í starvi, og sum arbeiða á teimum økjum, sum nevnd eru í § 1 í kolvetnisskattalógini.
+Stk. 2. Upplýsingarskyldan eftir stk. 1 fevnir um navn starvsfólksins, føðingardag, møguligt persóntal, bústað, skattligan heimstað, navn arbeiðsgevarans og møguligt virkistal hansara, arbeiðspláss, slag av arbeiði, og hvussu leingi arbeiðið væntast at vara, sum starvið beinleiðis hevur samband við.
