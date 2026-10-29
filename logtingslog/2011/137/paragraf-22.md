@@ -1,0 +1,1 @@
+§ 22. Í keypsavtalum, har ásetingarnar í kapitli 1 verða at nýta, sbr. § 1, kunnu ásetingar í avtaluni um, at keypari ikki kann gera galdandi fysisk ábrek við ognini, og onnur almenn fyrivarni, ikki gerast galdandi mótvegis keypara í tann mun, seljari sjálvur kundi havt fingið sama rættarvirknað við at fylgja teirri í § 2 nevndu mannagongd.

@@ -1,0 +1,2 @@
+§ 17. Um tann, sum hevur bílagt arbeiðið, iðrar avtaluna, kann arbeiðstakarin einans krevja viðurgjald fyri arbeiðið, sum sambært avtaluni longu skuldi verið gjørt, og sum er gjørt.
+Stk. 2. Um tann, sum hevur bílagt arbeiðið, longu hevur rindað ein part av avtalaða viðurgjaldinum, ella hevur arbeiðstakarin longu sum trygd fyri rindan av viðurgjaldinum fingið eitt pantibræv ella samsvarandi skjal, verður § 12 at nýta, tó við teimum broytingum, sum fylgja av stk. 1.

@@ -1,0 +1,2 @@
+§ 8. Iðranarrætturin er treytaður av, at keypari í seinasta lagi 6 yrkadagar eftir, at avtalan er gjørd, gevur seljara skrivliga fráboðan um, at keypari iðrar avtaluna, sbr. tó stk. 2. Fráboðanin skal vera komin fram til seljara, áðrenn freistin gongur út.
+Stk. 2. Er avtalan gjørd við, at keypari hevur tikið av einum tilboði frá seljara um sølu, skal tann í stk. 1 nevnda fráboðan verða komin fram í seinasta lagi 6 yrkadagar eftir, at keypari fekk kunnleika til tilboðið.

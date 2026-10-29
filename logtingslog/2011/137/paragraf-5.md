@@ -1,0 +1,5 @@
+§ 5. Ein upplýsing um ognarskiftistrygging skal, fyri at hava tann í § 2 nevnda rættarvirknað, vera skrivlig og skal innihalda eina fráboðan frá einum tryggingarfelagi um:
+1) tær treytir, sum eru galdandi fyri, at keypari kann tekna eina trygging viðvíkjandi ognini, sum í minst 5 ár eftir yvirtøkudagin, og við møguleika fyri leingjan til í minsta lagi 10 ár, tekur við ábrekum við fysisku støðuni á ognini, sum vóru til staðar, tá keypari yvirtók ognina, og sum ikki eru nevnd ella sum greitt eru lýst skeivt í støðufrágreiðingini, sbr. § 4, ella
+2) hvørji serlig viðurskifti við fysisku støðuni á ognini hava við sær, at trygging sbrt. stk. 1 ikki kann verða teknað.
+Stk. 2. Tann í stk. 1, nr. 1 nevnda fráboðan skal verða skrivað sum eitt bindandi tilboð til keypara og skal veita keypara eina rímiliga freist at taka av tilboðnum.
+Stk. 3. Landsstýrismaðurin við vinnumálum kann áseta reglur um vavið av teimum í stk. 1 nevndu tryggingum og um innihaldið í teimum í stk. 1 nevndu fráboðanum frá tryggingarfeløgum.

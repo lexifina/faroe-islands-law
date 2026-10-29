@@ -1,0 +1,2 @@
+§ 19. Ein vinnurekandi seljari ella miðlari, sbr. § 6, stk. 3, skal, áðrenn iðranarfreistin eftir § 8 byrjar, geva keypara upplýsingar um iðranarrættin sbrt. kapittul 2 í einum serligum skjali. Er talan um avtalu um at keypa ella gera bygningar, sbrt. § 14, skal arbeiðstakarin, áðrenn iðranarfreistin byrjar, sbr. § 16, geva tí, sum hevur bílagt arbeiðið, upplýsingar um iðranarrættin sbrt. kapittul 3.
+Stk. 2. Landsstýrismaðurin kann áseta nærri reglur um skipan av og innihald í teimum í stk. 1 nevndu upplýsingum.
