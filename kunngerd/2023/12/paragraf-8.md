@@ -1,0 +1,2 @@
+§ 8. Eigari av serhandli, ið selur útgerð í flokki II a, II b og III, ella framleiðari av útgerð í hesum flokkunum, ella umboð fyri hesi, skal kunna Landsapotekaran um navn, V-tal, bústað, telefonnummar, teldupostbústað, virki og slag av útgerð, ið fyritøkan selur ella førir á marknað í Føroyum.
+Stk. 2. Framleiðari, ið hevur kunnað sambært stk. 1, skal kunna Landsapotekaran um allar broytingar í teimum í stk. 1 nevndu upplýsingum.

@@ -1,0 +1,1 @@
+§ 5. Landsapotekarin kann í serligum føri gera av, at fráboðanarskyldan, sambært § 4, stk. 1 skal fevna um ein og hvønn tilburð við einum nærri ásettum slagi av medisinskari útgerð ella medisinskari útgerð í in-vitro diagnostikki, ið kann føra ella kann hava ført við sær skaða á sjúkling, brúkara ella triðjamann.
