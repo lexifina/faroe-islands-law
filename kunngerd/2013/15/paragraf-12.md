@@ -1,0 +1,4 @@
+§ 12. Próvtakari, ið ikki kann fara til próvtøku fyri sjúku ella av aðrari orsøk, sum próvtakarin er sakleysur í, skal hava møguleika fyri at fara til próvtøku skjótast gjørligt í sama próvtøkuskeiði.
+Stk. 2. Frávera sbrt. stk. 1 skal fráboðast skúlanum sum skjótast.
+Stk. 3. Um próvtøkan í einari lærugrein hevur ein ella fleiri tættir, har próvtal verður givið fyri hvønn tátt sær, fer próvtakarin bert til sjúkrapróvtøku í tí tátti av próvtøkuni, sum ikki er lokin, sbr. stk. 1. Hetta er eisini galdandi, um einstøku próvtølini eru partspróvtøl av einum samlaðum próvtali í lærugreinini.
+Stk. 4. Skúlastjórin kann gera av, tá ið talan er um sjúku, at sjúkrapróvtøka verður framd við at leingja tíðarfreistir, sum eru ásettar, eitt nú í sambandi við verkætlanaruppgávu ella aðrar uppgávur, har innlatingarfreist er ásett. Mentamálaráðið skal hava fráboðan um hetta.

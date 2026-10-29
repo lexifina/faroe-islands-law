@@ -1,0 +1,1 @@
+§ 38. Til munnligu próvtøkuna sendir lærarin próvdómaranum próvtøkuspurningarnar saman við møguligum fylgiskjølum. Próvtøkuspurningar og møgulig fylgiskjøl, t.d. ólisnir tekstir, skulu vera próvdómaranum í hendi í seinasta lagi 7 dagar undan próvtøkuni.

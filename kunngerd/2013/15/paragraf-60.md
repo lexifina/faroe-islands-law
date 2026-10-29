@@ -1,0 +1,6 @@
+§ 60. Tekur skúlastjórin avgerð um, at kæran skal viðgerast víðari, sendir hann Mentamálaráðnum kæruna hjá próvtakaranum saman við grundgeving síni, frágreiðing frá próvhoyrara og próvdómara um próvtøkuna og møguligar viðmerkingar frá kæraranum.
+Stk. 2. Snýr kæran seg um at áseta próvtal í sambandi við skrivliga próvtøku, sendir skúlastjórin Mentamálaráðnum alt tilfar í kærumálinum, sbrt. stk. 1, so umdøming kann fara fram. Mentamálaráðið tilnevnir síðani ástøðufólk, sum við støði í øllum tilfarinum í kærumálinum ásetir próvtal. Próvtalið, sum ástøðufólkið ásetir, skal vera grundgivið og er endaligt.
+Stk. 3. Snýr kæran seg um at áseta próvtal í sambandi við munnliga próvtøku, tekur Mentamálaráðið við støði í øllum tilfarinum í kærumálinum støðu til kæruna. Mentamálaráðið avger, um endurpróvtøka skal verða boðin kæraranum, ella um kæran verður víst aftur.
+Stk. 4. Verður endurpróvtøka sbrt. stk. 3 boðin kæraranum, tilnevnir Mentamálaráðið nýggjan próvdómara, og endurpróvtøka verður framd so skjótt sum til ber.
+Stk. 5. Meðan kærumál verður viðgjørt, skal skúlin hava frumprógvið í varðveitslu. Ber umdøming ella endurpróvtøka í sær, at próvtal verður broytt, útskrivar skúlastjórin nýtt prógv, og gamla frumprógvið verður burturbeint.
+Stk. 6. Umdøming og endurpróvtøka kann hava við sær, at próvtalið verður hækkað, lækkað ella verður tað sama, sum fyrr ásett.

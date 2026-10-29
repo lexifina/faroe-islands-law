@@ -1,0 +1,2 @@
+§ 24. Hvørki próvtakari ella annar persónur, sum er í próvtøkuhølinum, kann taka uppgávueintak, uppgávusvar, kladdu ella hjálparpappír úr próvtøkuhølinum, fyrr enn próvtøkan er endaliga lokin sambært tíðaráseting Mentamálaráðsins.
+Stk. 2. Telda og geymi, sum próvtakari hevur nýtt í sambandi við uppgávusvar, mugu ikki takast úr próvtøkuhølinum, fyrr enn próvtøkan er endaliga lokin sambært tíðaráseting Mentamálaráðsins.

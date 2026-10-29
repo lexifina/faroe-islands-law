@@ -1,0 +1,2 @@
+§ 58. Skúlastjórin avger, um kærumál sbrt. § 57, stk. 1 skal viðgerast, ella um tað verður víst aftur. Afturvísing skal vera skrivlig og grundgivin.
+Stk. 2. Tekur skúlastjórin avgerð um, at kæran verður víst aftur, kann kærarin umvegis skúlastjóran kæra málið til Mentamálaráðið innan 7 dagar eftir, at afturvísingin er kunngjørd kæraranum. Skúlastjórin sendir Mentamálaráðnum sítt tilmæli saman við kæruni.

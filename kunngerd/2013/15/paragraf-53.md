@@ -1,0 +1,2 @@
+§ 53. Skúlastjórin skrivar næmingi, sum ikki megnar fakligu krøvini í einari lærugrein og tí verður frítikin fyri at fara til próvtøku, støðumetingarskjal, sbr. § 9, stk. 5 og § 62, stk. 1.
+Stk. 2. Skúlastjórin tekur í samráð við avvarðandi lærara, næmingin og tey, ið hava foreldramyndugleikan, avgerð um, hvat støðumetingarskjalið skal fevna um í mun til úrtøku og avrik næmingsins. Mentamálaráðið ger frymil til støðumetingarskjal.

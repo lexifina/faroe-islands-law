@@ -1,0 +1,1 @@
+§ 20. Próvtøkurnar eru á føroyskum. Próvtøkurnar kunnu tó fara fram á øðrum máli, uttan so, at endamálið við próvtøkuni er at skjalprógva førleika próvtakarans í føroyskum. Tað er ein fyritreyt, at próvtakari, próvhoyrari og próvdómari hava neyðugan førleika í avvarðandi máli.

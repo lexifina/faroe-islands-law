@@ -1,0 +1,4 @@
+§ 26. Skúlastjórin setur eftirlitsfólk eftir tørvi. Eftirlitsfólkini kunnu ikki veita hjálp í fakligum spurningum. Lærari kann ikki vera eftirlitsfólk hjá næmingum í einari lærugrein, har hann sjálvur undirvísir.
+Stk. 2. Eftirlitsfólk skal fylgja próvtakara, um próvtakari noyðist at fara úr próvtøkuhølinum undir próvtøkuni.
+Stk. 3. Fer próvtakari úr próvtøkuhølinum uttan loyvi ella uttan at fylgjast við eftirlitsfólki og hóast ávaring frá eftirlitsfólki móti hesum, verður uppgávusvarið mett sum ikki latið inn, og merkir hetta, at próvtøkan er slitin, og einki próvtal verður ásett.
+Stk. 4. Skúlastjórin kann, tá hann metir grundgevingarnar vera nøktandi, loyva próvtakara, ið hevur slitið próvtøkuna, sbr. stk. 3, at fara til endurpróvtøku í tí parti ella teimum pørtum av samlaðu próvtøkuni, har slitið var framt.

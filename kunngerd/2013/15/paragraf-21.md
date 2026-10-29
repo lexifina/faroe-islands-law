@@ -1,0 +1,2 @@
+§ 21. Skúlastjórin skal bjóða próvtakara, ið hevur skerdan virkisførleika, serligar próvtøkutreytir fyri at javnstilla hann við aðrar próvtakarar í próvtøkustøðuni. Tað er ein fortreyt, at tilboðið ikki hevur við sær, at próvtøkustøðið lækkar.
+Stk. 2. Skúlastjórin tekur avgerð um hetta eftir tilmæli frá Sernámi ella øðrum serkønum við sernámsfrøðiligum innliti og í samráð við næmingin, tey, ið hava foreldramyndugleikan, og Mentamálaráðið.
