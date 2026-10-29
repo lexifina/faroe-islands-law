@@ -1,0 +1,1 @@
+§ 29. Lýkur grannskoðari, sum hevur fingið loyvisgóðkenning frá Fíggjareftirlitinum, ikki kravið um meiri eftirútbúgving, og hevur viðkomandi ikki fingið undantak frá hesum, sbr. § 27, stk. 1, tá trý ára tíðarskeiðið gongur út, sbr. § 5, stk. 4 og § 4, stk. 1, gevur Skráseting Føroya Fíggjareftirlitinum fráboðan um hetta.

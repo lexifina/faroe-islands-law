@@ -1,0 +1,1 @@
+§ 27. Metir Skráseting Føroya í samband við eftirlit við grannskoðara ella grannskoðanaravirki, at grannskoðari hevur tørv á meiri eftirútbúgving innan eitt ávíst øki, kann Skráseting Føroya áleggja grannskoðara eftir nærri ásettum treytum at taka lut í slíkari eftirútbúgving innan eina av Skráseting Føroya ásettari freist.

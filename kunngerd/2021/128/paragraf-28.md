@@ -1,0 +1,4 @@
+§ 28. Manglar ein grannskoðari, sum hevur fingið loyvisgóðkenning frá Fíggjareftirlitinum, í endanum av trý ára tíðarskeiðinum sambært § 5, stk. 4, sbr. § 4, stk. 1, at taka ein minni part av eftirútbúgvingini sambært § 5, stk. 1, tó í mesta lagi 10 tímar, kann Skráseting Føroya eftir umsókn geva undantak og samstundis áseta eina freist fyri, nær grannskoðarin skal hava tikið ta eftirútbúgving, sum manglar.
+Stk. 2. Umsókn um undantak kann í fyrsta lagi verða latin Skráseting Føroya, tá ið eitt trý ára tíðarskeið er runnið, og skal vera móttikin á Skráseting Føroya í seinasta lagi tann 1. apríl í árinum eftir, at trý ára tíðarskeiðið er runnið.
+Stk. 3. Eitt undantak eftir stk. 1 ávirkar ikki krøvini til komandi trý ára eftirútbúgvingartíðarskeiðið eftir § 5.
+Stk. 4. Lýkur grannskoðari ikki kravið um eftirútbúgving innan ásettu freistina sambært stk. 1, gevur Skráseting Føroya Fíggjareftirlitinum fráboðan um hetta.
