@@ -1,0 +1,2 @@
+§ 12. Verður innflytarin varugur við, at vandi kann standast av fýrverki ella øðrum pyrotekniskum evnum, sum hesin hevur flutt inn, skal innflytarin harumframt kunna Arbeiðs- og brunaeftirlitið.
+Stk. 2. Arbeiðs- og brunaeftirlitið kann taka avgerð um at afturkalla fýrverk ella onnur pyroteknisk evni frá marknaðinum, um myndugleikin hevur orsøk til at halda, at hesi ikki lúka krøvini í hesi kunngerð.

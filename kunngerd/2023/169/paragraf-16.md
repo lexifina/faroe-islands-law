@@ -1,0 +1,2 @@
+§ 16. Loyvi sambært § 15, stk. 1 til goymslu av brúkarafýrverki og øðrum pyrotekniskum evnum í smásøluliðinum verður givið fyri tíðarskeiðið frá 24. november til og við 1. februar árið eftir. Fýrverk og onnur pyroteknisk evni, ið ikki verða seld, skulu eftir 1. februar goymast á góðkendari goymslu hjá innflytara ella beinast burtur.
+Stk. 2. Loyvi kann verða givið til at goyma brúkarafýrverk í flokki F1 alt árið.

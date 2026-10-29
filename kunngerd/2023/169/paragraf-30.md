@@ -1,0 +1,1 @@
+§ 30. Kommunali myndugleikin ella Arbeiðs- og brunaeftirlitið kann fyri eitt nærri avmarkað øki seta bann fyri ella áseta nærri treytir fyri allari nýtslu av fýrverki og øðrum pyrotekniskum evnum í einum nærri ásettum tíðarskeiði, tá tað vegna turk ella onnur viðurskifti verður mett neyðugt fyri at minka um vandan fyri eldi, øðrum skaða og fólkaskaða.

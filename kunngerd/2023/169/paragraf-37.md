@@ -1,0 +1,3 @@
+## Boð
+§ 37. Vísa eftirlit sambært § 36, at viðurskifti ikki eru í samsvari við ásetingarnar í hesi kunngerð ella avgerðir, tiknar við heimild í hesi kunngerð, kunnu Arbeiðs- og brunaeftirlitið, Føroya Politi ella kommunali myndugleikin krevja, at viðurskiftini beinanvegin ella áðrenn eina nærri ásetta freist verða fingin í rættlag.
+Stk. 2. Um Arbeiðs- og brunaeftirlitið, Føroya Politi ella kommunali myndugleikin halda tað vera neyðugt at byrgja fyri munandi og hóttandi vanda fyri trygdini og heilsuni hjá almenninginum, kunnu myndugleikarnir krevja, at viðkomandi virksemi steðgar alt fyri eitt, ella at ein átrokandi vandi verður beindur burtur.

@@ -1,0 +1,2 @@
+§ 13. Innflytarin skal føra skrá fyri øll skrásetingarnummur fyri fýrverki og øðrum pyrotekniskum evnum, ið innflytarin hevur flutt inn, saman við handilsnavni. Skráin skal førast í minsta lagi 10 ár eftir, at pyroteknisku evnini eru gjørd tøk á marknaðinum.
+Stk. 2. Eftir umbøn frá Arbeiðs- og brunaeftirlitinum skal innflytarin upplýsa um ein og hvønn, ið hevur útvegað innflytaranum fýrverk ella onnur pyroteknisk evni, og upplýsa um ein og hvønn seljara, ið innflytarin hevur útvegað fýrverk ella onnur pyroteknisk evni til.
