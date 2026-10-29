@@ -1,0 +1,3 @@
+## Revsin
+§ 70. Uttan so, at hægri revsing kann dømast sambært aðrari lóggávu, kann persónur revsast við sekt, ið við grovum ósketni dylur upplýsingar ella gevur skeivar ella villleiðandi upplýsingar, ið hava týdning fyri avgerð sambært hesari løgtingslóg, og harvið voldir myndugleikanum ein fíggjarmiss.
+Stk. 2. Uttan so, at hægri revsing kann dømast sambært aðrari lóggávu, kann arbeiðsgevari revsast við sekt, ið við grovum ósketni dylur upplýsingar ella gevur skeivar ella villleiðandi upplýsingar, ið hava týdning fyri avgerð sambært hesari løgtingslóg, og harvið voldir myndugleikanum ein fíggjarmiss. Løgfrøðiligir persónar koma undir revsiábyrgd eftir reglunum í kapitli 5 í revsilógini.

@@ -1,0 +1,1 @@
+§ 52. [^7] Skal persónur setast á fyribils ella vardan bústað í Føroyum ella í øðrum parti av ríkinum sambært § 49, stk. 1, nr. 1-3 ella § 49, stk. 2, og setir persónur seg ímóti hesum, veitir løgreglan eftir áheitan frá Almannaverkinum hjálp at flyta persónin á bústaðin.

@@ -1,0 +1,6 @@
+## Fíggjarligt ískoyti til stakútreiðslu
+§ 19. Persónur, sum hevur verið fyri almannahending sambært § 11, stk. 1, og persónur, sum fær veiting sambært § 13, kann fáa fíggjarligt ískoyti til neyðuga og rímiliga grundaða stakútreiðslu, um so er, at viðkomandi ikki sjálvur er førur fyri at halda útreiðsluna.
+Stk. 2. Persónur, sum hevur útreiðslur til sjúkuviðgerð, heilivág, tannviðgerð og líknandi útreiðslur, kann fáa fíggjarligt ískoyti at halda útreiðsluna. Ískoytið er treytað av, at viðgerðin er fevnd av avtalu við Heilsutrygd.
+Stk. 3. [^2] Tá persónur er ávístur til sjúkuviðgerð uttanlands, undir hesum persónur, ið er ávístur sum fylgjari, kann víkjast frá treytini í stk. 2 um, at viðgerðin skal vera fevnd av avtalu við Heilsutrygd. Talan skal vera um viðgerð, sum sannlíkt hevði verið fevnd av ásetingini í stk. 2, um viðkomandi var staddur í Føroyum. Tað skal vera mett, at viðgerðin ikki kann bíða, til viðkomandi kemur aftur til Føroya.
+Stk. 4. [^2] Treytin fyri at veita fíggjarligt ískoyti sambært stk. 1 og 2 er, at persónur og familja hansara við at rinda útreiðsluna frameftir verða munandi avmarkað at gerast fíggjarliga sjálvhjálpin.
+Stk. 5. [^1] Landsstýrisfólkið ásetir nærri reglur um treytir og útrokning av fíggjarligum ískoyti til stakútreiðslu.

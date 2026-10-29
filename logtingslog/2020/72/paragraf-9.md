@@ -1,0 +1,1 @@
+§ 9. Fíggjarligt ískoyti til heimferð til Føroyar kann veitast persóni, ið hevur lógligt uppihald í Føroyum, tá hesin er komin í fíggjarliga trongstøðu í útlandinum, og viðurskiftini tala fyri at veita fíggjarligt ískoyti til heimferð.

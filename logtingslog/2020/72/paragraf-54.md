@@ -1,0 +1,2 @@
+§ 54. Persónur, ið fær hjálp sambært hesi løgtingslóg, skal boða Almannaverkinum frá øllum broytingum í persónligu og fíggjarligu viðurskiftum sínum, ið kunnu hava ávirkan á hjálpina.
+Stk. 2. Hevur persónur av órøttum fingið uppihaldsveiting, fíggjarligt ískoyti, fíggjarligt endurgjald ella fíggjarligan stuðul sambært hesi løgtingslóg, og átti hann at verið vitandi um hetta, skal upphæddin gjaldast aftur. Tað sama er galdandi, um orsøkin er vantandi ella skeivar upplýsingar frá viðkomandi, sum hesin hevur skyldu at lata Almannaverkinum.

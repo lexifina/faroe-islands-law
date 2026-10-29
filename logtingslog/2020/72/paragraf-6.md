@@ -1,0 +1,2 @@
+§ 6. [^1] Persónur, ið uppiheldur sær uttan fyri Føroyar, hevur ikki rætt til veiting ella tænastu sambært hesi løgtingslóg. Landsstýrisfólkið kann tó áseta reglur um, hvørjar tænastur og veitingar fyribils kunnu veitast í øðrum landi og undir hvørjum treytum.
+Stk. 2. Hevur persónur serligt tilknýti til Føroyar og á hesum grundarlagi ynskir at uppihalda sær í Føroyum í longri tíð, kann Almannaverkið, hóast persónurin, tá søkt verður, ikki er búsitandi í Føroyum, gera av at veita persóni hjálp sambært hesi løgtingslóg eftir, at hann er fluttur til Føroyar.

@@ -1,0 +1,7 @@
+## Kapittul 7
+## Upplýsingarskylda, reglur um afturgjald o.a.
+## Upplýsingarskylda og reglur um afturgjald
+§ 53. Persónur, ið skal hava hjálp sambært hesi løgtingslóg, skal eftir áheitan frá Almannaverkinum lata neyðugar upplýsingar til málið, undir hesum at lata seg kanna av lækna ella líknandi og at geva samtykki til, at upplýsingar verða umbidnar frá øðrum myndugleika, lækna, sjúkrahúsi, peningastovni, sálarfrøðingi, arbeiðsgevara og øðrum privatum. Hesir myndugleikar og privat hava tá skyldu at lata umbidnu upplýsingarnar. Verða upplýsingarnar ikki latnar, kann Almannaverkið krevja rættarliga avhoyring sambært § 1048 í Retsplejelov for Færøerne.
+Stk. 2. Í málum um uppihaldsveiting, fíggjarligt ískoyti, fíggjarligt endurgjald og fíggjarligan stuðul kann Almannaverkið, hóast samtykki ikki verður givið sambært stk. 1, krevja upplýsingar frá øðrum almennum myndugleikum um fíggjarlig viðurskifti hjá persóni og hjúnafelaga.
+Stk. 3. Í málum um afturgjaldskyldu sambært § 54, stk. 2, og í málum um at flyta persón á bústað ímóti hansara vilja, sambært reglunum í tvingsilslógini, kann Almannaverkið krevja upplýsingar frá myndugleikum og privatum uttan samtykki, samanber stk. 2.
+Stk. 4. Sum liður í at fyrireika neyðuga tænastu sambært kapitli 5 og 6 í hesi løgtingslóg kunnu Almannaverkið og sjúkrahúsverkið av sær sjálvum og uttan at biðja um samtykki lata upplýsingar millum sín um innlegging á ella útskriving frá sjúkrahúsi.

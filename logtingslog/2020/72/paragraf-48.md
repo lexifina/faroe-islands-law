@@ -1,0 +1,5 @@
+## Húsaleiga og felags útreiðslur o.a.
+§ 48. Persónur á fyribils bústaði sambært § 45 og á vardum bústaði sambært § 46 rindar fyri húsaleigu, íroknað streym og olju, umframt felags útreiðslur.
+Stk. 2. [^2] Húsaleiga á fyribils bústaði og vardum bústaði verður ásett í mun til standin á tí leigaða, samlað fermetratal, ið persónur hevur at ráða yvir, íroknað felagshøli, umframt viðlíkahald vegna slit og elli. Húsaleiga, frároknað streym og olju, verður javnað á hvørjum ári sambært løgtingslóg um javningarprosent til almannaveitingar.
+Stk. 3. Felags útreiðslur á bústaði sambært stk. 1 verða ásettar í mun til, hvørjar útreiðslur eru felags. Felags útreiðslur skulu í minsta lagi fevna um endurnýggjan av felags innbúgvi. Felags útreiðslur verða ásettar í reglugerð fyri einstaka bústaðin.
+Stk. 4. [^1] Landsstýrisfólkið ásetir nærri reglur um m.a. áseting av húsaleigu, nær húsaleigan kann lækkast, grundað á inntøkuviðurskifti leigarans, felags útreiðslur, foreldragjald, leigureglur og reglur um skilhald.
