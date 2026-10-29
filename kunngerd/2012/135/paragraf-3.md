@@ -1,0 +1,3 @@
+§ 3. Rætturin til veitingar sambært § 1, stk. 1 er galdandi fyri tað tíðarskeið, sum viðkomandi eftir ætlan skuldi uppihalda sær fyribils í Føroyum.
+Stk. 2. Rætturin til veitingar sambært § 1, stk. 3 er ikki galdandi longur, enn tá íkomna støðan loyvir, at tað er ráðiligt hjá viðkomandi at ferðast aftur til Grønlands ella Danmarkar. Veitingar eiga kortini ikki at verða sýttar, um tað eftir umstøðunum ikki verður mett at vera rímiligt at vísa viðkomandi til viðgerð í Danmark ella Grønlandi.
+Stk. 3. Ásetingin í stk. 2 er ikki galdandi fyri fólk, sum eru í Føroyum í lestrar- ella útbúgvingarørindum.
