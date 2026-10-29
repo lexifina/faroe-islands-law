@@ -1,0 +1,1 @@
+§ 9. Avgerðir um upptøku, gjaldsviðurskifti og aðrar avgerðir hjá leiðaranum kunnu kærast til landsstýrismannin í mentamálum í seinasta lagi 4 vikur aftaná, at viðkomandi hevur fingið fráboðan um avgerðina.
