@@ -1,0 +1,2 @@
+§ 11. Í seinasta lagi samstundis, sum avgerð verður tikin um burturvísing, skal løgreglan geva Almannaverkinum fráboðan um málið. Eru børn í húskinum, skal fráboðanin latast viðkomandi barnaverndartænastu.
+Stk. 2. Saman við fráboðanini skal Almannaverkið ella barnaverndartænastan hava upplýsingar og skjøl í málinum, her uppi í elektroniskt goymdar dátur, sum hava týdning fyri viðgerðina hjá teimum av málinum.

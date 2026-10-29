@@ -1,0 +1,1 @@
+§ 16. [^1] Avgerðir um frástøðuboð, uppihaldsforboð og burturvísing skulu kunngerast. Avgerð um frástøðuboð skal ikki kunngerast aftur, um frástøðuboð eftir § 2 a er kunngjørt og sum viðvíkur sama slag av forboði fyri sambandi o.a. Við kunngerð av uppihaldsforboði og burturvísing skal viðkomandi hava vegleiðing um møguleikan at krevja avgerðina lagda fyri rættin.

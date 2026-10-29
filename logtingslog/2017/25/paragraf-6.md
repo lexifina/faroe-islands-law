@@ -1,0 +1,1 @@
+§ 6. [^1] Frástøðuboð ella uppihaldsforboð, sum er álagt einum ágangandi persóni, kann verða víðkað til eisini at fata um húsfólk hjá tí órættaða, um tað verður mett at vera neyðugt fyri at røkka endamálinum við frástøðuboðnum ella uppihaldsforboðnum.

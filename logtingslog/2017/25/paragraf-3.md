@@ -1,0 +1,1 @@
+§ 3. Við uppihaldsforboði kann ein persónur fáa forboð fyri at vera ella ferðast á einum nærri tilskilaðum øki nærhendis bústaði, arbeiðsstaði, útbúgvingarstaði ella uppihaldsstaði hjá øðrum persóni ella nærhendis øðrum staði, har hesin persónurin ofta ferðast.

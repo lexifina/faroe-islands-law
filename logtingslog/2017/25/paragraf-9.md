@@ -1,0 +1,2 @@
+§ 9. Í viðgerðini av einum burturvísingarmáli kann løgreglan halda einum persóni aftur, sum við rímiligari grund verður hildin at hava havt eina atferð, sum ber í sær eina hóttan um harðskap ímóti einum av húsfólkum hansara.
+Stk. 2. [^3] Fyri afturhaldingina galda reglurnar fyri handtøku sambært §§ 779-784 og § 785, stk. 1 í rættargangslógini. Persónur kann ikki verða hildin aftur í meira enn 24 tímar.
