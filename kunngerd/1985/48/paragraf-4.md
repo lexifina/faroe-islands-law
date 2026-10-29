@@ -1,0 +1,1 @@
+§ 4. Tá viðkomandi hevur fingið boð um, at sektin er áløgd samb. § 3, hevur hann skyldu til, fyri hvørjar 14 dagar farið er út um tann dag, tá sektin varð áløgd, at inngjalda til Føroya Gjaldstovu sektarupphæddina fyri farnu dagarnar. Er sektin ikki goldin rættstundis, verður hon kravd inn við panting samb. § 135, 3. stk., í samtíðarskattalógini.

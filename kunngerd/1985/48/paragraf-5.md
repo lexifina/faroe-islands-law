@@ -1,0 +1,1 @@
+§ 5. Tá fýra vikur eru farnar frá, at freistin gekk út at gera eftir krøvunum í § 1 í hesi kunngerð, verður farið fram eftir ásetanunum í § 125, 5. stk., í samtíðarskattalógini, har sagt verður, at landsstýrið hevur heimild at krevja, at løgreglan hjálpir skattavaldinum at fáa til vega umbidna tilfarið frá ávísingarskylduga.
