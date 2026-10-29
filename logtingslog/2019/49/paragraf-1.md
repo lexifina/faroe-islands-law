@@ -1,0 +1,1 @@
+§ 1. Løgtingslógin ásetir samsvarandi § 7, stk. 2 í løgtingslóg um kolvetnisvirksemi, hvørji øki verða bjóðað út og almennu treytirnar, ið setast skulu í fimta útbjóðingarumfari til leiting eftir og framleiðslu av kolvetnum.
