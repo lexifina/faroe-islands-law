@@ -1,0 +1,3 @@
+§ 2. Framtíðarfulltrú kann verða veitt einum ella fleiri framtíðarfulltrúum við tí í hyggju at taka sær av fulltrúarveitarans fíggjarligu og persónligu viðurskiftum. Fulltrúin kann verða avmarkað til at viðvíkja einum ella fleiri ávísum viðurskiftum.
+Stk. 2. Í eina framtíðarfulltrú kunnu ein ella fleiri framtíðarfulltrúar verða settir í øðrum lagi, sum skulu taka við, um framtíðarfulltrúarnir, sbrt. stk. 1, eru forðaðir í at taka sær av uppgávuni, sbr. § 8, stk. 2 og 3, og §§ 13, 25 og 26.
+Stk. 3. Í eini framtíðarfulltrú kann verða ásett, at ein triðipartur skal hava eftirlit við, hvussu tann, ið hevur framtíðarfulltrú, røkir uppgávuna.

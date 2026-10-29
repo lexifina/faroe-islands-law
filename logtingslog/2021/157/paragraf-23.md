@@ -1,0 +1,1 @@
+§ 23. Um tað er ásett í fulltrúnni, kann tann, ið hevur eftirlit við framtíðarfulltrúunum, sbrt. § 2, stk. 3, boða Familjufyrisitingini frá, at ein framtíðarfulltrú, sum er sett í gildi, er heilt ella lutvíst kallað aftur.

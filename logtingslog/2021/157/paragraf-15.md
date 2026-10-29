@@ -1,0 +1,1 @@
+§ 15. Tann, ið hevur framtíðarfulltrú í fíggjarligum viðurskiftum, kann ikki geva gávur vegna fulltrúarveitaran. Hetta er tó ikki galdandi fyri vanligar gávur, um virðið ikki stendur í mislutfalli við kor fulltrúarveitarans ella fyri gávur, ið eru ásettar í framtíðarfulltrúnni.

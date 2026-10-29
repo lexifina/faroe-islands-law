@@ -1,0 +1,1 @@
+§ 19. Landsstýrismaðurin kann áseta nærri reglur um skyldur og samsýning hjá framtíðarfulltrúum og framtíðarfulltrúum í øðrum lagi, eisini um skyldu at halda roknskap og eitt ovaramark fyri samsýningar.

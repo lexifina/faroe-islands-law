@@ -1,0 +1,3 @@
+§ 27. Avgerð hjá Familjufyrisitingini um íverksetan, afturkalling, broyting ella steðg av framtíðarfulltrú fær virknað frá teirri løtu, at avgerðin er tinglýst í persónbókini.
+Stk. 2. Afturkalling av framtíðarfulltrú, fevnd av § 23, hevur gildi frá teirri løtu, Familjufyrisitingin tinglýsir eini boð um tað í persónbókini.
+Stk. 3. Verður Familjufyrisitingin eftir áheitan ella á annan hátt varug við, at ein framtíðarfulltrú er steðgað av øðrum grundum enn teimum í stk. 1 og 2, ella at ein framtíðarfulltrúi ella fulltrúi í øðrum lagi er givin at taka sær av uppgávuni, skipar Familjufyrisitingin fyri at tinglýsa boð um hetta í persónbókini.

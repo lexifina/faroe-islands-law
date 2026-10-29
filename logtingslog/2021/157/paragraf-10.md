@@ -1,0 +1,1 @@
+§ 10. Framtíðarfulltrúin umboðar fulltrúarveitaran mótvegis almennum myndugleikum og privatum, tá ið teir gera uppgávur fyri tað almenna, tá ið fulltrúarveitarin hevur givið honum framtíðarfulltrú í persónligum viðurskiftum, og hann virkar innan fyri øki fulltrúarinnar.

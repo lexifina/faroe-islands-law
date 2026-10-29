@@ -1,0 +1,1 @@
+§ 13. Tann, ið hevur framtíðarfulltrú, kann ikki fulltrúarveitarans vegna gera rættargerðir við seg sjálvan ella annars nýta framtíðarfulltrúina í viðurskiftum, har tað kunnu vera ósambærlig áhugamál.

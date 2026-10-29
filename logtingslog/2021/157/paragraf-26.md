@@ -1,0 +1,1 @@
+§ 26. Familjufyrisitingin kann uttan fyri tey føri, sum fevnd eru av §§ 24 og 25, taka avgerð um at enda ella fyri ein part enda framtíðarfulltrú, um treytirnar fyri íverksetan, sbr. § 8, ikki longur eru til staðar.

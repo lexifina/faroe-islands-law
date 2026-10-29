@@ -1,0 +1,1 @@
+§ 14. Tann, ið hevur framtíðarfulltrú í fíggjarligum viðurskiftum, skal skilja millum peningaognir fulltrúarveitarans og sínar egnu. Hetta er tó ikki galdandi, um framtíðarfulltrúin er hjúnafelagi ella samlivi fulltrúarveitarans.
