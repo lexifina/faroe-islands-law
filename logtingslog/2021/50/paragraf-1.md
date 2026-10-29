@@ -1,0 +1,2 @@
+§ 1. Ásetingarnar í artikli 1 til 28 í Europa-Parlamentets og Rådets forordning (EU) nr. 537/2014 om specifikke krav til lovpligtig revison af virksomheder af interesse for offentligheden, sbr. skjal 1 til hesa løgtingslóg, hava gildi í Føroyum.
+Stk. 2. Málsførur myndugleiki, sum víst verður til í artikli 20 er Skráseting Føroya, um ikki annað er ásett í løgtingslóg um góðkendar grannskoðarar og grannskoðanarvirkir.

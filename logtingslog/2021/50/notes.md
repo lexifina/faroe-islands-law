@@ -1,0 +1,1 @@
+[^1]: Broytt við løgtingslóg nr. 197 frá 9. desember 2025, har § 4 ljóðar soleiðis: “Stk. 1. Løgtingslógin kemur í gildi 1. januar 2026 við virknaði fyri roknskaparár, sum byrja 1. januar 2026 ella seinni, sbr. tó stk. 2. Stk. 2. § 1, nr. 3-13 koma í gildi dagin eftir, at løgtingslógin er kunngjørd.”

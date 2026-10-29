@@ -1,0 +1,1 @@
+§ 4. Landsstýrismaðurin kann áseta nærri reglur, sum eru neyðugar til tess at nýta ella gjøgnumføra avgerðir og reglugerðir sum verða givnar av Europa-Kommissiónini ella øðrum ES-myndugleika við heimild í fyriskipanini, heruppií við broytingum, sum serlig føroysk viðurskifti hava við sær.
