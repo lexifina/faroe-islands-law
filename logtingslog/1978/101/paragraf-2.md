@@ -1,0 +1,2 @@
+§ 2. [^2] Áðrenn studningur verður latin, skal skúlin við møguligum serdeildum verða góðkendur av landsstýrismanninum. Góðkenningin skal verða knýtt at einum einstaklingi ella einum felag.
+2. stk. [^1] Fyri at fáa studning má skúlin árið fyri í minsta lagi hava havt 12 ársnæmingar. Næmingar, ið hava lokið 9. floks prógv fólkaskúlans ella hava samsvarndi aldur sum næmingar, ið hava lokið 9. floks prógv, verða roknaðir uppí.

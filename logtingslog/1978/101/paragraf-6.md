@@ -1,0 +1,2 @@
+§ 6. [^2] Leiðsla skúlans sendir á hvørjum ári innan 1. oktober landsstýrismanninum grannskoðaðan roknskap frá farna fíggjarárinum og fíggjarætlan fyri komandi fíggjarárið til góðkenningar saman við undirvísingarætlan fyri komandi skúlaárið í høvuðsheitum.
+2. stk. Endalig undirvísingarætlan verður send landsstýrinum á hvørjum ári innan 1. juni fyri fyrra undirvísingarhálvár og innan 1. december fyri seinna undirvísingarhálvár.

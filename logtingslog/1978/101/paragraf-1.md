@@ -1,0 +1,1 @@
+§ 1. [^1] Eftir reglunum í hesi lóg verður latin studningur úr landskassanum til fólkaháskúlar, ið hava tað sum høvuðsendamál at læra ungdómin føroyskt mál, siðmenning og føroyska mentan og at vekja ans hjá ungdóminum fyri andligum virðum, ítrótti og rørslu. Skúlarnir kunnu annars leggja dent á einstakar lærugreinir, skúlarnir mugu tó ikki vera próvskúlar ella búgva undir prógv.
