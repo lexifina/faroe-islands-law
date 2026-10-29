@@ -1,0 +1,2 @@
+§ 1. Arbeiðsgevarin hevur skyldu til skjótast gjørligt og í seinasta lagi 9. dagin eftir fyrsta fráverudag hins skadda at fráboða arbeiðsvanlukkur og eitringartilburðir, sum hend eru av arbeiði í tænastu hansara, sum umfatað er í omanfyri nevndu lóg, um so er, at vanlukkan ella eitringin hevur havt við sær óarbeiðsføri í ein ella fleiri dagar umframt skaðadagin.
+Stk. 2. Sjálvt um talan ikki er um nakra setanarskipan, hevur eigarin (brúkarin) av maskinum, tekniskum yrkisevnum v.m. somu skyldu at fráboða allar arbeiðsvanlukkur og eitringar, sum hendar eru av hesum tólum.
