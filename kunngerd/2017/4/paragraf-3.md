@@ -1,0 +1,9 @@
+§ 3. Tryggingin ella tann samsvarandi fíggjarliga trygdin skal, sbr. tó stk. 2 og 3, rinda fyri:
+1) grundleggjandi tørv hjá starvsfólkinum, inntil viðkomandi er komin heim, undir hesum kost, hita, ravmagn, samskifti, reinføri og neyðuga læknaviðgerð o.a., útreiðslur til heimferð umframt aðrar rímiligar útreiðslur, sum eru ein fylgja av, at sjófólkið er latið eftir, og
+2) fýra mánaðir í ógoldnari løn og øðrum gjøldum o.a., sum sjófólkið hevur rætt til, orsakað av setanarviðurskiftunum.
+Stk. 2. Tryggingin ella tann samsvarandi fíggjarliga trygdin skal ikki rinda fyri tey í stk. 1, nr. 2 nevndu krøv í tann mun, Trygdargrunninum fyri avreiðingar og lønir hevur skyldu til at rinda fyri hesi krøv.
+Stk. 3. Tryggingin ella tann samsvarandi fíggjarliga trygdin skal ikki rinda fyri
+1) krøv, ið viðkomandi hevur til endurgjald fyri útreiðslur til læknaviðgerð, tannlæknaviðgerð, heilivág o.a., sum eru fevndar av almennum endurgjaldi sambært løgtingslóg um almenna heilsutrygd og kunngerðum við heimild í hesi løgtingslóg, og starvsfólkini kunnu gera galdandi mótvegis Heilsutrygd,
+2) krøv um rindan av dagpeningi vegna sjúku sambært løgtingslóg um dagpening vegna sjúku v.m. og kunngerðum við heimild í hesi løgtinglóg, undir hesum kunngerð um frávik frá bústaðar- og skattskyldu í Føroyum í mun til løgtingslóg um dagpening vegna sjúku v.m. í teimum førum, hesi krøv eru fevnd av almennum endurgjaldi, og starvsfólkini kunnu gera hesi galdandi mótvegis Almannaverkinum,
+3) krøv um rindan av barsilspeningi sambært løgtingslóg um barsilsskipan og kunngerðum við heimild í hesi løgtingslóg, undir hesum kunngerð um sjálvbodna trygging av barsilspeningi til løntakarar, ið sigla við skipum, skrásett í FAS, í teimum førum hesi krøv eru fevnd av almennum endurgjaldi, og starvsfólkini kunnu gera hesi galdandi mótvegis Barsilsskipanini, og
+4) sama er galdandi, um viðkomandi hevur rætt til útgjald eftir øðrum almennum sosialum trygdarskipanum.
