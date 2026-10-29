@@ -1,0 +1,1 @@
+§ 2. Endamálið hjá Vinnusjúkugrunninum er at fíggja og rinda endurgjald fyri vinnusjúkur sbrt. § 10 í løgtingslóg nr. 67 frá 25. mai 2009 um trygging móti avleiðingum av arbeiðsskaða (arbeiðsskaðatryggingarlógin).

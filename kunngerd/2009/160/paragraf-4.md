@@ -1,0 +1,1 @@
+§ 4. Lógarbundnar inntøkur og útreiðslur og avkast av ognarrøkt hjá Vinnusjúkugrunninum verða ikki tiknar við á løgtingsfíggjarlógini. Útreiðslur til umsiting av Vinnusjúkugrunninum verða játtaðar á løgtingsfíggjarlógini og goldnar úr landskassanum. Vinnusjúkugrunnurin endurrindar landinum umsitingarligu útreiðslurnar.
