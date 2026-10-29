@@ -1,0 +1,4 @@
+§ 13. Heimahjálp kann verða veitt í hesum førum
+1) Bráðfeingis heimahjálp kann verða veitt í eitt styttri tíðarskeið, tá ið foreldur berast frá orsakað av sjúku, barnsburði ella eftirbata. Hjálpin kann vanliga ikki veitast longri enn 3 vikur, og í serligum førum ikki longri enn 6 vikur. Tá heilt serligar umstøður tala fyri tí, kann hjálpin veitast í eitt longri tíðarskeið enn 6 vikur, tá vissa verður hildin at vera fyri, at tørvurin á hjálp heldur uppat eftir loknað tíðarskeiðið. Uppgávan hjá heimahjálpini er at røkja tær arbeiðsuppgávur, sum vanliga verða røktar av foreldrum í einum heimi.
+2) Heimahjálp kann í óavmarkaða tíð verða veitt pensjónistum, ið hava tørv á hjálp ella røkt orsakað av varandi sjúku ella breki.
+3) Heimahjálp kann verða veitt fyribils í eitt styttri tíðarskeið orsakað av bráðfeingissjúku ella breki.
