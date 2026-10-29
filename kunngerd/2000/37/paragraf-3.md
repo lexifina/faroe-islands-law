@@ -1,0 +1,1 @@
+§ 3. Um prísásetingargrundarlagið broytist, ella nýggir greiningarhættir verða lagdir afturat, kann Heilsufrøðiliga Starvsstovan broyta gjaldið ella áseta nýggj gjøld. Landsstýrimaðurin skal kunnast um broytingarnar.

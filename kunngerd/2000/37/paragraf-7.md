@@ -1,0 +1,1 @@
+§ 7. Er eingin serstøk avtala gjørd, fella kravd gjøld til gjaldingar í verandi mánaði + 25 dagar. Verða gjaldstreytirnar ikki hildnar, kann Heilsufrøðiliga Starvsstovan sýta fyri at gera fleiri tænastur fyri viðkomandi, tá uppgávan ikki er løgd til Heilsufrøðiligu Starvsstovuna sambært lóg.

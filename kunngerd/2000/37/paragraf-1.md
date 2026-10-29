@@ -1,0 +1,1 @@
+§ 1. Heilsufrøðiliga Starvsstovan ásetir gjald fyri sínar veitingar til fulnað fyri tær útreiðslur, sum standast av veitingunum. Landsstýrismaðurin hevur eftirlit við prísásetingunum hjá Heilsufrøðiligu Starvsstovuni.
