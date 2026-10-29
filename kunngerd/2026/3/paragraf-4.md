@@ -1,0 +1,1 @@
+§ 4. Fiskiloyvi sambært § 3 verða latin teimum, sum í 2025 høvdu rætt til egna árskvotu av botnfiski í íslendskum sjógvi, ella teimum, sum hesin rættur er fluttur til. Fiskiskapurin verður skipaður við egnari árskvotu.
