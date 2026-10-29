@@ -1,0 +1,1 @@
+§ 8. [^2] Til útbúgvingar, ið verða bjóðaðar út á enskum máli, kann Fróðskaparsetur Føroya tilskila ávíst tal á lestrarplássum til skikkaðar umsøkjarar, sum hava tørv á uppihaldsloyvi til tess at lesa á Fróðskaparsetri Føroya.
