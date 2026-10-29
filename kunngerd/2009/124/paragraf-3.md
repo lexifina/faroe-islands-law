@@ -1,0 +1,1 @@
+§ 3. Tá eitt akfar verður nýtt til koyring í sambandi við endaða skúlagongd ella í sambandi við skrúðgongur v.m., mugu ikki verða gjørdar broytingar í tilgerð ella útgerð í mun til tað, sum er góðkent sambært hesi kunngerð.

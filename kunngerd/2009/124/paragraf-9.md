@@ -1,0 +1,2 @@
+§ 9. Talið á ferðafólki, sum loyvt er at flyta í lastini, verður ásett av Akstovuni og skrivað í loyvið.
+Stk. 2. Tá talið verður ásett, kann verða lagt til grundar, at breiddin á sitiplássi til hvørt ferðafólk eigur at vera í minsta lagi 450 mm. Í hesum máti kann verða íroknað upp til 35 mm frípláss hvørju megin sitiplássið. Eisini verða íroknað møgulig pláss, har koyristólar kunnu verða settir og festir.

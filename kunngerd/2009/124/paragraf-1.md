@@ -1,0 +1,1 @@
+§ 1. Vøru- og lastbilar og traktorrøðir, ið verða nýtt til flutning av fólki í samband við endaða skúlagongd, skrúðgongur v.m., skulu áðrenn koyring verða sýnað og góðkend av Akstovuni sambært leiðreglunum í § 2.
