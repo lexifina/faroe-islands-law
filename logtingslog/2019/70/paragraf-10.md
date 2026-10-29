@@ -1,0 +1,1 @@
+§ 10. Aðrir almennir stovnar, enn teir nevndu í § 9, kunnu eftir avtalu við ábyrgdara av viðlíkahaldi, sbrt. § 9, og umsitara av Virkisskránni viðlíkahalda grundardátur um løgfrøðiligar eindir, framleiðslueindir og undirframleiðslueindir í Virkisskránni.

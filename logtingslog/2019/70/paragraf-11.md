@@ -1,0 +1,1 @@
+§ 11. Skráseting av løgfrøðiligum eindum, sbrt. § 3, fer fram hjá rætta myndugleika, men sjálvgreiðsla til at skráseta eindir, broyta grundardátur um eindir og at strika grundardátur um eindir kann fara fram umvegis Virkisskránna, um hetta annars ikki er í ósamsvari við galdandi lóggávu á økinum.
