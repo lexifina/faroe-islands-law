@@ -1,0 +1,4 @@
+## Lekaeftirlit
+§ 17. Tann, ið eigur ella rekur HFC-køliskipan á landi við fylling av HFC gassi yvir 3 kg, skal hava ábyrgdarfólk við fakligum førleika, sum á hvørjum ári kannar, um skipanirnar leka. Um fyllingin av HFC gassi er yvir 30 kg, skal kanning gerast í minsta lagi hvørt hálvár. Um fyllingin av HFC gassi er yvir 300 kg, skal kanning gerast í minsta lagi hvønn ársfjórðing.
+Stk. 2. Tann, ið eigur ella rekur HFC-køliskipanir, skal meta um lekan frá skipanini. Er árligi lekin størri enn 25 prosent av fyllingini, skal Umhvørvisstovan hava frágreiðing um, hvussu lekin er íkomin og hvørji tiltøk verða sett í verk fyri at minka ella tetta lekan.
+Stk. 3. Tann, ið eigur ella rekur HFC-køliskipanir við fylling av HFC gassi yvir 3 kg, skal skráseta allar áfyllingar og endurvinningar í loggbók, og tilskila slag og nøgd av evni og navn á virki ella persóni, sum gjørdi arbeiðið.

@@ -1,0 +1,2 @@
+§ 11. Skrásettir innflytarar kunnu gera sínámillum avtalu um heilt ella partvíst at avhenda kvotuna. Avtalan skal vera skrivlig og undirskrivað, og avrit latast Umhvørvisstovuni saman við næstu ársuppgerð. Umhvørvisstovan stillar tillutaðu kvoturnar samsvarandi gjørdum avtalum.
+Stk. 2. Umhvørvisstovan kann broyta árligu kvoturnar hjá skrásettu innflytarunum í sambandi við stigvísu minkingarnar sambært skjali 1, eitt nú um árligu kvoturnar ikki hava verið brúktar, innflytari er hildin uppat, fyritøkur hava lagt saman o.tíl.

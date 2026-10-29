@@ -1,0 +1,1 @@
+§ 15. Í sambandi við viðlíkahald og tænastuveiting, ella áðrenn vøra, útgerð og skipanir, sum innihalda f-gass, verða tiknar niður og burturbeindar, skulu hesi evni endurvinnast fyri at verða endurnýtt, endurvirkað ella fyribeind. Hetta er eisini galdandi fyri f-gass, nýtt í frystiskipan ella køliskipan, luftskiftisskipan, hitapumpu o.tíl.

@@ -1,0 +1,4 @@
+§ 6. Frá 1. januar 2024 er ikki loyvt at seta nýggjar køliskipanir og frystiskipanir upp, sum innihalda HFC-gass við GWP-virði størri enn 2.500, sbr. tó § 13, stk. 4.
+Stk. 2. Frá 1. januar 2027 er ikki loyvt at fylla nýframleitt HFC-gass við GWP-virði størri enn 2.500 á køliskipanir og frystiskipanir, har fyllingin er 40 tons av CO2 eindum ella meira. Frá 1. januar 2030 er ikki loyvt at fylla nýframleitt HFC-gass við GWP-virði størri enn 2.500 á køliskipanir og frystiskipanir yvirhøvur, sbr. tó § 13, stk. 4.
+Stk. 3. Frá 1. januar 2027 er ikki loyvt at innflyta nýggja útgerð við SF6-gassi at brúka í háspenningsskipanum. Tó er loyvt at innflyta SF6-gass til at fylla á verandi útgerð, til útgerðin verður tikin úr nýtslu, sbr. tó § 13, stk. 4.
+Stk. 4. Frá 1. januar 2036 er ikki loyvt at brúka f-gass, sbr. tó § 13, stk. 4.

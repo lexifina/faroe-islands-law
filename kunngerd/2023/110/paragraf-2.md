@@ -1,0 +1,3 @@
+§ 2. Kunngerðin er galdandi fyri f-gass, so sum HFC-gass í køliskipanum og frystiskipanum á landi og umborð á skipum og fyri SF6, ið verður nýtt sum koblingsgass í háspenningsskipanum.
+Stk. 2. Kunngerðin er galdandi fyri framleiðslu, innflutning, útflutning, merking, marknaðarføring, nýtslu, handfaring, goymslu, endurvinning, endurnýtslu, burturbeining og fyribeining av f-gassi, tó ikki fyri innflutning og marknaðarføring av vørum við f-gassi sum eitt nú luftskiftisskipanir, hitapumpur og eldsløkkiútgerð.
+Stk. 3. Kunngerðin er galdandi fyri persónar, fyritøkur og virki umframt skip og havstøðir, skrásett ella staðsett í Føroyum.
