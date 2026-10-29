@@ -1,0 +1,6 @@
+§ 4. Læknar, ið hava skyldu at boða frá, eru:
+1) Ábyrgdarhavandi yvirlækni á sjúkrahúsdeild, ið av fyrstan tíð diagnostiserar, hevur eftirlit við ella viðger kliniskar ella mikroskopiskar fráboðanarskyldigar sjúklingatilburðir, uttan mun til um tilburðurin fyrr er fráboðaður. Tó skal ikki fráboðast á onkologiskari ella radiologiskari deild, tá sjúklingurin hevur verið ella verður fráboðaður av kliniskari deild.
+2) Serlæknar í almennum medisini, ið av fyrstan tíð diagnostisera, viðgera ella hava eftirlit við fráboðanarskyldugum tilburðum uttan ávísing og eftirfylgjandi kontakt við sjúkrahús ella privatstarvandi serlækna.
+3) Privatstarvandi serlæknar, ið av fyrstan tíð diagnostisera, viðgera ella hava eftirlit við fráboðanarskyldugum tilburðum uttan ávísing og eftirfylgjandi kontakt við sjúkrahús.
+4) Ábyrgdarhavandi lækni fyri sjúklingaviðgerðini í privatari klinikk, ið av fyrstan tíð diagnostiserar, viðger ella hevur eftirlit við fráboðanarskyldugum tilburðum, uttan mun til um tilburðurin fyrr er fráboðaður.
+5) Útinnandi yvirlækni á sjúkrahúsdeildum, tá líkkanningin vísir ein skrásetingarskyldigan krabbameinstilburð, ið ikki fyrr er kendur og fráboðaður av klinisku sjúkrahúsdeildini.
