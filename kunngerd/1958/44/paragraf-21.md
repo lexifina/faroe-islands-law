@@ -1,0 +1,1 @@
+§ 21. Fakturi skal fylgja øllum vørum, sum innflytast skulu til Føroyar sum farmur ella postur. Hesin fakturi ella eftirskjal av honum eigur at vera latin tollregluni, sum heimild hevur at krevja, at móttakari undir trúnartreytum váttar, at viðkomandi fakturi er beinur.

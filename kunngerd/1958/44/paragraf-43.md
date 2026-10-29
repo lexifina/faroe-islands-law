@@ -1,0 +1,1 @@
+§ 43. Skipaavgreiðslur (vørugoymslur), sum skipa upp og taka ímóti farmi, sum innfluttur verður higar, hava skyldu at rætta seg eftir teim fyriskipanum um roknskaparførslu v.m., sum stjórin í Føroya gjaldstovu heldur vera tørvandi fyri eftirlitið við uppskipaðum (goymdum) tollvørum og rindingini av tollgjøldunum.

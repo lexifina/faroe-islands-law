@@ -1,0 +1,2 @@
+§ 46. Um útint brot ella brotsroyndir móti teim í løgtingslóg nr. 23 frá 11. februar 1950 við seinni broytingum og teim í hesi kunngerð fyrisetti reglum gevur viðkomandi vald landsstýrinum ella gjaldstovuni frásøgn og krevur beinanvegin sektir og inndrátt (konfiskatión) inn, um so er, at viðkomandi ynskir ikki málið skotið til dómstólin. Í tílíkum førum kann depositum krevjast fyri sektina v.m.
+Tollregluni er heimilt at eftirhalda skipsskjøl frá skipum, sum hefta fyri tollsektir, og skjølini verða ikki latin aftur, fyrr enn tollsektir ella deposita eru rindað.

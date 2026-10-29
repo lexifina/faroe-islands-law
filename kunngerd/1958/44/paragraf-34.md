@@ -1,0 +1,1 @@
+§ 34. Eftir lóginnar § 9, stk. 2 verður endurgjald bert latið skipasmiðjum til nýbyggingar, umvælingar og umbyggingar av skipum og bátum eftir serstakari játtan. Umsókn verður at senda landsstýrinum um Føroya gjaldstovu.

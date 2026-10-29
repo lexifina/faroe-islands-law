@@ -1,0 +1,1 @@
+§ 32. Føroya gjaldstova stílar fyri endurrindingum av innflutningsgjaldi eftir eftirkanning í hvørjum einstøkum føri. Umsókn um endurrinding verður at senda Føroya gjaldstovu, og uttanfyri Tórshavn um sýslumann, sum gevur málinum ummæli, innan hon verður send gjaldstovuni.
