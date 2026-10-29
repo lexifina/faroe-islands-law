@@ -1,0 +1,1 @@
+§ 8. Tann, ið við vilja ella av grovum ósketni gevur skeivar ella villleiðandi upplýsingar ella dylur upplýsingar til nýtslu fyri avgjaldseftirlitið í samband við umsókn um afturrindan ella í givnum yvirlýsingum v.m. kann verða revsaður við bót. Reglurnar í § 33, stk. 4 og § 34 í lóg um meirvirðisgjald eru galdandi í slíkum førum.

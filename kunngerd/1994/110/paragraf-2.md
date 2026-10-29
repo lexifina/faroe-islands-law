@@ -1,0 +1,1 @@
+§ 2. Virki, ið søkja um afturrindan, mugu - í tí tíðarskeiði umsóknin viðvíkur - ikki hava havt avgjaldsskylduga sølu her á landi, tó er søla, umrødd í § 12, stk. 1, litra b í løgtingslóg um meirvirðisgjald, undantikin (flutningstænastur til ella frá útlondum).

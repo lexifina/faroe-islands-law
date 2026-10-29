@@ -1,0 +1,3 @@
+§ 6. Umsóknin skal vera Toll- og Skattstovu Føroya í hendi í seinasta lagi 6 mánaðir eftir endan á tí álmanakkaári, sum umsóknin viðvíkur.
+Stk. 2. Upprunaligir fakturar ella innflutningsskjøl við fráboðan av teimum meirvirðisgjaldsupphæddum, sum umsøkjarin hevur goldið, skulu vera hjáløgd umsóknini. Hesi skjøl verða áteknað og aftursend umsøkjaranum innan ein mánað.
+Stk. 3. Haraftrat skal ein váttan frá røttu myndugleikum í heimlandinum hjá virkinum, um at virkið er meirvirðisgjaldsskyldugt har við skrásetingarnummari áteknaðum, vera hjáløgd umsóknini, uttan so at ein tílík váttan er send Toll- og Skattstovu Føroya innan seinasta árið.

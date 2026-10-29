@@ -1,0 +1,1 @@
+§ 4. Umsókn um afturrindan skal fara fram á serligum oyðiblaði, ið fæst á Toll- og Skattstovu Føroya. Í umsóknini skal virkið geva yvirlýsing (erklæring) um nýtslu av teimum keypum, sum søkt verður um afturrindan av avgjaldi fyri, og vátta, at tað ikki hevur rikið skrásetingarskyldugt virksemi her á landi í tí tíðarskeiði, áheitanin viðvíkur.

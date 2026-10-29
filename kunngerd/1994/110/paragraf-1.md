@@ -1,0 +1,2 @@
+§ 1. Sambært reglunum í hesi kunngerð verður eftir umsókn veitt avgjaldsskyldugum virkjum (persónum), ið hvørki hava handilsstað, bústað e.t. her á landi, afturrindan av meirvirðisgjaldi, ið er goldið her fyri vørur og avgjaldsskyldugar tænastur til vinnuliga nýtslu hjá virkjunum her á landi.
+Stk. 2. Eitt hvørt virksemi, sum hevði verið umfatað av reglunum um skráseting sambært §§ 5 og 6 í løgtingslóg um meirvirðisgjald, um tað varð framt her á landi, er eftir stk. 1 at meta sum avgjaldsskyldugt.
