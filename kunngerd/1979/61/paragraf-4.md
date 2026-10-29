@@ -1,0 +1,1 @@
+§ 4. Í sambandi við upptøkuna ella skjótast gjørligt aftaná verður roynt at gera avtalu við eigaran um at koma eftir akfarinum, áðrenn liðin er avtalað freist, sum vanliga eigur at setast til 8 dagar í mesta lagi.

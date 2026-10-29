@@ -1,0 +1,2 @@
+§ 5. Verður ikki komið eftir akfarinum sum avtalað, ella hevur ikki borið til at gera avtalu um hetta, verður fráboðan kunngjørd eigaranum, at akfarið, sum er havt í varðveitslu á ábyrgd eigarans, uttan aðra ávaring fer at verða selt á almennum uppboði, ella – um hetta verður hildið at geva størri peningshædd – til upphøggingar, um so er, at ikki er komið eftir tí áðrenn ein freist, sum er sett í fráboðanini, er liðin.
+2. stk. Akfør, sum ikki er komið eftir, tá ið freistin er úti, verða seld sum skjótast á almennum uppboði ella møguliga til upphøggingar.

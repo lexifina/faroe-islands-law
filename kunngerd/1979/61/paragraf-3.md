@@ -1,0 +1,1 @@
+§ 3. Í teim førum, har ið mett verður, at útreiðslurnar, ið standast av sølu av akfari, fara upp um inntøkuna av søluni, er heimilt at lata akfarið høgga upp. Í slíkum førum galda av reglunum niðanfyri bert § 7, 1. stk.

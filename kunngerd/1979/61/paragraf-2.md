@@ -1,0 +1,2 @@
+§ 2. Gera ferðsluviðurskiftini á staðnum tað neyðugt, at akfarið alt fyri eitt verður beint burtur, fær løgreglan beinanvegin hetta flutt til eitt goymslustað, uttan so at førarin er hjástaddur og sjálvur sær til, at akfarið beinanvegin verður beint burtur.
+2. stk. Gera viðurskiftini á staðnum tað ikki neyðugt, at akfarið verður beint av vegnum alt fyri eitt, verður boðað føraranum freist til at beina akfarið burtur. Er akfarið ikki beint burtur, tá ið freistin er liðin, ella er førarin ikki hjástaddur, fær løgreglan flutt akfarið til tann í 1. stk. nevnda goymslustað.
