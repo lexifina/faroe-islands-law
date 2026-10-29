@@ -1,0 +1,1 @@
+§ 4. Tá ið viðurskifti verða staðfest í sambandi við eftirlitið, sum eru í stríð við løgtingslóg um trygd á sjónum, fyriskipanir ella avgerðir sambært lógini, kann fiskiveiðieftirlitið vegna Sjóvinnustýrið, um neyðugt krevja, at skipið siglir til lands fyri at fáa viðurskiftini í rættlag beinanvegin, sbr. § 4 í løgtingslóg um trygd á sjónum.

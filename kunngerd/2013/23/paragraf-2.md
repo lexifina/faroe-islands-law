@@ -1,0 +1,3 @@
+§ 2. Starvsfólk, sum fremja eftirlit sambært § 1, stk. 1 hava rætt til uttan rættarúrskurð at fara umborð á skip móti at vísa gildugt løgmætisprógv, ið skal vísast hvørja ferð farið verður umborð at sýna skip, um hetta verður kravt, sbr. § 19, stk. 1 og 2 í løgtingslóg um trygd á sjónum.
+Stk. 2. Reiðari, skipari ella maskinstjóri ella tey, ið virka teirra vegna, hava skyldu til at veita eftirlitsfólkunum neyðuga hjálp og geva allar upplýsingar, sbr. § 19, stk. 3 í løgtingslóg um trygd á sjónum.
+Stk. 3. Síggjast skal til, at skipið ikki verður tarnað óneyðugt, og at arbeiðið umborð ikki verður órógvað meira enn neyðugt er, sbr. § 19, stk. 4 í løgtingslóg um trygd á sjónum.
