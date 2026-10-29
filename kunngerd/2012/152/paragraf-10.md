@@ -1,0 +1,1 @@
+§ 10. [^1] Sjóvinnustýrið endurnýggjar eftir umsókn loðsfrítøkuskjal, sbr. § 7, stk. 2, um umsøkjarin skjalprógvar at hava ført skip, fevnt av loðsfrítøkuni, í viðkomandi havn í minsta lagi 3 ferðir innanfyri teir seinastu 12 mánaðirnar, áðrenn umsókn um endurnýggjan verður latin inn, ella skjalprógvar at lúka kravið í § 8, stk. 2.

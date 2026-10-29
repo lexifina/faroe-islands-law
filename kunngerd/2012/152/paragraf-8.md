@@ -1,0 +1,3 @@
+§ 8. Loðsfrítøkuskjal verður eftir umsókn givið skipsførara ella vakthavandi navigatøri, galdandi fyri ávísa havn, ávíst skipaslag og -stødd, um umsøkjarin skjalprógvar at hava ført skip í minsta lagi 3 ferðir innanfyri seinasta 12 mánaðirnar í viðkomandi havn við viðkomandi skipaslagi og -stødd.
+Stk. 2.[^1] Sjóvinnustýrið kann geva undantak frá siglingarkrøvunum í stk. 1, um umsøkjarin skjalprógvar at hava drúgvar royndir í sigling inn og út úr viðkomandi havn við viðkomandi skipaslagi og -stødd og við tí verður mettur at hava gjølligan kunnleika til økið.
+Stk. 3. [^1] Loðsfrítøkuskjal kann ikki nýtast, tá ið ávís skipasløg og skip, ið sigla við vandamiklum farmi, skulu í ella úr føroyskari havn, sbr. fylgiskjal 2.
