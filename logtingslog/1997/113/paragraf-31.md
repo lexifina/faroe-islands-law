@@ -1,0 +1,2 @@
+§ 31. [^5] [^3] Landsstýrisfólkið kann eftir ummæli frá stýrinum gera sáttmála við onnur lond um arbeiðsloysistrygging.
+Stk. 2. [^5] [^3] Um stýrið tekur undir við ásetingunum, kann landsstýrisfólkið áseta nærri reglur um arbeiðsloysistrygging o.a. fyri teir persónar, sum eru fevndir av sáttmálum sambært hesi grein, heruppií fyri hesar persónar áseta reglur, sum víkja frá ásetingunum í kapitli 3-5 í hesi løgtingslóg.

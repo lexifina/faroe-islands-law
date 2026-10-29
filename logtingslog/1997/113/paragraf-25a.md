@@ -1,0 +1,4 @@
+§ 25 a. [^6] [^3] Um stýrið tekur undir við ásetingunum, kann landsstýrisfólkið áseta nærri reglur um útgjaldingar til fólk í farloyvi frá føstum ella støðugum starvi, herundir at útgjaldið kann vera lægri, enn ásett í §§ 15 og 16, hvørjar treytir skulu setast tí, ið fer í farloyvi, og tí arbeiðsleysa, m.a. hvussu tann, ið fer í farloyvi, skal skrásetast í arbeiðsávísingini, hvussu leingi hin arbeiðsleysi skal hava fingið stuðul, umframt nærri reglur um, nær talan er um fast ella støðugt starv, o.tíl.
+Stk. 2. Útgjald undir farloyvi kann verða givið fyri eitt ávíst tíðarskeið millum 3 og 12 mánaðir.
+Stk. 3. Útgjald undir farloyvi skal verða givið við teirri treyt, at annað fólk, sum fær arbeiðsloysisstuðul og er tøkt í arbeiðsávísingini, verður sett í staðin í sama tíðarskeiði og í høvuðsheitum undir somu treytum.
+Stk. 4. Ásetingarnar í stk. 1–3 verða ikki nýttar, um arbeiðsloysið er undir 6%.

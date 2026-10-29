@@ -1,0 +1,1 @@
+§ 27 a. [^4] [^3] Um stýrið tekur undir við ásetingunum, kann landsstýrisfólkið áseta nærri reglur um, at upplýsingar skulu skrásetast og sendast Arbeiðsloysisskipanini elektroniskt, og kann áseta nærri reglur um elektroniska samskiftið.

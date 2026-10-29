@@ -1,0 +1,2 @@
+§ 22. [^2] [^6] [^3] Rætturin til útgjald fellur burtur, tá arbeiðsleysur í undanfarna fýra ára skeiði hevur fingið arbeiðsloysisstuðul útgoldnan í 648 dagar, ella tá ið persónurin uttan steðg hevur verið í Arbeiðsloysisskipanini í fýra ár.
+Stk. 2. [^2] Hóast viðkomandi ikki hevur fingið arbeiðsloysisstuðul útgoldnan í tí í §§ 18 og 19 nevnda tíðarskeiði, veður tað í §§ 18 og 19 nevnda tíðarskeiði talt við í tað í stk. 1 nevnda tíðarskeiði.

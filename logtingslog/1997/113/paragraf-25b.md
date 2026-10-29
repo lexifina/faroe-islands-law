@@ -1,0 +1,1 @@
+§ 25 b. [^6] [^3] Um stýrið tekur undir við ásetingunum, kann landsstýrisfólkið áseta nærri reglur um størv við lønarískoyti, endurrindan av stuðli til arbeiðsgevarar og møguligum øðrum útreiðslum, undir hvørjum umstøðum, persónar kunnu fara í starv við lønarískoyti, hvussu long slík størv kunnu vera o.tíl.

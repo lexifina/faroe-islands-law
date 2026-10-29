@@ -1,0 +1,4 @@
+§ 9. [^3] ALS-gjaldið hjá teimum gjaldskyldugu er 2,25% av tí í § 8 nevnda gjaldsgrundarlagi. Um stýrið tekur undir við ásetingunum, kann landsstýrisfólkið áseta eitt lægri gjald og nærri reglur um ALS-gjaldið.
+Stk. 2. [^2] [^4] [^3] ALS-gjaldið fellur til gjaldingar, samstundis sum tey gjaldskyldugu móttaka ella rinda inntøku sbrt. § 2, nr. 1. Um stýrið tekur undir við ásetingunum, kann landsstýrisfólkið seta aðra gjaldfreist fyri gjaldskyldug sbrt. § 7, stk. 1, nr. 2, og tey, sum taka ímóti inntøku sbrt. § 2, nr. 1, litra b og c. Um stýrið tekur undir við ásetingunum, kann landsstýrisfólkið áseta avgreiðslugjald fyri teir arbeiðsgevarar, sum ynskja at rinda ALS-gjald eftir rokning frá Arbeiðsloysisskipanini.
+Stk. 3. [^2] Rinda tey gjaldskyldugu ikki rættstundis, skal renta rindast við 1% fyri hvønn byrjaðan mánað. ALS-gjøld, avgreiðslugjøld, renta og møguligur innkrevjingarkostnaður av hesum kunnu krevjast inn við panting
+Stk. 4. [^2] [^7] [^3] (Strikað).

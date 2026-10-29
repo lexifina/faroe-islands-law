@@ -1,0 +1,1 @@
+§ 32. Henda lóg kemur í gildi tann 1. juli 1997 og samstundis fer úr gildi løgtingslóg nr. 17 frá 10. mars 1992 um arbeiðsloysistrygging og arbeiðsávísing við seinni broytingum, tó fer § 2, stk. 2 [^14] , í hesi lóg ikki úr gildi fyrr enn 01.05.2002.

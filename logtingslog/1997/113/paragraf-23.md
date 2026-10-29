@@ -1,0 +1,1 @@
+§ 23. Tá rætturin er fallin burtur sambært § 22, hevur hin arbeiðsleysi ikki rætt at fáa útgjald úr skipanini fyrr enn eitt 24-mánaða skeið er farið, og verður tá at meta sum um hann kemur uppí skipanina fyrstu ferð.

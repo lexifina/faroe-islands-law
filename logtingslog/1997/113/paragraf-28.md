@@ -1,0 +1,5 @@
+§ 28. [^2] Hevur arbeiðsleysur givið Arbeiðsloysisskipanini skeivar upplýsingar, ella tagt um umstøður, sum hava havt týdning fyri arbeiðsloysisstuðulin, ella annars móti betri vitandi móttikið stuðul uttan at hava rætt til tess, kunnu upphæddir, sum av órøttum eru útgoldnar, verða kravdar afturgoldnar frá tí arbeiðsleysa.
+Stk. 2. Hevur arbeiðsgevari medábyrgd av at skeivar upplýsingar eru givnar, ella at tagt er um umstøður, sum hava havt týdning fyri arbeiðsloysisstuðulin, liggur afturgjaldsskyldan eisini á honum.
+Stk. 3. [^2] Afturgjalding av skuld eftir stk. 1 og stk. 2 kann fara fram við mótrokning í øðrum krøvum, viðkomandi hevur mótvegis Arbeiðsloysisskipanini.
+Stk. 4. [^2] Upphæddir, sum verða kravdar inn eftir hesi grein, fella til gjaldingar ein mánað eftir, at krav er sett fram. Krøv sambært hesi grein, umframt møguligur innkrevjingarkostnaður av hesum, kunnu krevjast inn við panting.
+Stk. 5. [^2] [^3] Um stýrið tekur undir við ásetingunum, kann landsstýrisfólkið áseta nærri reglur um smámunamørk í sambandi við, at ALS eigur pening til góðar hjá viðskiftafólki, ella at viðskiftafólk eiga pening til góðar hjá ALS.

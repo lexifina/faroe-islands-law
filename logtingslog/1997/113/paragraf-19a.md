@@ -1,0 +1,2 @@
+§ 19 a. [^11] Um arbeiðsleysur uttan serliga orsøk ikki møtir upp til skeiðstilboð, sum hann hevur fingið bjóðað frá Arbeiðsloysisskipanini og hevur tikið av, hevur viðkomandi skyldu at endurrinda arbeiðsloysisskipanini útreiðslurnar, sum Arbeiðsloysisskipanin hevur havt til skeiðið. Í tann mun tað ber til, er heimilað Arbeiðsloysisskipanini at mótrokna hesar útreiðslur í arbeiðsloysisstuðli til viðkomandi.
+Stk. 2. [^6] [^3] Um stýrið tekur undir við ásetingunum, kann landsstýrisfólkið áseta nærri reglur fyri, nær talan er um serliga orsøk o.tíl.

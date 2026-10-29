@@ -1,0 +1,1 @@
+§ 8 a. [^5] [^3] Undantøka frá gjaldskyldu eftir § 7, stk. 2, og undantøka eftir § 8, stk. 1, nr. 5, verður veitt eftir umsókn til Arbeiðsloysisskipanina. Undantøkan frá gjaldskylduni tekur við tann dagin, Arbeiðsloysiskipanin hevur fingið skrivliga umsókn um undantøku.
