@@ -1,0 +1,1 @@
+§ 49. Fjølmiðlanevndin kann áleggja viðkomandi fjølmiðli at almannakunngera úrskurðin skjótast til ber á slíkan hátt og í vavi, sum Fjølmiðlanevndin metir vera nøktandi. Almannakunngeringin skal fara fram uttan viðmerkingar og skal vera so sjónlig, sum eftir umstøðunum er rímiligt at krevja.

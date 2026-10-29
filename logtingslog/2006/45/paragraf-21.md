@@ -1,0 +1,5 @@
+§ 21. Redaktørurin hevur samábyrgd av innihaldinum í einum teksti ella framsøgn, sum nevnt í § 17, stk. 1, § 18, stk. 1 og § 20, stk. 1, um
+1) redaktørurin hevur kunnleika til, at teksturin ella framsøgnin er skrivað ella borin fram av einum starvsfólki á kringvarpsstøðini, ella
+2) um teksturin ella framsøgnin er skrivað ella borin fram eftir áheitan ella við aðrari hjálp frá redaktørinum, ella
+3) um redaktørurin visti, at innihaldið var skeivt ella brot á friðin hjá tí einstaka, og tá tað snýr seg um beinleiðis sendingar, at hann visti, at teksturin ella framsøgnin varð send út.
+Stk. 2. Redaktørurin hevur samábyrgd av innihaldinum í einum teksti ella framsøgn, um tann, ið hevur skrivað tekstin ella hevur borið fram framsøgnina, hevur fingið loyvi at vera við uttan at verða kendur aftur samsvarandi § 18, stk. 1 og § 20, stk. 1, men hóskandi tiltøk ikki eru sett í verk til tess at tryggja tað. Hetta er eisini galdandi, hóast lógarbrotið ikki kann roknast redaktørinum at vera gjørt við vilja ella av ósketni.

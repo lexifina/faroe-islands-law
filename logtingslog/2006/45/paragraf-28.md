@@ -1,0 +1,2 @@
+§ 28. Tann, ið setir eina lýsing í ein fjølmiðil, hevur ábyrgdina av innihaldinum eftir reglunum í vanligu lóggávuni. Hetta er eisini galdandi fyri tann, ið hjálpt hevur við hesum.
+Stk. 2. Redaktørurin ella blaðstjórin hevur samábyrgd av innihaldinum í lýsingum eftir reglunum í vanligu lóggávuni. Røkir redaktørurin ella blaðstjórin ikki skyldu sína í §§ 4 og 6, hevur hann ábyrgdina av innihaldinum í lýsingini, hóast lógarbrotið ikki kann roknast honum at vera gjørt við vilja ella av ósketni.

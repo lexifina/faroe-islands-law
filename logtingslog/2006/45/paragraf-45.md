@@ -1,0 +1,2 @@
+§ 45. Fjølmiðlanevndin sendir avrit av kæruni til viðmerkingar hjá tí fjølmiðli, ið kæran viðvíkir. Freistin at koma við viðmerkingum er 10 dagar. Um ongin viðmerking er komin, kann Fjølmiðlanevndin gera úrskurð á verandi grundarlagi. Fjølmiðlanevndin kann eftir umsókn leingja freistina at koma við viðmerkingum.
+Stk. 2. Fjølmiðlanevndin kann krevja at fáa eitt eintak av tí riti ella sending, ið kæran snýr seg um.

@@ -1,0 +1,1 @@
+§ 6. Redaktørurin skal eftir áheitan geva øllum, sum hava rættarligan áhuga, upplýsingar, sum kunnu vera við til at finna fram til ávísar sendingar, og um samleikan hjá persónum, ið eru fevndir av § 17, stk. 1, § 18, stk. 1, § 20, stk. 1, og § 28, stk. 1.

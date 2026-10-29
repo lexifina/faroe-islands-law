@@ -1,0 +1,1 @@
+§ 27. Tá rætturin ásetir bót sbrt. §§ 9-25, skal dentur verða lagdur á slag av lógarbroti og grovleikan, hvussu algongdur fjølmiðilin er, og hvussu stórur vinningurin hevur verið ella kundi verið hjá fjølmiðlinum í sambandi við lógarbrotið. Rætturin kann ístaðin fyri dagbøtur nýta annað slag av bót.

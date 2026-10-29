@@ -1,0 +1,2 @@
+§ 11. Blaðstjórin hevur ábyrgdina av innihaldinum í eini ónavnnevndari grein í ritinum, hóast lógarbrotið ikki kann roknast honum at vera gjørt við vilja ella av ósketni.
+Stk. 2. Blaðstjórin hevur harumframt ábyrgdina av innihaldinum í eini navnnevndari grein, um ábyrgd ikki kann gerast galdandi móti høvundi eftir § 10, tí honum vantar tilknýti til Føroyar, ella neyðuga saknæmi til at revsiábyrgdast. Hetta er eisini galdandi, hóast lógarbrotið ikki kann roknast blaðstjóranum at vera gjørt við vilja ella av ósketni.

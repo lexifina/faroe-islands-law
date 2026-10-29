@@ -1,0 +1,1 @@
+§ 13. Blaðstjórin hevur samábyrgd av innihaldinum í eini navnnevndari grein í ritinum, um so er, at blaðstjórin hevur kunnleika til, at greinin er skrivað av einum starvsfólki á ritinum, um greinin er skrivað eftir áheitan ella við aðrari hjálp frá blaðstjóranum, ella um blaðstjórin visti, at innihaldið var skeivt, ella at skemma frið einstaklinganna.

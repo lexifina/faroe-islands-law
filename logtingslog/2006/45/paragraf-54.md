@@ -1,0 +1,2 @@
+§ 54. Um ein verður dømdur sekur í rættinum og skal revsast, gjalda endurgjald ella fær ógildingardóm fyri innihaldið í einum fjølmiðli, kann rætturin áleggja honum, at dómsúrskurðurin skjótast til ber skal almannakunngerast í fjølmiðlinum á slíkan hátt og í vavi, sum rætturin metir vera nøktandi. Ábyrgdina fyri almannakunngeringini hevur blaðstjórin ella redaktørurin.
+Stk. 2. Almannakunngeringin verður gjørd uttan kostnað og skal vera so sjónlig, sum eftir umstøðunum er rímiligt at krevja.

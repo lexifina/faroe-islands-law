@@ -1,0 +1,1 @@
+§ 50. Avgerð Fjølmiðlanevndarinnar er endalig innan fyrisitingina. Metingar fjølmiðlanevndarinnar um brot á góðan fjølmiðlasið og um rættin til at svara aftur eru ikki fevndar av virkseminum hjá løgtingsins umboðsmanni.

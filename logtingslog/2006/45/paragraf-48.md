@@ -1,0 +1,1 @@
+§ 48. Avgerð Fjølmiðlanevndarinnar verður tikin við vanligum meiriluta í grundaðum úrskurði. Tað er ikki galdandi, um kærari og tann, ið kært verður um, eru komnir ásamt. Stendur á jøvnum, er formansins atkvøða avgerandi. Er avgerðin ikki einmælt, skal áskoðan minnilutans við í úrskurðin.

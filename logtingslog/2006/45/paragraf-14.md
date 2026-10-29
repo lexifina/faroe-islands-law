@@ -1,0 +1,1 @@
+§ 14. Tann, hvørs framsøgn verður endurgivin í eini grein, hevur samábyrgd av innihaldinum í framsøgnini eftir reglunum í vanligu lóggávuni. Hetta er einans galdandi, um framsøgnin er rætt endurgivin, og viðkomandi hevur góðkent, at framsøgnin verður endurgivin við navni.

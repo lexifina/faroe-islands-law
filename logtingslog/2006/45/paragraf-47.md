@@ -1,0 +1,3 @@
+§ 47. Limur kann ikki taka lut í viðgerð av kæru um fjølmiðil, sum hann sjálvur hevur tilknýti til, ella tá tað snýr seg um viðurskifti annars, sum kunnu vekja grundaðan iva um parthall.
+Stk. 2. Tá limur víkir sæti ella ikki fær møtt, tekur tiltakslimur hansara við. Kann tiltakslimurin ikki taka lut í viðgerð av kæru um fjølmiðil, tí hann sjálvur hevur tilknýti til hendan, ella tað snýr seg um viðurskifti annars, sum kunnu vekja grundaðan iva um parthall, tilnevnir formaðurin ein lim í hesum máli sbrt. reglunum í § 41, stk.1.
+Stk. 3. Víkir limur ikki sjálvboðin sæti sbrt. stk. 1 ella 2, verður spurningurin avgjørdur av Fjølmiðlanevndini við vanligum meiriluta. Stendur á jøvnum, er formansins atkvøða avgerandi.
