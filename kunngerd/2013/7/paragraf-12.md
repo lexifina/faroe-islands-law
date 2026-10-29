@@ -1,0 +1,3 @@
+## Viðgerð av umsóknum
+§ 12. Leiðarin á tí útbúgvingarstovni, ið umsøkjarin hevur valt sum fyrsta breytaynski, ger av, hvørt umsøkjari verður tikin upp, verður vístur til fakliga upptøkuroynd ella ikki verður tikin upp.
+Stk. 2. Verður umsøkjari vístur til fakliga upptøkuroynd ella ikki tikin upp, skal umsóknin beinanvegin sendast víðari til stovnin, sum umsøkjarin hevur valt sum annað breytaynski. Leiðarin á tí útbúgvingarstovni, ið umsøkjarin hevur sum annað breytaynski, ger síðan av, hvørt umsøkjarin verður tikin upp, verður vístur til fakliga upptøkuroynd ella ikki verður tikin upp. Soleiðis verður hildið fram til endalig avgerð er tikin. Bert seinasti stovnur skal boða frá samlaðu viðgerðargongdini og endaligu avgerðini.

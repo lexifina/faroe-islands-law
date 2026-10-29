@@ -1,0 +1,2 @@
+## Upptøka eftir meting
+§ 5. [^1] Umsøkjarar, sum ikki lúka treytirnar í § 4, t.d. tí tey koma úr útlendskari skipan, ið ikki samsvarar við ta føroysku, kunnu tó verða tiknir upp við støði í meting leiðara útbúgvingarstovnsins. Meting leiðarans skal byggja á møgulig ársmet og royndarmet, sum umsøkjarin hevur við sær, á møgulig førleikaummæli og á samrøðu ella á møguliga fakliga upptøkuroynd í einari ella fleiri lærugreinum.

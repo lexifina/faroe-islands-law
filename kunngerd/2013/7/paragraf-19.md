@@ -1,0 +1,1 @@
+§ 19. Er umsøkjaratalið til eina breyt størri enn upptøkurúmdin loyvir, kann býtisnevndin fremja býti av skikkaðum umsøkjarum millum økini. Býtið av umsøkjarum skal m.a. gerast við atliti at fjarstøðu og flutningsmøguleikum.
