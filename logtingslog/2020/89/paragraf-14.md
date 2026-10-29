@@ -1,0 +1,2 @@
+§ 14. Felagsnevndin tryggjar samskipan millum faknevndirnar, soleiðis at viðgerð og avgerð um stuðulsmál grundleggjandi verða so einsháttaðar, sum til ber. Felagsnevndin skal eisini virka fyri slíkari samskipan við fyrisiting, sum liggur hjá øðrum landsstýrismanni, ella sum er staðsett aðrastaðni.
+Stk. 2. Treytað av neyðugari fígging, kann felagsnevndin játta pening til granskingarinfrakervi, samfíggjaðar verkætlanir og aðrar altjóða verkætlanir.

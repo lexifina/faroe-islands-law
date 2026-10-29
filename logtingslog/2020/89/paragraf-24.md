@@ -1,0 +1,1 @@
+§ 24. Landsstýrismaðurin kann áseta vegleiðandi reglur um, hvussu stovnar og virkir skulu fyrihalda seg til altjóða krøv. Eisini kunnu verða ásettar aðrar viðkomandi reglur, sum lyfta stigið í Føroyum ájavnt við altjóða standardar.
