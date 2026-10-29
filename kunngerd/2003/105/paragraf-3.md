@@ -1,0 +1,2 @@
+## Treyt fyri at fáa endurgjald
+§ 3. Sjúkrahúsverkið kann einans veita einum gagn- og merggeva endurgjald fyri mista arbeiðsinntøku, um gagn- og merggevin gevur gagn ella merg til ein persón, sum hevur rætt til at verða viðgjørdur ókeypis eftir reglunum í lógini um Sjúkrahúsverk Føroya. Tað hevur tí ongan týdning, hvørjum landi gagn- og merggevin býr í, um tann persónur, ið hevur tørv á gagninum ella merginum, hevur rætt til at verða viðgjørdur ókeypis í tí føroyska sjúkrahúsverkinum.
