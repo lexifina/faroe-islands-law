@@ -1,0 +1,1 @@
+§ 2. Vísandi til § 5 í lógini hevur leiðsla virksins skyldu til at geva teimum persónum, ið passa maskinur og vandamikil tól, eina gjølla upplæring og leiðbeining at passa og handfara hesar maskinur og tól.
