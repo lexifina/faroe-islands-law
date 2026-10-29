@@ -1,0 +1,1 @@
+§ 4. Til royndina í verki krevst til motorakfør yvirhøvur somu krøv sum til royndina til førarabræv til vinnuligan fólkaflutning og á einum motorakfari ella chassis, sum nevndin tekur til tess, prógva at hava tørvandi kunnleika í verki til motorakfar av tí slagnum, sum góðkenning søkist til, so mikið sum krevst til nógmiklan lærdóm.

@@ -1,0 +1,7 @@
+§ 8. Hevur hann komið ígjøgnum, gevur fútin umsøkjaranum góðkenning sum aklærara við áriti á førarabræv hansara. Í áritinum skal skilast til, hvat slag av akførum góðkenningin er givin.
+Stk. 2. Hann, ið tikið hevur royndina til motorcyklu, hevur rætt til starv sum aklærari til solomotorcyklu, motorcyklu við viðfestum vogni og tríhjólað motorcyklu.
+Stk. 3. Hann, sum tikið hevur royndina til akfar av tí slagnum sum tilskilað í § 1, stk. 2, nr. 2, hevur rætt at vera aklærari til motorvognar av nevndu sløgum og til traktor.
+Stk. 4. Tikin roynd við akfari av tí slagnum sum nevnt er í § 1, stk. 2, nr. 3, gevur rætt til at røkja starv sum aklærari við motorvogni av øllum sløgum við og uttan viðfestum vogni og eisini traktor.
+Stk. 5. Góðkenningin er galdandi fyri tað skeiðið, sum viðkomandi próvførir at hava førarabræv, men kunnu endurnýggjast undir einum eftir áheitan, um so er, at treytirnar í § 64, stk. 3 í ferðslulógini eru loknar. Hetta má próvførast samsvarandi tí sum stendur í § 1, stk. 3 og 4, og viðvíkjandi kravinum um javnan at hava røkt starvið sum aklærari váttan frá 2 álítandi persónum, uttanso politiið ella tann motorsakkøni eftirlitsmaðurin vita, at kravið er lokið.
+Stk. 6. Politivaldið ger yvirliti bæði yvir góðkendar aklærarar og persónar, sum søkt hava um góðkenning, men onga fingið. Politivaldið gevur tí motorsakkøna eftirlitsmanninum frásøgn um góðkendar aklærarar sum koma aftrat og teir sum fara frá.
+Stk. 7. Politivaldið skal viðhvørt hava eftirlit við, at persónar, sum røkja starv sum aklærarar, hava fingið gókenning.

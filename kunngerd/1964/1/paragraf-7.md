@@ -1,0 +1,2 @@
+§ 7. Vantar umsøkjaranum so nógv í evnum og kunnleika undir einum partinum av royndini, at allir limirnir í royndarnevndini eru á einum máli, at hann kemur ikki ígjøgnum, kann hann vísast burtur frá tí, sum eftir er av royndini.
+Stk. 2. Kemur hann ikki ígjøgnum, fær umsøkjarin skrivliga frásøgn frá politinum. Ikki fyrr enn hálvt ár er liðið kann hann bjóða seg fram til nýggja roynd. Royndarnevndin kann tó í serstøkum føri loyva avvik frá frestini. Hann sum hevur verið uppi til royndina tríggjar ferðir uttan at hava komið í gjøgnum, kann ikki bjóða seg til aftur.
