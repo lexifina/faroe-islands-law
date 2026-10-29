@@ -1,0 +1,1 @@
+§ 1. Við kunngerðini verða latnir eyka fiskidagar til fiskifør við fiskiloyvi í bólkunum 2, 3, 4 og 4 T, sambært § 18, stk. 1 í løgtingslógini, sum í 2026 avreiða livur, rogn ella annan innvøl úr fiski til virki í Føroyum. Eisini verða ásettar treytir fyri at fáa lut í hesum fiskidøgum.

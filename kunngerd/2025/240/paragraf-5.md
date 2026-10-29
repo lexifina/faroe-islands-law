@@ -1,0 +1,2 @@
+§ 5. Vørn leggur fiskidagar sambært § 3 afturat í fiskiloyvið hjá viðkomandi fiskifari, tá Vørn hevur fingið skjalprógv frá keypara um, at ásettu nøgdirnar av livur, rogn ella øðrum innvøli úr fiski eru avreiddar til virki í Føroyum.
+Stk. 2. Fiskidagar sambært § 4 verða lagdir afturat í fiskiloyvið hjá viðkomandi fiskifari, tá Tilfeingis- og vinnumálaráðið hevur boðað Vørn frá, at treytirnar sambært § 4, stk. 3 eru loknar.
