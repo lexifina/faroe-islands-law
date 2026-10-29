@@ -1,0 +1,1 @@
+§ 6. Málsráðandi myndugleikarnir skulu ikki veita umsitingarliga hjálp til málsráðandi myndugleika í einum øðrum landi, um hetta hevur við sær atgerðir, sum ikki eru í samsvari við tey rættindi og ta verju, sum eru tryggjað persónum og feløgum v.m. sambært føroyskari lóggávu ella siðvenju, smb. grein 21 í millumtjóða sáttmálanum.
