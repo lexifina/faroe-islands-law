@@ -1,0 +1,1 @@
+§ 1. Landsstýrið fær heimild til ein part av árinum í kunngerð at áseta, at samdøgrið byrjar 1 tíma fyrr í mun til vanliga tíðarrokning. Landsstýrið kann samstundis áseta tær neyðugu fremjingarreglurnar.
