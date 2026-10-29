@@ -1,0 +1,1 @@
+§ 1. Landsstýrismanninum verður heimilað at veita P/F Fiskaaling lán upp á 9,0 mió. kr. Lánið stendur aftan fyri allar aðrar áognarar hjá P/F Fiskaaling. Lánið er rentufrítt og verður kravt aftur í einum, ella í avdráttum, tá eginpeningur felagsins er í minsta lagi 500.000 kr.
