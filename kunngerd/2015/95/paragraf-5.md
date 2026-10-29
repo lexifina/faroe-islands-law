@@ -1,0 +1,1 @@
+§ 5. [^1] Vøra, ið hoyrir saman sum ein eind, kann ikki flytast inn partvíst av einum ella fleiri ferðandi tollfrítt og avgjaldsfrítt, sjálvt um virðið á hvørjum parti sær er lægri enn 2.500 kr. u/mvg.

@@ -1,0 +1,1 @@
+§ 9. Ferðandi skulu sjálv steðga til eftirlit, og tá ið tað verður kravt, pakka upp og aftur tað, sum kravt verður til eftirlit, og hava skyldu til at geva upp fyri tollvaldinum allar lutir og vørur, sum tey hava við sær úr útlondum, eins og tey hava skyldu til at siga frá øllum av týdningi fyri tollviðgerðina.
