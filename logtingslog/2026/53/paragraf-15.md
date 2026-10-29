@@ -1,0 +1,2 @@
+## Broyting í almannalógini
+§ 15. Í løgtingslóg nr. 72 frá 25. mai 2020 um almannatrygd og tænastur (Almannalógin), sum broytt við løgtingslóg nr. 168 frá 12. desember 2020, § 11 í løgtingslóg nr. 159 frá 10. desember 2021, løgtingslóg nr. 71 frá 5. mai 2022, § 6 í løgtingslóg nr. 32 frá 9. mars 2023, løgtingslóg nr. 154 frá 19. desember 2023, løgtingslóg nr. 45 frá 27. mars 2025 og løgtingslóg nr. 180 frá 20. november 2025, verður í § 21, stk. 4, aftan á “familjuískoyti” sett: “, leigustuðul sambært løgtingslóg um leigustuðul”.

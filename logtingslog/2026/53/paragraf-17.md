@@ -1,0 +1,2 @@
+## Broyting í løgtingslóg um familjuískoyti
+§ 17. Í løgtingslóg nr. 160 frá 24. desember 2015 um familjuískoyti, sum broytt við løgtingslóg nr. 167 frá 20. desember 2017, løgtingslóg nr. 187 frá 21. desember 2018, løgtingslóg nr. 65 frá 9. mai 2019, løgtingslóg nr. 18 frá 10. mars 2020, § 10 í løgtingslóg nr. 159 frá 10. desember 2021, løgtingslóg nr. 136 frá 25. oktober 2022, løgtingslóg nr. 42 frá 29. mars 2023 og løgtingslóg nr. 162 frá 20. desember 2023, verður í § 7, stk. 3, 2. pkt. aftan á “avlamisveiting” sett: “, leigustuðul sambært løgtingslóg um leigustuðul”.
