@@ -1,0 +1,1 @@
+§ 3. Tryggingarfelagið skal upplýsa kundan um, hvør hevur ábyrgd av klagum, undir hesum hvar og hvussu kundin kann venda sær til viðkomandi. Upplýsingarnar skulu vera til taks á handilsstaðnum og á møguligari heimasíðu hjá felagnum.
