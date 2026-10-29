@@ -1,0 +1,2 @@
+§ 20 d. [^1] Vísir dekanurin kæruni aftur, kann kærast skrivliga til rektaran, sum setir eina kærunevnd í hvørjum einstøkum føri at taka avgerð í málinum. Kærufreistin er 2 vikur frá tí, at dekanurin hevur tikið avgerðina.
+Stk. 2. Kærunevndin verður mannað við tveimum góðkendum uttanhýsis próvdómarum. Ber hetta ikki til, verður nevndin mannað við uttanhýsis próvdómarum, tilnevndum til høvið. Rektarin tilnevnir formannin.

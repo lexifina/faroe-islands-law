@@ -1,0 +1,1 @@
+§ 12. Um stýrið á ólógligan hátt setir framtíð stovnsins í vanda, og sýtir boðum at fáa viðurskiftini í rættlag, kann landsstýrismaðurin áleggja stýrinum at leggja frá sær og í hesum sambandi útnevna eitt fyribils stýri, til nýtt stýri er sett.
