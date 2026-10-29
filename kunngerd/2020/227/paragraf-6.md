@@ -1,0 +1,3 @@
+§ 6. Í sambandi við upptøku í bútilboð sbrt. § 3, stk. 1, nr. 1 og 2, skulu búfólk kunnast um rættindi og skyldur undir uppihaldinum, undir hesum um gjaldsreglur og reglur um skilhald.
+Stk. 2. Búfólk skulu samtykkja treytirnar fyri uppihaldinum og kunnast um, at upplýsingar viðvíkjandi upptøku o.a. verða útflýggjaðar til Almannaverkið ella aðrar viðkomandi stovnar.
+Stk. 3. Umboð fyri bútilboð seta seg í samband við Almannaverkið, ella aðrar viðkomandi hjálparstovnar, um mett verður, at búfólk hava tørv á aðrari hjálp sum t.d. fíggjarligari hjálp, ráðgeving og vegleiðing um persónlig og sosial viðurskifti og viðgerðir.

@@ -1,0 +1,1 @@
+§ 11. Sjálvbodnir felagsskapir, sum Almannamálaráðið hevur góðkent til at skipa serlig bútilboð, skulu í seinasta lagi 15. februar lata Almannaverkinum fíggjarætlan, undir hesum lønarútreiðslur og aðrar rakstrarútreiðslur fyri komandi fíggjarár og tvey ætlanarár.
