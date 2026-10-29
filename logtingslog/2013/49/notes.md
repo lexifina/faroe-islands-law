@@ -1,0 +1,12 @@
+[^1]: Broytt við løgtingslóg nr. 152 frá 20. desember 2013, har § 2 ljóðar soleiðis: “Henda løgtingslóg kemur í gildi 1. januar 2014.”
+[^2]: Broytt við løgtingslóg nr. 69 frá 30. apríl 2018, har § 2 ljóðar soleiðis: “Henda løgtingslóg kemur í gildi 1. januar 2019.”
+[^3]: Broytt við løgtingslóg nr. 133 frá 19. desember 2014, har § 2 ljóðar soleiðis: “Stk. 1. Henda løgtingslóg kemur í gildi dagin eftir, at hon er kunngjørd. Stk. 2. § 1, nr. 2 kemur tó í gildi 1. januar 2015.”
+[^4]: Broytt við løgtingslóg nr. 23 frá 26. februar 2026.
+[^5]: Broytt við løgtingslóg nr. 35 frá 26. mars 2021, har § 2 ljóðar soleiðis: “Henda løgtingslóg kemur í gildi dagin eftir, at hon er kunngjørd, og hevur virknað fyri inntøkuárið 2020 og fylgjandi ár.”
+[^6]: Broytt við løgtingslóg nr. 157 frá 24. desember 2015, har § 2 ljóðar soleiðis: “Stk. 1. Henda løgtingslóg kemur í gildi 1. januar 2016. Stk. 2. Avgerðir, tiknar av TAKS, áðrenn henda lóg kom í gildi, kunnu innan 4 vikur frá 1. januar 2016 kærast til Skatta- og avgjaldskærunevndina.”
+[^7]: Broytt við løgtingslóg nr. 78 frá 7. juni 2020, har § 3 ljóðar soleiðis: “Stk. 1. Henda løgtingslóg kemur í gildi dagin eftir, at hon er kunngjørd. Stk. 2. § 1, nr. 5-6 og § 2, nr. 3 hava virknað frá 1. januar 2014. Stk. 3. § 1, nr. 7 og § 2, nr. 2 koma í gildi 1. januar 2021.”
+[^8]: Broytt við løgtingslóg nr. 44 frá 6. mai 2015, har § 2 ljóðar soleiðis: “Henda løgtingslóg kemur í gildi dagin eftir, at hon er kunngjørd og hevur virknað frá 1. januar 2015.”
+[^9]: Broytt við løgtingslóg nr. 134 frá 19. desember 2014, har § 3 ljóðar soleiðis: “Henda løgtingslóg kemur í gildi 1. januar 2015.”
+[^10]: Broytt við løgtingslóg nr. 86 frá 9. oktober 2026.
+[^11]: Broytt við løgtingslóg nr. 77 frá 6. mai 2022, har § 5 ljóðar soleiðis: “§ 5. Henda løgtingslóg kemur í gildi 1. januar 2023, og samstundis fer úr gildi løgtingslóg nr. 56 frá 10. mai 2000 um Fólkaheilsuráð. Stk. 2. Í § 7, stk. 2, 1. pkt. í løgtingslóg nr. 23 frá 6. mars 1998 um barna- og ungdómstannrøkt, verður “Landsstýrismaðurin í heilsumálum” broytt til: “Fólkaheilsustýrið”. Stk. 3. Í § 9, stk. 5, 2. pkt. í løgtingslóg nr. 49 frá 14. mai 2013 um eftirløn verður “deildin fyri Arbeiðs- og Almannaheilsu” broytt til: “Sjúkrahúsverkið”.”
+[^12]: Broytt við løgtingslóg nr. 159 frá 10. desember 2021, har § 43 ljóðar soleiðis: “Henda løgtingslóg kemur í gildi 1. januar 2022. Samstundis fer løgtingslóg nr. 47 frá 23. mars 1993 um kærunevnd í almanna-, familju- og heilsumálum úr gildi.”

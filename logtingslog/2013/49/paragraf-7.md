@@ -1,0 +1,7 @@
+## Íløgureglur fyri peningastovns- eftirlønarveitarar
+§ 7. Eftirlønarsamansparingar í peningastovni, skulu vera á serligum eftirlønarinnlánskontum, í puljum ella serligum virðisbrævagoymslum.
+Stk. 2. Í eftirlønarhøpi í sambandi við virðisbrævahandil skal eftirlønarsamanspararin í peningastovni fylgja teimum til eina og hvørja tíð galdandi reglum, sum eru galdandi fyri at verja íleggjaran.
+Stk. 3. Uppspard eftirløn skal støðlast sambært teimum reglum, ið eru galdandi fyri at tryggja nøktandi váðaspjaðing. Eftirlønarveitarin fremur virðisbrævahandilin vegna eftirlønarsamanspararan.
+Stk. 4. [^5] Eftirlønarsamansparingar í peningastovni, ið verða stovnaðar sbrt. hesi løgtingslóg, skulu verða samansettar soleiðis, at fíggjarligi váðin alla tíðina er hóskandi og gagnligur fyri samanspararan. Tá mett verður um, hvørt váðin er hóskandi, skal fyrilit havast fyri aldri, heilsu, fíggjarstøðu og øðrum viðkomandi viðurskiftum.
+Stk. 5. [^1] [^5] Virðisbrævagoymslan verður gjørd upp til marknaðarvirðið í seinasta lagi 2 mánaðir fyri, at eftirlønarsamansparari ynskir at byrja útgjald, og í fyrsta lagi 2 mánaðir fyri, at eftirlønarsamansparari nær fólkapensjónsaldri sbrt. lóg um almannapensjónir, tó í seinasta lagi 2 mánaðir fyri, at eftirlønarsamansparari fær fólkapensjón sbrt. lóg um almannapensjónir.
+Stk. 6. [^5] Tað er skylda hjá eftirlønarveitara at tryggja, at ásetingarnar í hesi grein verða fylgdar.

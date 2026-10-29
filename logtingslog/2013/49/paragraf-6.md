@@ -1,0 +1,2 @@
+§ 6. Eftirlønarveitarar skulu senda árliga teldutøka kunning til TAKS um upplýsingar hjá øllum teimum, ið eru skrásett í eftirlønarskipanini hjá eftirlønarveitaranum. Kunningin skal vera TAKS í hendi í seinasta lagi 20. januar eftir inntøkuárið ella fyrsta gerandisdag eftir 20. januar.
+Stk. 2. [^1] Landsstýrismaðurin ásetir við kunngerð nærri reglur viðvíkjandi upplýsingarskyldu, freist og rættleika av upplýsingum frá eftirlønarveitarum, ið skulu sendast TAKS.

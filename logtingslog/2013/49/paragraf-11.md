@@ -1,0 +1,7 @@
+## Útgjald við deyða
+§ 11. Í samansparingartíðarskeiðnum er eftirlønin at meta sum kapitaleftirløn við arvarætti, um ikki onnur avtala er galdandi. Tá eftirlønarsamansparari doyr, fellur samansparda eftirlønarupphæddin til njótunartilskilaða sambært eftirlønarsáttmálanum, um ikki onnur avtala er galdandi.
+Stk. 2. Um njótunartilskilaði er hjúnafelagi ella sambúgvandi, tó ikki barn, kann hann velja at fáa alla ella part av eftirlønarsamansparingini flutta skatta- og avgjaldsfrítt til sína egnu eftirlønarsamansparing, og verður tann samanlagda eftirlønarsamansparingin fevnd av ásetingunum í hesi løgtingslóg.
+Stk. 3. Hevur eftirlønarsamanspararin eingi nærmastu avvarðandi, og er eingin njótunartilskilaður innsettur, verður eftirlønarupphæddin við arvarætti umløgd til eitt kapitalútgjald og verður síðan partur av búnum.
+Stk. 4. Skiftirætturin sendir skjøl til góðkenningar hjá TAKS vísandi til hesa grein.
+Stk. 5. [^1] Tá eftirlønarútgjald er byrjað sbrt. § 9, og eftirlønareigari doyr, verður lutaeftirlønarparturin, um ikki onnur avtala er gjørd, útgoldin til njótanartilskilaða sbrt. eftirlønaravtaluni. Um eingin njótanartilskilaður er og heldur eingin nærmasti avvarðandi, verður gjørt samsvarandi stk. 3.
+Stk. 6. [^1] [^10] Í sambandi við viðgerðartíðina hjá eftirlønarveitara og TAKS, er eftirlønin at meta sum kapitalvirði, um ikki onnur avtala er gjørd og verður fyrst fevnd av ásetingunum í § 9, stk. 4 tann dag, ið ásettur er fyri útgjaldi.

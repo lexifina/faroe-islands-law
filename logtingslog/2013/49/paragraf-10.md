@@ -1,0 +1,2 @@
+§ 10. Eru eftirlønarsamansparingar hjá fleiri eftirlønarveitarum, kann eftirlønarsamansparari geva einum ávísum eftirlønarveitara heimild til at savna saman samlaðu virðini frá øllum eftirlønarveitarunum. Landsstýrismaðurin ásetir nærri reglur fyri mannagongd og kostnaði.
+Stk. 2. [^10] Er samlaða eftirlønarsamansparingin hjá øllum føroyskum eftirlønarveitarum tilsamans minni enn 400.000 krónur við eftirlønaraldur sbrt. § 9, stk. 4, kunnu í staðin upp til 60.000 krónur rindast út sum kapitalútgjald, og restin verða útgoldið við upp til 2.500 krónum um mánaðin.
