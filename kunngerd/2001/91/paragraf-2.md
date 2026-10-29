@@ -1,0 +1,3 @@
+## Útrokningar- og útgjaldingargrundarlag fyri nýsett
+§ 2. Fyri tey, ið beint undan fráveruni frá arbeiði vegna barsil hava verið á arbeiðsmarknaðinum í eitt styttri tíðarskeið enn tað í § 12, stk. 1, 1. pkt., nevnda, kann, í staðin fyri tað í § 12, stk. 1 í lógini ásetta útrokningartíðarskeið verða nýtt tað tíðarskeið, tey í royndum hava verið á arbeiðsmarknaðinum beint frammanundan fráveruni vegna viðgongu, barsil ella ættleiðing. Útrokningartíðarskeiðið kann tó ikki vera styttri enn 3 mánaðir.
+Stk. 2. Útgjald pr. dag fyri tey, ið koma undir ásetingarnar í stk. 1, verður ásett við støði í útrokningargrundarlagnum býtt við øllum døgum í útrokningartíðarskeiðinum sbrt. stk. 1.
