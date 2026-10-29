@@ -1,0 +1,1 @@
+§ 6. Tá bygningur liggur á horni, skal hann hava sjónliga adressu til tann vegin, har ið inngongdin er, og goymda adressu til hin vegin, soleiðis at um hornið er byrjanin av vegi, fær fyrsta inngongdin (næsti bygningur) nr. 3 ella 4.
