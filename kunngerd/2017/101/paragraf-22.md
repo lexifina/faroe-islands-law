@@ -1,0 +1,1 @@
+§ 22. Í tann mun løgtingslóg um serstakar treytir fyri fiskiskapi eftir makreli, norðhavssild og svartkjafti og botnfiski í Barentshavinum í 2017, ella henda kunngerð ikki hava serligar ásetingar, er løgtingslóg um vinnuligan fiskiskap við tilhoyrandi kunngerðum galdandi.

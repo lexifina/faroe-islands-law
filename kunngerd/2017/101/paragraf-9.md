@@ -1,0 +1,2 @@
+§ 9. Vørn útskrivar eigara av fiskifari, ið skal fiska kvotu, keypt á uppboðssølu, fiskiloyvi, sambært § 5, stk. 4 í løgtingslóg um vinnuligan fiskiskap, til ta nøgd, ið hann hevur keypt á uppboði eftir reglunum í kunngerð um gjald fyri avgreiðslu av fiskiloyvi og váttan um avhending av fiskidøgum og kvotum.
+Stk. 2. Keypta kvotan verður latin sum egin árskvota, men gevur ikki rættindi fram í tíð og kann ikki avhendast ella flytast sambært reglunum í lógini um vinnuligan fiskiskap.
