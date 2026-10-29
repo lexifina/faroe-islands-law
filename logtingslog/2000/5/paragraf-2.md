@@ -1,0 +1,1 @@
+§ 2. Økini, sum verða boðin út í 1. útbjóðingarumfari, eru hesir teigar og partteigar á landgrunninum:6004/1-9, 11-13, 16-17, 6005/2-5, 7-10, 12-15, 17-20, 22-25, 6103/1-9, 11-13, 16-17, 21, 26, 6104/7-10, 12-30, 6105/20, 22-25 og 27-30. Útboðsøkið sæst á kortinum, ið er hjálagt sum fylgiskjal A.

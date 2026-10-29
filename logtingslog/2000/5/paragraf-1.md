@@ -1,0 +1,1 @@
+§ 1. Løgtingslógin ásetir samsvarandi § 7, stk. 2 í løgtingslóg nr. 31 frá 16. mars 1998 um kolvetnisvirksemi, hvørji øki verða bjóðað út og almennu treytirnar, ið setast skulu í 1. útbjóðingarumfari til leiting eftir og framleiðslu av kolvetnum.
