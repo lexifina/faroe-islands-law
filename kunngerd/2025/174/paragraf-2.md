@@ -1,0 +1,1 @@
+§ 2. Upplýsingar um fóðurprísin fyri fóðurprísárini 1. november 2022 til 31. oktober 2023, 1. november 2023 til 31. oktober 2024 og 1. november 2024 til 31. oktober 2025, skulu latast stjórnarráðnum í seinasta lagi 10. desember 2025 og verða gjørdar upp sambært ásetingunum í § 1, stk. 2, 3 og 5.
