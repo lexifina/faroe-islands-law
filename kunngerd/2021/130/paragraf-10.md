@@ -1,0 +1,1 @@
+§ 10. Almannaverkið kann játta persóni, sum fær endurvenjing frá Almannaverkinum, stuðul til hjálparráð sbrt. § 29, stk. 1 í løgtingslógini, hóast viðkomandi ikki lýkur treytina um varandi tørv, um mett verður, at hjálparráðið kann stuðla undir, at persónurin kann endurvinna mistar førleikar.
