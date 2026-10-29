@@ -1,0 +1,2 @@
+§ 16. Landsbanki Føroya kann lata víðari allar upplýsingar, í tann mun og við tí nágreinan, ið eru neyðugir fyri at inna arbeiðið á virkisøkinum, til Føroya váðaráð, hagtalsmyndugleikar og aðrar myndugleikar, ið virka fyri fíggjarligum støðufesti.
+Stk. 2. Upplýsingar, ið kunnu latast sambært stk. 1, eru allar upplýsingar, ið gera tað møguligt beinleiðis ella óbeinleiðis at eyðmerkja teir í § 15, stk. 2 nevndu persónar o.a.
