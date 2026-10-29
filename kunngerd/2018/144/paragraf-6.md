@@ -1,0 +1,2 @@
+§ 6. Ein fráboðari, ið sendir inn fráboðan um skráseting av viðurskiftum í kt-skipanini hjá Skráseting Føroya, stendur til svars fyri, at fráboðanin er lógliga framd, undir hesum at hóskandi heimild finst, og at skjalfestingin í sambandi við frágreiðingina, skrásetingina ella fráboðanina er lóglig.
+Stk. 2. Skrásetingin kann krevja, at prógv verða givin fyri, at fráboðanin er lógliga framd, sbr. § 17 í vinnufelagalógini, § 15 c i vinnufyritøkulógini og § 5, stk. 2, § 57, stk. 3 og § 60, stk. 4 í anordning om ikrafttræden for Færøerne af lov om erhvervsdrivende fonde.
