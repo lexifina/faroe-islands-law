@@ -1,0 +1,2 @@
+§ 108. Tann, sum, hóast gerðin ikki kemur undir § 107, í aðramáta ger nakað, sum gevur fremmandari fregnartænastu møguleikan til, ella sum hjálpir henni til beinleiðis ella óbeinleiðis at virka í landinum, verður revsaður við fongsli í upp til 6 ár.
+Stk. 2. Snýr tað seg um upplýsingar um hernaðarlig viðurskifti, ella verður virksemið framt í kríggi ella undir herseting, kann revsingin vaksa til fongsul í upp til 12 ár.

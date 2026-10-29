@@ -1,0 +1,1 @@
+§ 155. Misnýtir onkur, sum virkar í tænastu ella starvi hjá tí almenna, starv sítt til at gera seg inn á rættin hjá privatum ella tí almenna, verður hann revsaður við sekt ella fongsli í upp til 4 mánaðir. Verður tað gjørt fyri at vinna sær ella øðrum fyrimun, ið eingin rættur er til, kann revsingin vera upp í 2 ára fongsul.

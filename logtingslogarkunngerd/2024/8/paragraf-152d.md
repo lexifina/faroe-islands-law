@@ -1,0 +1,3 @@
+§ 152 d. Ásetingarnar í §§ 152-152 c galda á sama hátt fyri tann, sum uttan at hava viðvirkað til gerðina av órøttum útvegar sær atgongd til ella nýtir upplýsingar, sum fingnar eru til vega við slíkum lógarbroti.
+Stk. 2. Somu revsing fær tann, sum uttan at hava viðvirkað til gerðina av órøttum víðarigevur upplýsingar um heilt privat viðurskifti hjá einstaklingum sambært § 27 í løgtingslóg um fyrisitingarlóg og § 28, stk. 1 í Forvaltningsloven, og sum fingnar eru til vega við broti á §§ 152-152 c.
+Stk. 3. Á sama hátt verður tann revsaður, sum uttan at hava viðvirkað til gerðina av órøttum víðarigevur upplýsingar, sum eru í trúnaði við atliti at statstrygdini ella ríkisverjuni.

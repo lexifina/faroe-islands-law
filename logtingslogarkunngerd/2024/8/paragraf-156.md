@@ -1,0 +1,1 @@
+§ 156. Tá ið onkur, sum virkar í tænastu ella starvi hjá tí almenna, noktar ella letur vera við at halda eina skyldu, sum hoyrir tænastuni ella starvinum til, ella at gera eftir lógligum tænastuboðum, verður hann revsaður við sekt ella fongsli í upp til 4 mánaðir. Uttan fyri hesa áseting eru fólkavald størv.

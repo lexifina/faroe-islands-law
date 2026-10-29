@@ -1,0 +1,1 @@
+§ 165. Tann, sum boðar almennum myndugleika frá revsiverdari gerð, sum ikki er framd, eins og tann, sum til slíkan myndugleika letur inn falskt klagumál, verður revsaður við sekt ella fongsli í upp til 6 mánaðir.

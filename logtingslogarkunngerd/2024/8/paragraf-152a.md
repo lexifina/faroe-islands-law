@@ -1,0 +1,1 @@
+§ 152 a. Ásetingin í § 152 er á sama hátt galdandi fyri tann, sum annars arbeiðir ella hevur arbeitt við uppgávum, sum verða gjørdar eftir avtalu við almennan myndugleika. Sama er galdandi fyri tann, sum arbeiðir ella hevur arbeitt í telefonfyritøku, sum tað almenna hevur góðkent.

@@ -1,0 +1,1 @@
+§ 152 b. Við somu revsing sum í § 152 verður tann revsaður, sum útinnir ella hevur útint virksemi ella starv sambært almennari tilnevning ella góðkenning, og sum av órøttum víðarigevur ella misnýtir upplýsingar, sum eru í trúnaði við atliti at privatum áhugamálum, og sum hann í nevnda sambandi hevur fingið kunnleika um.

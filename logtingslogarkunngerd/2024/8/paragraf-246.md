@@ -1,0 +1,1 @@
+§ 246. Hevur brot á § 245 ella § 245 a við sær annans deyð, ella er tað aðramáta so grovt ella hevur so álvarsaman skaða við sær, at talan er um serliga skerpandi umstøður, kann revsingin vaksa til fongsul upp í 10 ár.

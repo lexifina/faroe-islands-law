@@ -1,0 +1,1 @@
+§ 225. Ásetingarnar í §§ 216-224 eru eisini galdandi fyri aðrar kynsligar gerðir enn samlegu. Ásetingarnar eru somuleiðis galdandi, tá ið gerningsmaðurin fær órættaða til at fremja kynsligar gerðir á seg sjálvan.

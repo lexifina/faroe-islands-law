@@ -1,0 +1,3 @@
+§ 73. Er tann, sum hevur framt revsiverda gerð, eftir at hon varð framd, men áðrenn dómur er fallin, komin í eina ikki bert fyribils støðu av tí í § 16 og § 69 nevnda slagi, ger rætturin av, um revsing skal dømast ella detta burtur. Verður tað hildið at vera gagnligt, kann rætturin gera av, at fyriskipanir eftir §§ 68 ella 69 skulu koma í staðin fyri revsing, ella til revsingin kann verða fullførd.
+Stk. 2. Ásetingarnar í §§ 71 og 72 eru somuleiðis galdandi.
+Stk. 3. Verður persónur, sum verður dømdur revsing, sambært stk. 1, 2. pkt. settur á stovn, verður tíðin á stovninum roknað upp í revsingartíðina.

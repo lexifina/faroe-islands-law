@@ -1,0 +1,4 @@
+§ 192. Tann, sum við broti á forskriftir, sum givnar eru við lóg ella sambært lóg til at fyribyrgja ella tálma smittusjúku, elvir til vanda fyri, at slík sjúka kemur inn í landið ella breiðir seg millum manna, verður revsaður við fongsli í upp til 3 ár.
+Stk. 2. Er talan um sjúku, sum sambært lóggávu krevur almenna viðgerð, ella sum er undir almennari viðgerð, tá ið gerðin verður framd, ella sum serlig tiltøk eru sett í verk til at verja fyri, at sjúkan kemur inn í landið, er revsingin fongsul upp til 6 ár.
+Stk. 3. Tann, sum á nevnda hátt elvir til vanda fyri, at smittusjúka kemur inn í landið ella breiðir seg millum húsdýr ella millum nýtsluplantur ella aliplantur, verður revsaður við sekt ella fongsli í upp til 2 ár.
+Stk. 4. Verður brotsverkið gjørt av ósketni, er revsingin sekt ella fongsul í upp til 6 mánaðir.

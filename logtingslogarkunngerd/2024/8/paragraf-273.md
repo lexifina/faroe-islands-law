@@ -1,0 +1,2 @@
+§ 273. Er ærumeiðandi skuldseting ógrundað, skal tað viðmerkjast í dómsniðurstøðuni, um tann ærumeiddi setir fram málskrav um tað.
+Stk. 2. Tann, sum verður dømdur fyri ærumeiðing, kann eftir málskravi frá tí ærumeidda, fáa álagt at gjalda honum eina upphædd, sum rætturin áleggur, til at gjalda útreiðslurnar fyri at kunngera dómsniðurstøðu og møguliga eisini dómsgrundgevingar í einum ella fleiri almennum miðlum. Soleiðis skal vera, sjálvt um talan bert er um ógildingardóm eftir stk. 1.

@@ -1,0 +1,1 @@
+§ 7 b. Tá ið revsimyndugleikin mótvegis einum løgfrøðiligum persóni er treytaður av tvífaldum revsingarbæri, er tað ikki neyðugt, at lóggávan á gerningsstaðnum heimilar revsiábyrgd fyri ein løgfrøðiligan persón.

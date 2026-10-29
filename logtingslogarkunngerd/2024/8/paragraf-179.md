@@ -1,0 +1,1 @@
+§ 179. Tann, sum fyri at svika við mørkum fyri jørð, jarðarrættindum ella rættindum til áir ella vøtn setir upp falskan marknastein ella annað slíkt merki, ella sum flytur, tekur burtur, bronglar ella oyðileggur slíkt merki, verður revsaður við sekt ella fongsli í upp til 3 ár

@@ -1,0 +1,5 @@
+§ 76. Inndráttur eftir § 75, stk. 1, kann verða framdur hjá tí, sum beinleiðis hevur fingið úrtøkuna av revsiverdu gerðini.
+Stk. 2. Inndráttur av lutum og virðum, sum eru nevnd í § 75, stk. 2 og 3, kann verða framdur hjá tí, sum stendur til svars fyri lógarbrotinum, og hjá tí, hvørs vegna hann hevur handlað.
+Stk. 3. Serliga tryggjaði rættindi yvir lutum, sum verða inndrignir, detta einans burtur, um rætturin tekur avgerð um tað eftir treytum, ið svara til teirra, sum eru nevndar í stk. 2.
+Stk. 4. Hevur ein av teimum persónum, sum eru nevndir í stk. 1 og 2, aftan á revsiverdu gerðina rátt yvir úrtøku ella lutum sambært § 75, stk. 2, ella rættindi yvir teimum, kann tað avhendaða ella virðið á tí verða inndrigið hjá ognaranum, um hesin visti um sambandið, sum tað avhendaða hevði við revsiverdu gerðina. Tað sama er galdandi, um hann hevur víst grovt ósketni í hesum sambandi, ella um avhendingin hevur verið framd sum gáva.
+Stk. 5. Doyr persónur, sum hevur inndráttarábyrgd eftir stk. 1-4, dettur ábyrgd hansara burtur. Hetta er tó ikki galdandi fyri inndrátt eftir § 75, stk. 1.

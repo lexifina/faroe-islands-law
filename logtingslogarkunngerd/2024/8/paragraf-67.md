@@ -1,0 +1,3 @@
+§ 67. Reglurnar í § 61 eru somuleiðis galdandi í málum um persónar, sum eftir ein treytaðan dóm við fylgistreyt um samfelagstænastu verða skuldsettir fyri revsiverd viðurskifti, sum teir hava framt fyri ella eftir dómin.
+Stk. 2. Verður treytaleys partrevsing dømd eftir § 58, stk. 1, ella eftir § 61, stk. 2, nr. 1, kemur fyri restina av revsingini ein treytaður dómur sambært kapitli 7 í staðin fyri dómin til samfelagstænastu. Uttan mun til ásetingarnar í 1. pkt. kann í sambandi við framhaldandi samfelagstænastu verða dømd treytaleys fongsulsrevsing upp til 3 mánaðir.
+Stk. 3. § 66, stk. 3 er somuleiðis galdandi.

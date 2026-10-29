@@ -1,0 +1,1 @@
+§ 149. Hevur onkur fingið álagt at hava eftirlit við fanga ella dómsfullgerð hansara í revsimáli, og hann letur skuldsettan sleppa til rýmingar, forðar fyri dómsfullgerð ella elvir til, at hon verður linari enn ásett, verður hann revsaður við sekt ella fongsli í upp til 3 ár.

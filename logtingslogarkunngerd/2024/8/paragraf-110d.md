@@ -1,0 +1,1 @@
+§ 110 d. Verður nakað av teimum brotsverkum, sum lýst eru í kapitlunum 25, 26 og 27, framt ímóti útlendskum ríkisleiðara ella leiðara á útlendskari sendistovu, kann revsingin, sum har er lýst, vaksa við upp í eina helvt, um ikki gerðin er fevnd av kapitli 13.

@@ -1,0 +1,1 @@
+§ 64. Í sambandi við treytaðan dóm við fylgistreyt um samfelagstænastu kann verða dømd treytaleys fongsulsrevsing ella sekt eftir reglunum í § 58. Fongsulsrevsing ásett sambært § 58, stk. 1, kann tó ikki vera longri enn 3 mánaðir ella ein triðing av samlaðu fongsulsrevsingini.

@@ -1,0 +1,3 @@
+§ 118. Tann, sum við valdsnýtslu ella hóttan um valdsnýtslu ella við misnýtslu av ótta fyri uppílegging frá fremmandavaldi forðar ella roynir at forða almennum myndugleika í at virka frítt og frælst, verður, tá ið gerðin verður framd fyri at ávirka almenn viðurskifti ella at elva til órógv á samfelagsskipanina, revsaður við fongsli í upp til 12 ár.
+Stk. 2. Somu revsing fær tann, sum við teirri ætlan og tí framferðarhátti, sum nevnd eru í stk. 1, ger seg álvarsliga inn á framsøgufrælsið ella forðar felagsskapum ella øðrum samskipanum í at útinna lógliga virksemi sítt frítt og frælst.
+Stk. 3. Somu revsing fær eisini tann, sum við teirri ætlan og tí framferðarhátti, sum nevnd eru í stk. 1, fremur tað brotsverk, sum umrøtt er í § 193, ella aðra alvandasama gerð.

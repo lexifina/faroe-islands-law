@@ -1,0 +1,1 @@
+§ 293 a. Fyri brúksstuldur av motorakfari verður tann revsaður við sekt ella fongsli í upp til 1 ár og 6 mánaðir, sum av órøttum nýtir motorakfar, sum annar eigur. Undir serliga skerpandi umstøðum, herímillum serliga í endurtakandi førum, kann revsingin vaksa til fongsul upp í 4 ár.

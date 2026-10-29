@@ -1,0 +1,2 @@
+§ 59. Tær fylgistreytir, sum ásettar eru sambært § 57, kunnu seinni verða broyttar ella settar úr gildi við rættarúrskurði eftir áheitan frá ákæruvaldinum ella tí dømda. Áheitan frá tí dømda verður sett fram fyri ákæruvaldinum, ið sum skjótast leggur málið fyri rættin. Verður áheitanin frá tí dømda ikki eftirlíkað, kann hann ikki seta nýggja áheitan fram fyrr enn hálvt ár eftir, at úrskurðurin er sagdur.
+Stk. 2. Spurningarnir, sum eru nevndir í stk. 1, verða lagdir fyri Føroya Rætt.

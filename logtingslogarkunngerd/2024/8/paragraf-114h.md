@@ -1,0 +1,1 @@
+§ 114 h. Tann, sum frá bólki ella samskipan, ið fremur ella ætlar at fremja gerðir, ið eru fevndar av §§ 114 ella 114 a, tekur ímóti peningaligum stuðli ella veitingum at brúka til at skipa ella reka stovn ella fyritøku ella til líknandi endamál her á landi, verður revsaður við fongsli í upp til 6 ár.

@@ -1,0 +1,1 @@
+§ 267. Tann, sum ærumeiðir annan við niðrandi orðum ella gerðum ella setir fram ella breiðir út skuldseting um viðurskifti, sum verða mett at vera slík sum kunnu skaða almenna umdømið hjá tí ærumeidda, verður revsaður við sekt ella fongsli í upp til 4 mánaðir.

@@ -1,0 +1,1 @@
+§ 279 a. Fyri dátusvik verður tann revsaður, sum fyri at útvega sær ella øðrum vinning, tey ongan rætt hava til, ólógliga broytir, leggur afturat ella strikar upplýsingar ella forrit til elektroniska dátuviðgerð ella aðramáta ólógliga roynir at ávirka úrslitið av slíkari dátuviðgerð.

@@ -1,0 +1,1 @@
+§ 299 c. [^2] Við fongsli í upp til 6 ár verður tann revsaður, sum undir serliga skerpandi umstøðum ger kartellavtalu sambært § 35, stk. 3, 1. pkt. í løgtingslóg um kapping. Sum serliga skerpandi umstøður eru serstakliga roknaðar slíkar, har brotið hevur verið umfatandi ella verður mett at kunna havt ført til stóran skaða.

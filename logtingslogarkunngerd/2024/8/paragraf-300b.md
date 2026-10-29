@@ -1,0 +1,1 @@
+§ 300 b. Við sekt ella fongsli í upp til 6 mánaðir verður tann revsaður, sum, uttan at treytirnar fyri at brúka § 282 eru til staðar, í avtalugerð á ósømiligan hátt ger sær dælt av fíggjarligum trupulleikum ella aðrari undirlutastøðu hjá mótpartinum.

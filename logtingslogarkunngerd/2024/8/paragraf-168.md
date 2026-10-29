@@ -1,0 +1,1 @@
+§ 168. Tann, sum gevur út pening, sum hann metir vera eftirgjørdan ella falsaðan, verður revsaður við sekt ella fongsli í upp til 3 ár. Hevur hann tikið ímóti peninginum í góðari trúgv, kann revsingin detta burtur.

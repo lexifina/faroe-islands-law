@@ -1,0 +1,1 @@
+§ 131. Við sekt ella fongsli í upp til 6 mánaðir verður tann revsaður, sum alment ella við ólógligum endamáli letst at hava almennan myndugleika ella almenna heimild til at reka vinnu, ella sum uttan almenna heimild rekur vinnu, ið krevur almenna heimild, ella sum áhaldandi rekur vinnu, sum hann við dómi hevur mist rættin at reka.

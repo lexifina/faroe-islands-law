@@ -1,0 +1,1 @@
+§ 121. Tann, sum við háð, ókvæmisorðum ella aðrari niðrandi talu loypur á persón, sum nevndur er í § 119, ímeðan ella í sambandi við at hesin persónur útinnir tænastuskyldu ella starvsskyldu sína, verður revsaður við sekt ella fongsli í upp til 6 mánaðir.

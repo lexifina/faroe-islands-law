@@ -1,0 +1,1 @@
+§ 83. Revsingin kann minkast niður um ta ásettu revsirammuna, tá ið upplýsingar um gerðina, gerningsmannin ella onnur viðurskifti avgerandi tala fyri tí. Eru umstøðurnar aðramáta linnandi, kann revsingin detta burtur.

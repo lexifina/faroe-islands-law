@@ -1,0 +1,1 @@
+§ 303. Tann, sum vísir grovt ósketni við í tingingum at fáa ella á annan líknandi hátt tekur ímóti lutum, sum eru útvegaðir við ríkingarbrotsverki, verður revsaður við sekt ella fongsli í upp til 1 ár.

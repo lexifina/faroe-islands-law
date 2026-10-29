@@ -1,0 +1,2 @@
+§ 271. Tað verður ikki loyvt at føra fram prógv um sannleikan í revsiverdari gerð, um tann, sum verður skuldsettur við endaligum dómi í ríkinum ella í útlondum er fríkendur.
+Stk. 2. Sannleikaprógv fyri eina longu dømda revsiverda gerð, sleppur einum ikki undan revsing, tá ið tann ærumeiddi í mun til innihaldið í gerðini, tíðspunktið, tá ið hon varð framd, og umstøðurnar annars hevði rímiligan rætt til at krevja, at málið ikki verður tikið fram aftur.

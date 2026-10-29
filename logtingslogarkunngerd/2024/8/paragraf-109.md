@@ -1,0 +1,2 @@
+§ 109. Tann, sum avdúkar ella víðarigevur upplýsingar um loyniligar samráðingar, ráðleggingar ella avgerðir hjá landinum í málum, sum trygd landsins ella rættindi við fremmand lond er treytað av, ella sum snúgva seg um týðandi samfelagsbúskaparlig áhugamál við útlond, verður revsaður við fongsli í upp til 12 ár.
+Stk. 2. Verða nevndu gerðir gjørdar av ósketni, er revsingin sekt ella fongsul í upp til 3 ár.

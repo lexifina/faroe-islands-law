@@ -1,0 +1,2 @@
+§ 304 a. Tann, sum av órøttum veitir, lovar ella bjóðar gerðarrættardómara í ríkinum ella í útlondum gávu ella annan fyrimun fyri at fáa hann til at gera ella til at lata vera við at gera okkurt í útinningini av starvi sínum sum gerðarrættardómari verður revsaður við sekt ella fongsli í upp til 4 ár.
+Stk. 2. Á sama hátt verður tann revsaður, sum í ríkinum ella í útlondum arbeiðir sum gerðarrættardómari, og sum í útinningini av starvi sínum sum gerðarrættardómari av órøttum tekur ímóti, krevur ella letur sær lova gávu ella annan fyrimun.

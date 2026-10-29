@@ -1,0 +1,1 @@
+§ 163. Tann, sum aðramáta til brúk í rættarviðurskiftum hjá tí almenna á skrift ella annan lesbaran hátt gevur óbeina váttan ella vissu um nakað, sum hann ikki hevur vitan um, verður revsaður við sekt ella fongsli í upp til 4 mánaðir.

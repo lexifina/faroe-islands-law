@@ -1,0 +1,2 @@
+§ 99. Tann, sum fremur eina gerð, ið miðar eftir at koma Føroyum ella okkara sameindu út í kríggj, herseting ella annan fíggindaskap, sum til dømis avbyrging ella annan tvingsil, ella sum aðramáta virkar fyri at skerja avgerðarrætt Føroya við útlendskari hjálp, verður revsaður við fongsli í upp til lívstíð.
+Stk. 2. Við herseting er her og aðrastaðni í kapitlunum 12 og 13 at skilja fremmand herseting av Føroyum, tá ið og so leingi hon verður sett í verk við valdsnýtslu ella við hóttan um valdsnýtslu.

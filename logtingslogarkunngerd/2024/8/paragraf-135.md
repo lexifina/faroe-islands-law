@@ -1,0 +1,1 @@
+§ 135. Við sekt ella fongsli í upp til 3 mánaðir verður tann revsaður, sum við ógrundaðum neyðkalli, misnýtslu av ávaringartekni ella tílíkum elvir til neyðsend av løgreglu, sløkkiliði, sjúkrabili ella bjargingartilbúgving á sjógvi, landi og í luftini.

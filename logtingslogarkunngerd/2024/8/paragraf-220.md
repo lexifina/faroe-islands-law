@@ -1,0 +1,1 @@
+§ 220. Tann, sum við grovari misnýtslu av annans arbeiðsliga, fíggjarliga, viðgerðarliga ella røktarliga bundinskapi skaffar sær samlegu við viðkomandi, verður revsaður við fongsli í upp til 1 ár. Er tann órættaði undir 18 ár, er revsingin upp í 4 ár.

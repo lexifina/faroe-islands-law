@@ -1,0 +1,2 @@
+§ 299 d. Við fongsli í upp til 6 ár verður tann revsaður, sum undir serliga skerpandi umstøðum ger seg sekan í broti á § 35, stk. 1 ella § 39, stk. 1 í Lov om værdipapirhandel m.v., sum sett í gildi fyri Føroyar við kongligari fyriskipan.
+Stk. 2. Sum serliga skerpandi umstøður sambært stk. 1 eru serstakliga at rokna slíkar, har fleiri eru saman um brotið, har uppnáddi ella tilætlaði vinningurin er stórur, ella har talan er um fleiri brot.

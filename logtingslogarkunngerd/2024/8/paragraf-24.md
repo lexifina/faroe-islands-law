@@ -1,0 +1,1 @@
+§ 24. Tann viðvirkandi verður ikki revsaður, um hann sambært teimum treytum, ið eru nevndar í § 22, forðar fyri fullgerðini ella fremur gerðir, sum vildu havt forðað fyri fullgerðini, um hon ikki, honum ókunnugt, var miseydnað ella á annan hátt forðað.

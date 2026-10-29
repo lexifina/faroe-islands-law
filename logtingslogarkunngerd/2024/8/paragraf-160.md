@@ -1,0 +1,1 @@
+§ 160. Ger onkur seg sekan í grovum ósketni við at geva óbeina frágreiðing í føri, sum annars hevði verið revsivert sambært § 158 ella § 159, stk. 2, er revsingin sekt ella fongsul í upp til 4 mánaðir.

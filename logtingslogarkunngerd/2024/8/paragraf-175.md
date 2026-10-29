@@ -1,0 +1,3 @@
+§ 175. Tann, sum fyri at svika í rættarviðurskiftum gevur óbeina váttan í almennum skjali ella almennari bók, í privatum skjali ella privatari bók, sum hann hevur skyldu at skriva ella føra sambært lóg ella serligum skyldum, ella sum í læknaváttan, tannlæknaváttan, ljósmóðurváttan ella djóralæknaváttan gevur óbeina váttan um viðurskifti, sum váttanin skal prógva, verður revsaður við sekt ella fongsli í upp til 3 ár.
+Stk. 2. Á sama hátt verður tann revsaður, sum í rættarviðurskiftum nýtir slíkt skjal ella slíka bók, sum innihaldandi sannleika.
+Stk. 3. Ásetingarnar í stk. 1 og 2 eru somuleiðis galdandi, tá ið skjalið ella bókin er skrivað ella førd á øðrum lesbarum miðli.

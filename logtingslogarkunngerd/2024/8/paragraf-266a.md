@@ -1,0 +1,1 @@
+§ 266 a. Við sekt ella fongsli í upp til 1 ár verður tann revsaður, sum, uttan at treytirnar fyri at revsa eftir §§ 136 ella 266 eru til staðar, alment setir fram útsøgn, ið miðar eftir at birta upp undir herverk ella valdsgerð.

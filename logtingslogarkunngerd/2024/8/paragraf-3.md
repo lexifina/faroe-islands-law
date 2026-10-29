@@ -1,0 +1,4 @@
+## Kapittul 2
+## Vanligar treytir fyri at nýta revsirættarligar ásetingar
+§ 3. Verður revsilóggáva broytt, eftir at gerðin er framd, men áðrenn avgerðin fyri hana fellur, verður spurningurin um revsing og revsingarbæri avgjørdur eftir teirri nýggju lógini, tó at avgerðin harvið ikki má vera harðari enn eftir teirri gomlu. Er lógin sett úr gildi av uttanífrá komandi orsøkum, sum eru óviðkomandi fyri revsiábyrgdina, skal gerðin metast eftir gomlu lógini.
+Stk. 2. Um revsingarbærið fyri eina gerð dettur burtur við lóg á annan hátt enn soleiðis, sum nevnt er í stk. 1, 2. pkt., dettur eisini burtur tann fyri gerðina ídømda, men ikki fullgjørda revsingin. Tann dømdi kann krevja, at átaluvaldið leggur spurningin um, hvørt revsingin skal fella burtur, fyri tann rættin, sum dømdi í málinum fyrstu ferð. Avgerðin verður tikin við úrskurði.

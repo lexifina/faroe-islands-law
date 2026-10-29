@@ -1,0 +1,2 @@
+§ 177. Við fongsli í upp til 8 ár verður tann revsaður, sum nýtir eftirgjørd ella falsað stempulpappír, stempulmerki, postfrímerki og onnur merki, ið vátta, at goldið er fyri almennan skatt ella avgjald. Lutvíst linari revsing fær tann, sum nýtir áður brúkt pappír ella merki, har ásetta teknið um fyrra brúkið er burturtikið.
+Stk. 2. Reglan í § 169 verður á sama hátt brúkt, tá ið talan er um stempulmerki, postfrímerki og líknandi fríanarmiðlar.

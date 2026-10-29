@@ -1,0 +1,1 @@
+§ 120. Verða brot á § 119 framd í ófriðarflokki, galda ásettu revsingar fyri tey, sum íbirta ella leiða flokkin, og fyri teir luttakarar, sum ikki lýða lógliga fráboðan frá yvirvaldinum til flokkin um at fara hvør til sítt.

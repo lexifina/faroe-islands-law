@@ -1,0 +1,1 @@
+§ 279. Fyri fíggjarsvik verður tann revsaður, sum fyri at útvega sær ella øðrum vinning, tey ongan rætt hava til, ólógliga skapar, styrkir ella ger sær dælt av annans misfatan og soleiðis fær hann til at gera ella til at lata vera við at gera okkurt, ið elvir honum ella øðrum, sum gerðin ella undanlátið verður avgerandi fyri, ein fíggjarmiss.

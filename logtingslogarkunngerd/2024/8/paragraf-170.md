@@ -1,0 +1,1 @@
+§ 170. Við sekt ella fongsli í upp til 3 mánaðir verður tann revsaður, sum uttan lógarheimild ger, innflytur ella útgevur handhavaskuldarskjal, sum at síggja til er ætlað at verða nýtt sum gjaldsmiðil manna millum í smærri ella størri bólkum, ella sum trúliga fer at verða nýtt á henda hátt. Uttan fyri hesa áseting eru fremmandir pengaseðlar.

@@ -1,0 +1,2 @@
+§ 113. Tann, sum ger seg inn á trygd ella frælsi Løgtingsins ella aðramáta fremur eina gerð, ið miðar eftir við valdsnýtslu ella hóttan um valdsnýtslu at noyða Løgtingið til at taka eina avgerð ella at forða tí í at virka frítt og frælst, verður revsaður við fongsli í upp til 16 ár ella undir serliga skerpandi umstøðum við fongsli í upp til lívstíð.
+Stk. 2. Somu revsing fær tann, sum á samsvarandi hátt loypur á ella fremur tvingsil ímóti tí, sum við heimild í stýrisskipanini leiðir landsstýrið, ella ímóti landsstýrismonnum.

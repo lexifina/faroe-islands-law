@@ -1,0 +1,1 @@
+§ 178. Við sekt ella fongsli í upp til 2 ár verður tann revsaður, sum fyri at forða onkrum í at fáa sín rætt fyribeinir, burturbeinir ella heilt ella lutvíst ónýtiligger eitt prógv, ið er hóskandi at nýta sum slíkt í rættarviðurskiftum.

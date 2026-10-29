@@ -1,0 +1,1 @@
+§ 264 a. Tann, sum av órøttum avmyndar persónar, sum eru á einum staði, har ikki er frítt at koma, verður revsaður við sekt ella fongsli í upp til 6 mánaðir. Sama við honum, sum við kikara ella øðrum tóli av órøttum eygleiðir slíkar persónar.

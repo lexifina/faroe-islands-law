@@ -1,0 +1,1 @@
+§ 194. Tann, sum tekur burtur, oyðileggur ella ger skaða á almenn minnismerki ella lutir, sum eru ætlaðir til vanliga nýtslu ella prýði, hoyra til almenn søvn ella eru serliga friðað, verður revsaður við sekt ella fongsli í upp til 3 ár.

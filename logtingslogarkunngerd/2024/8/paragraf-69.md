@@ -1,0 +1,1 @@
+§ 69. Var støðan hjá gerningsmanninum, tá ið revsiverda gerðin varð framd, treytað av vantandi menning, viknan ella ólagi í sálarliga virkisførinum, ið ikki er av slíkum slag, sum nevnt í § 16, kann rætturin, um tað verður hildið at vera gagnligt, í staðin fyri at døma revsing taka avgerð um fyriskipanir sambært § 68, stk. 2.

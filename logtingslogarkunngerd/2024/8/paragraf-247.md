@@ -1,0 +1,2 @@
+§ 247. [^2] Verða lógarbrot, sum eru nevnd í §§ 243-246, framd av persóni, sum áður er dømdur fyri tilætlað likamsálop, fyri sálarligan harðskap ella fyri brotsverk, har tilætlaður harðskapur hevur verið partur, kann revsingin gerast upp til helvtina størri.
+Stk. 2. Sama er galdandi um lógarbrot, sum nevnd í §§ 244-246, verða gjørd ímóti persóni, sum er í serligum vanda fyri harðskapi í arbeiði sínum.

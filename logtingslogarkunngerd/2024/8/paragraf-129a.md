@@ -1,0 +1,2 @@
+§ 129 a. Við sekt ella fongsli í upp til 2 ár verður tann revsaður, sum almannakunnger tilvitað ósannar endurgevingar ella falskar endurtøkur úr fráboðanum um faktisk viðurskifti, sum eru borin fram á rættarfundi ella givin á fundi hjá Løgtingi, Fólkatingi, kommunu ella almennum ráði og myndugleika.
+Stk. 2. Á sama hátt verður tann revsaður, sum skaðar landsins uttanlandsáhugamál við alment og tilvitað ósatt at leggja stjórnina ella annan almennan myndugleika undir at hava gjørt eitthvørt, sum stjórnin ella myndugleikin ikki hava gjørt.

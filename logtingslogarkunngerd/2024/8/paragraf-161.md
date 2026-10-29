@@ -1,0 +1,1 @@
+§ 161. Við sekt ella fongsli í upp til 2 ár verður tann revsaður, sum í føri, ið ikki hoyrir undir § 158, gevur almennum myndugleika falska váttan við trú og heiður ella á líknandi hátíðarligan hátt, har slíkur siður er kravdur ella loyvdur.

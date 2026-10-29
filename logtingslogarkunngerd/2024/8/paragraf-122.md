@@ -1,0 +1,1 @@
+§ 122. Tann, sum av órøttum veitir, lovar ella bjóðar onkrum, sum virkar í føroyskari, danskari, útlendskari ella millumtjóða tænastu ella starvi fyri tað almenna, gávu ella annan fyrimun fyri at fáa viðkomandi til at gera ella lata vera við at gera okkurt í tænastu síni, verður revsaður við sekt ella fongsli í upp til 6 ár.

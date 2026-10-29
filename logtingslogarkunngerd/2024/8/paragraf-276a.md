@@ -1,0 +1,1 @@
+§ 276 a. Fyri innbrotsstuldur verður tann revsaður, sum av órøttum skaffar sær atgongd til fremmandahús og uttan handhavarans samtykki tekur fremmandan flytbaran lut og ognar sær hann fyri at útvega sær ella øðrum vinning, tey ongan rætt hava til.

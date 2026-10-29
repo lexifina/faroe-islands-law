@@ -1,0 +1,1 @@
+§ 151. Tann, sum eggjar ella viðvirkar til, at persónur, sum er undirskipaður honum í tænastu ella starvi hjá tí almenna, fremur brotsverk í hesi tænastu, verður revsaður eftir teirri áseting, sum er galdandi fyri brotsverkið, sama um tann undirskipaði kann revsast, ella um hann av misfatan ella øðrum ávum er revsifríur.

@@ -1,0 +1,2 @@
+§ 26. Um ikki annað er ásett, fevna ásetingarnar um revsiábyrgd hjá feløgum o.ø. um ein og hvønn løgfrøðiligan persón, herímillum partafeløg, smápartafeløg, lutafeløg, íognarfeløg, feløg, grunnar, búgv, kommunur, landsmyndugleikar og ríkismyndugleikar.
+Stk. 2. Harumframt fevna slíkar ásetingar eisini um einstaklingsfyritøkur, um tær serliga í stødd og bygnaði kunnu javnsetast við feløg, sum eru nevnd í stk. 1.

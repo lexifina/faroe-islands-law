@@ -1,0 +1,2 @@
+§ 58. Verður treytaleys fongsulsrevsing hildin at vera neyðug, men tala upplýsingarnar um persónligu viðurskiftini hjá tí ákærda fyri treytaðum dómi sambært § 56, kann rætturin áseta, at ein partur av skyldugu revsingini, tó í mesta lagi 6 mánaðir, skal fullgerast, meðan dómurin aðramáta verður treytaður.
+Stk. 2. Í sambandi við treytaðan dóm kann sekt verða dømd, hóast heimild ikki er fyri slíkari revsing fyri viðkomandi lógarbrot.

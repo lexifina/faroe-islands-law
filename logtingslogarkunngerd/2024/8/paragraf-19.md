@@ -1,0 +1,1 @@
+§ 19. Ósketni verður bert revsað fyri lógarbrot sambært hesi løgtingslóg, tá hetta er serliga heimilað. Fyri onnur lógarbrot kunnu viðkomandi revsireglur nýtast, eisini tá ið lógarbrotið er gjørt av ósketni, um ikki tað øvuta er serliga heimilað.

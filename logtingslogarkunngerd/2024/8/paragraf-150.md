@@ -1,0 +1,1 @@
+§ 150. Tá nakar, sum virkar í tænastu ella starvi hjá tí almenna, misnýtir starv sítt at tvinga ein annan til at tola, gera ella lata vera við at gera okkurt, verður hann revsaður við fongsli í upp til 3 ár.

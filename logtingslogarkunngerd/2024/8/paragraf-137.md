@@ -1,0 +1,2 @@
+§ 137. Tann, sum roynir at forða fyri lógligum almennum fundum, samkomum, kravgongum og tílíkum, verður revsaður við sekt ella fongsli í upp til 2 ár.
+Stk. 2. Á sama hátt verður tann revsaður, sum við gangi ella ónáðum órógvar almennan fund hjá Løgtingi ella Fólkatingi, kommunalum ella øðrum almennum ráðum, gudstænastu ella aðrar almennar kirkjuligar tænastur, ella sum órógvar jarðarferð á ósømiligan hátt.

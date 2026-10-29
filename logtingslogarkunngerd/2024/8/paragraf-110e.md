@@ -1,0 +1,1 @@
+§ 110 e. Við sekt ella fongsli í upp til 2 ár verður tann revsaður, sum alment háðar fremmanda tjóð, fremmant land, flagg tess ella annað viðurkent tjóðarmerki ella flaggið hjá Sameindu Tjóðum ella hjá Evroparáðnum.

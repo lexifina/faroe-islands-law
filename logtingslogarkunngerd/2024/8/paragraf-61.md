@@ -1,0 +1,4 @@
+§ 61. Verða, áðrenn royndartíðin er úti, tikin rættargangsstig móti tí dømda, har hann verður skuldsettur fyri revsiverd viðurskifti, sum eru framd áðrenn tann treytaða dómin, ásetir rætturin rættarfylgjuna fyri hendan tilburðin og tað áður dømda lógarbrotið.
+Stk. 2. Fremur tann dømdi nýggj revsiverd viðurskifti í royndartíðini, og verða, áðrenn royndartíðin er úti, tikin rættargangsstig, har hann verður skuldsettur fyri tilburðin, ásetir rætturin treytaleysa revsing ella aðra rættarfylgju fyri hendan tilburðin og tað áður dømda lógarbrotið. Ásetingarnar í § 88, stk. 2-4, eru somuleiðis galdandi. Tá ið umstøðurnar tala fyri tí, kann rætturin í staðin:
+1) døma treytaleysa revsing einans fyri nýggju tilburðirnar, møguliga saman við eini broyting av fylgistreytunum í treytaða dóminum, ella
+2) siga nýggjan treytaðan dóm fyri bæði lógarbrotini ella bert fyri nýggja tilburðin í samsvari við reglurnar í hesum ella næsta kapitli.

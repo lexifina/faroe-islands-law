@@ -1,0 +1,2 @@
+§ 290 a. Fyri hvítvasking verður tann revsaður við sekt ella fongsli í upp til 1 ár og 6 mánaðir, sum leggur um ella flytur pening, ið beinleiðis ella óbeinleiðis er vinningur av revsiverdum lógarbroti, til tess at krógva ella káva út yvir tann ólógliga upprunan.
+Stk. 2. Revsingin kann vaksa til fongsul í upp til 8 ár, um talan er um serliga grova hvítvasking, serstakliga um hon hevur vinnuligan ella professionellan karakter, um uppnáddi ella tilætlaði vinningingurin er stórur, ella um eitt størri tal av brotsverkum er framt.

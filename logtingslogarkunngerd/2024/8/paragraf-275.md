@@ -1,0 +1,2 @@
+§ 275. Brotsverk í hesum kapitli verða lógsøkt við privatari átalu, tó ikki brotsverkini, sum nevnd eru í §§ 266, 266 a og 266 b.
+Stk. 2. Brot á §§ 263-264 d kunnu verða lógsøkt við almennari ákæru, um tann órættaði biður um tað. Sama er galdandi, um tann, sum virkar, ella tað tíðspunktið, ið talan er um, virkaði í almennari tænastu ella vinnu, verður skuldsettur fyri eina gerð, sum kann ella kundi havt við sær, at viðkomandi misti starvið ella vinnu sína. Sama er eisini galdandi, tá ið skuldsetingin er navnleys, ella tá ið navnið er skeivt ella uppáfunnið.

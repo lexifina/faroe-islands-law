@@ -1,0 +1,2 @@
+§ 270. Tann, sum setir fram skuldseting á óhøviliga vanærandi hátt, kann revsast eftir § 267, sjálvt um sannleikaprógv verður ført. Sama er galdandi, um gerningsmaðurin ikki hevur havt rímiliga orsøk til at seta fram skemdarorðini.
+Stk. 2. Um tann ærumeiddi einans krevur revsing eftir hesi grein, verður prógv um sannleikan í skuldsetingini ikki ført, um ikki almenn atlit á avgerandi hátt tala fyri tí.

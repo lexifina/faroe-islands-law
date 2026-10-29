@@ -1,0 +1,1 @@
+§ 138. Tann, sum av egnum ávum tilvitað ella av grovum ósketni gerst rúsaður og í hesi støðu kemur øðrum persónum ella munandi ognarvirðum teirra í vanda, verður revsaður við sekt ella fongsli í upp til 1 ár.

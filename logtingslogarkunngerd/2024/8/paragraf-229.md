@@ -1,0 +1,1 @@
+§ 229. Fyri lokking verður tann revsaður við sekt ella fongsli í upp til 2 ár, sum miðvíst ella við snildum og við at misnýta sína yvirvág í aldri og royndum byggir upp eitt samband til ein persón undir 18 ár við ætlan um at fremja kynsligt brotsverk móti viðkomandi.

@@ -1,0 +1,1 @@
+§ 173. Somu revsing, sum ásett í § 172, fær tann, sum nýtir eitt skjal við ektaðari undirskrift til at svika í rættarviðurskiftum, um undirskriftin við misfatan er útvegað á øðrum skjali ella á skjali við øðrum innihaldi enn tí, sum undirskrivarin ætlaði at skriva undir uppá.

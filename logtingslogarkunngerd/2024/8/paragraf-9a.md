@@ -1,0 +1,1 @@
+§ 9 a. Eitt lógarbrot, sum viðvíkur teksttilfari, ljóðtilfari ella myndatilfari o.ø., sum í útlondum er gjørt alment atkomuligt í tí í § 6 nevnda øki ígjøgnum internetið ella tílíka skipan til at breiða út upplýsingar, verður roknað sum framt í økinum, um tilfarið hevur serligt samband við økið.

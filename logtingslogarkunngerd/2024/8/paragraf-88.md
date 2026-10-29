@@ -1,0 +1,4 @@
+§ 88. Hevur onkur við einari ella fleiri gerðum framt fleiri lógarbrot, verður fyri hesi brot ásett felags revsing innan fyri ásettu revsirammuna ella, um fleiri revsirammur koma upp á tal, innan fyri ta strangastu teirra. Undir serliga skerpandi umstøðum kann revsingin vera upp til hálva aðru ferð ta harðastu revsingina, sum ásett er fyri eitthvørt av lógarbrotunum.
+Stk. 2. Hevur eitt av lógarbrotunum við sær fongsul, meðan eitt annað hevur við sær sekt, kann rætturin heldur enn felags fongsulsrevsing døma sekt og fongsul.
+Stk. 3. Hevur eitt av lógarbrotunum við sær dagsekt, meðan eitt annað hevur við sær sektarrevsing av øðrum slagi, ásetir rætturin felags dagsektarrevsing, um tað ikki eftir umstøðunum verður mett at vera rættari at áseta revsing fyri hvørt lógarbrot sær.
+Stk. 4. Hevur eitt av lógarbrotunum við sær fyriskipan eftir §§ 68-70 ella § 74 a, meðan eitt annað hevur við sær revsing, kann rætturin gera av, at henda revsing dettur burtur.

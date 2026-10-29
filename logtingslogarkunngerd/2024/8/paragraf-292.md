@@ -1,0 +1,1 @@
+§ 292. Tann, sum oyðileggur, skaðar ella beinir fyri egnum ognum fyri at forða fyri, at tær koma kravánarum ella onkrum einstøkum av kravánarunum til góðar, verður revsaður við sekt ella fongsli í upp til 1 ár.

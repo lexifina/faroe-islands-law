@@ -1,0 +1,1 @@
+§ 241. Tann, sum av ósketni elvir annans deyð, verður revsaður við sekt ella fongsli í upp til 4 mánaðir og undir serliga skerpandi umstøðum við fongsli upp í 8 ár. Er gerðin framd í sambandi við rúsdrekkakoyring, brot á § 15, stk. 1 og 2 í løgtingslóg um ferðslu, ella serliga fyrilitarleysa koyring verður hetta roknað sum serliga skerpandi umstøður.

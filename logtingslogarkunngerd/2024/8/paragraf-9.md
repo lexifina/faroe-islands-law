@@ -1,0 +1,4 @@
+§ 9. Gerðir verða roknaðar sum framdar, har sum gerningsmaðurin var, tá ið gerðin varð framd. Fyri løgfrøðiligar persónar verða gerðir roknaðar sum framdar, har sum tann ella tær gerðir, sum hava við sær ábyrgd hjá tí løgfrøðiliga persóninum, eru framdar.
+Stk. 2. Um revsingarbærið fyri eina gerð er treytað av ella verður ávirkað av eini fylgju, sum er hend ella ætlað, verður gerðin eisini at rokna sum framd, har sum virknaðurin er, ella har gerningsmaðurin hevði tilætlan um, at virknaðurin skuldi verða.
+Stk. 3. Brotsroyndir og viðvirkan verða roknaðar sum framdar í tí í § 6 nevnda øki, um gerningsmaðurin var í økinum, tá ið gerðin varð framd, sama um lógarbrotið verður fullgjørt ella er ætlað at verða fullgjørt uttan fyri økið.
+Stk. 4. Tá ið partur av lógarbroti er framdur í tí í § 6 nevnda øki, er lógarbrotið í síni heild at rokna sum framt í økinum.

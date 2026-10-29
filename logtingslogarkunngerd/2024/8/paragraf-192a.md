@@ -1,0 +1,1 @@
+§ 192 a. Tann, sum ímóti løgtingslóg um vápn o.a. undir serliga skerpandi umstøðum hevur skotvápn um hendi, hevur skotvápn uppi á sær ella nýtir skotvápn, verður revsaður við fongsli í upp til 4 ár, tá ið brotið fer fram á einum stað, har frítt er hjá almenninginum at koma.

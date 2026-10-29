@@ -1,0 +1,1 @@
+§ 228. Brot á §§ 218 ella 222-224, § 225 sambært §§ 218 ella 222-224, § 226, § 227, stk. 1 ella § 229, verða lutvíst linari revsað, um gerningsmaðurin av ókunnleika um tilstandin ella aldurin hjá tí órættaða ikki kann sigast at hava handlað tilætlað, men tó í ósketni.

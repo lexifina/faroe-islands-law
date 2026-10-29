@@ -1,0 +1,2 @@
+§ 107. Tann, sum í tænastu fyri fremmant vald ella fremmandan felagsskap ella til nýtslu hjá nøkrum, sum er í slíkari tænastu, kannar ella gevur upplýsingar um viðurskifti, ið skulu haldast loynilig við fyriliti fyri landsáhugamálum ella samfelagsáhugamálum, verður, sama um upplýsingarnar eru rættar ella ei, revsaður fyri njósnan við fongsli í upp til 16 ár.
+Stk. 2. Snýr tað seg um viðurskifti, sum nevnd eru í § 109, ella verður gerðin framd í kríggi ella undir herseting, kann revsingin vaksa til fongsul í upp til lívstíð.

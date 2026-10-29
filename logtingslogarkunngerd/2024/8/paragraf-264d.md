@@ -1,0 +1,1 @@
+§ 264 d. Við sekt ella fongsli í upp til 6 mánaðir verður tann revsaður, sum av órøttum víðarigevur boð ella myndir, ið viðvíkja persónligum viðurskiftum hjá øðrum persóni ella aðramáta vísa hann í umstøðum, sum skilliga kunnu krevjast ikki at koma fyri almenningin. Ásetingin er eisini galdandi fyri boð ella myndir, ið viðvíkja deyðum persóni.

@@ -1,0 +1,1 @@
+§ 10 b. Verður persónur rættarsøktur, sum uttan fyri tað í § 6 nevnda økið hevur fingið revsiatgerð fyri somu gerð, skal revsiatgerðin, sum verður givin í Føroyum, verða lækkað í mun til, hvussu stórur partur av útlendsku revsiatgerðini er fullgjørdur.

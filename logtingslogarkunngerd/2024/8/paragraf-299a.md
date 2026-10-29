@@ -1,0 +1,1 @@
+§ 299 a. Við fongsli í upp til 6 ár verður tann revsaður, sum undir serliga skerpandi umstøðum brýtur § 19 í løgtingslóg um marknaðarføring. Sum serliga skerpandi umstøður eru serstakliga at rokna tilburðir, har gerðin hevur elvt til munandi skaða ella hevur skapt nærliggjandi vanda fyri tí.

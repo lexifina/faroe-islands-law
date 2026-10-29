@@ -1,0 +1,1 @@
+§ 277. Fyri finningsbrot verður tann revsaður, sum fyri at útvega sær ella øðrum vinning, tey ongan rætt hava til, ognar sær ein fremmandan flytbaran lut, sum eingin hevur í varðveitslu, ella sum orsakað av eigarans gloymsku ella á annan tílíkan tilvildarligan hátt er komin gerningsmanninum í varðveitslu.

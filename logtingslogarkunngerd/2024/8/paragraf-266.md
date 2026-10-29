@@ -1,0 +1,1 @@
+§ 266. Tann, sum hóttir onkran við at fremja revsiverda gerð, og hóttanarmátin er slíkur, ið kann elva til stóran ótta fyri lívi, heilsu ella vælferð hjá tí hótta ella øðrum, verður revsaður við sekt ella fongsli í upp til 2 ár.

@@ -1,0 +1,3 @@
+§ 281. Fyri avnoyðslu verður tann revsaður, um ikki gerðin kemur undir § 288,
+1) sum fyri at útvega sær ella øðrum vinning, tey ongan rætt hava til, hóttir onkran við harðskapi, stórum skaða á góðs ella frælsistøku, við at bera fram ósanna skuldseting um revsiverd ella ærumeiðandi viðurskifti ella við at avdúka viðurskifti, ið hoyra privatlívinum til, ella
+2) sum hóttir við at melda ella avdúka revsiverd viðurskifti ella við at bera fram sanna ærumeiðandi skuldseting fyri á tann hátt at útvega sær ella øðrum vinning, sum ikki kann metast at hava hóskandi samband við tann tilburð, sum er atvoldin til framseting av hóttanini.

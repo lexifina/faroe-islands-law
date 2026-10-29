@@ -1,0 +1,1 @@
+§ 20. Har ið revsing ella herd revsing eru treytaðar av, at eitt tilætlað lógarbrot hevur eina ávísa ótilætlaða fylgju, verður henda revsing bert givin, um slík fylgja kann ábyrgjast ósketni hjá gerningsmanninum, ella at hann hevur latið vera við eftir førimuni at forða fyri fylgjuni, eftir at hann er vorðin varur við vandan.

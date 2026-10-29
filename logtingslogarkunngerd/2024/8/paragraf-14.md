@@ -1,0 +1,1 @@
+§ 14. Ein gerð, sum annars hevði verið revsiverd, verður ikki revsað, um hon var neyðug til tess at forða fyri hóttandi skaða á persón ella góðs, og lógarbrotið verður mett at hava lutfalsliga lítið uppá seg.

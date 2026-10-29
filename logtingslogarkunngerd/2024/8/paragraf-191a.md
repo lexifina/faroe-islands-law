@@ -1,0 +1,2 @@
+§ 191 a. Tann, sum ímóti løgtingslóg um forboð móti ávísum dopingevnum til fleiri persónar ella fyri munandi gjald ella undir øðrum serliga skerpandi umstøðum avhendir slík evni, verður revsaður við fongsli í upp til 6 ár.
+Stk. 2. Somu revsing fær tann, sum ímóti løgtingslóg um forboð móti ávísum dopingevnum framleiðir, innflytur, útflytur, útbreiðir ella hevur um hendi slík evni við tilætlan um at avhenda tey, soleiðis sum nevnt er í stk. 1.

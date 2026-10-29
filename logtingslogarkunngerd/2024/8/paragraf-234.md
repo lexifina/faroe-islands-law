@@ -1,0 +1,1 @@
+§ 234. Tann, sum við ólógliga at skapa, styrkja ella gera sær dælt av villleiðing ella á annan ósømiligan hátt fær annan persón til fyri gjald ella lyfti um gjald at hava kynsligt samband við kunda, verður revsaður við sekt ella fongsli í upp til 2 ár.

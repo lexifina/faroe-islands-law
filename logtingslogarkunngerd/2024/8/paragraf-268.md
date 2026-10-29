@@ -1,0 +1,1 @@
+§ 268. Tann, sum setir fram ella breiðir út skuldseting ímóti betri vitan, ella sum ikki hevur rímiliga orsøk til at halda skuldsetingina vera sanna, verður revsaður fyri útspilling. Revsingin í § 267 kann tá vaksa til fongsul í upp til 2 ár.

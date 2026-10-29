@@ -1,0 +1,2 @@
+§ 184. Við sekt ella fongsli í upp til 2 ár ella undir serliga skerpandi umstøðum við fongsli í upp til 6 ár verður tann revsaður, sum, uttan at vera revsisekur eftir §§ 183 ella 183 a, órógvar rakstrartrygdina hjá førum, motorakførum ella slíkum flutningsførum ella ferðslutrygdina á leiðum, ið ætlaðar eru til almenna ferðslu.
+Stk. 2. Verður brotsverkið gjørt av ósketni, er revsingin sekt ella fongsul í upp til 4 mánaðir.

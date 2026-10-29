@@ -1,0 +1,1 @@
+§ 89. Verður onkur, sum longu er dømdur revsing, harumframt funnin sekur í aðrari revsiverdari gerð, sum er framd áðrenn dómin, skal eykarevsing dømast, um so er, at revsingin hevði verið harðari, um dømt varð fyri gerðirnar samstundis. Eykarevsing kann vera styttri enn ásett í § 33. Er fyrr dømda revsingin ikki fullgjørd, skulu reglurnar í § 88 fylgjast, um til ber.

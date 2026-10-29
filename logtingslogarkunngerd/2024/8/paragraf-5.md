@@ -1,0 +1,1 @@
+§ 5. Tá ið herd revsing ella aðrar rættarfylgjur eru fyriskrivaðar í endurtøkuførum, verða avgerðir, sum eru tiknar eftir áður galdandi rætti, eftir sínum innihaldi tiknar við eins og avgerðir eftir teirri lóg, sum tann aktuella gerðin verður dømd eftir.

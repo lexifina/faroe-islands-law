@@ -1,0 +1,3 @@
+§ 16. Persónar, sum í gerningsløtuni vóru ósaknæmir orsakað av sinnissjúku ella eini støðu, sum kann javnmetast við sinnissjúku, verða ikki revsaðir. Sama er galdandi fyri persónar við munandi menningartarni. Var gerningsmaðurin orsakað av rúsdrekka ella øðrum rúsevni fyribils sinnissjúkur ella í eini støðu, sum kann javnmetast við sinnissjúku, kann revsing tó vera áløgd, um serligar umstøður tala fyri tí.
+Stk. 2. Persónar, sum í gerningsløtuni vóru menningartarnaðir í minni mun, verða ikki revsaðir, um ikki serligar umstøður tala fyri tí. Sama er galdandi fyri persónar, sum vóru í einari støðu, sum fult og heilt kann javnmetast við menningartarn.
+§§ 17-18. (Strikaðar).

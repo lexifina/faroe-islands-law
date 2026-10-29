@@ -1,0 +1,2 @@
+§ 116. Tann, sum forðar ella roynir at forða fyri, at val verður hildið til Løgtingið, Fólkatingið, kommunustýri ella til kommunal ella onnur almenn ráð ella myndugleikar, ella sum reingir valúrslit, ella sum ger tað ómøguligt at gera úrslitið upp, verður revsaður við fongsli í upp til 6 ár.
+Stk. 2. Sama revsing verður nýtt, tá ið slíkar gerðir verða gjørdar í sambandi við lógarheimilaðar beinleiðis atkvøðugreiðslur um almenn viðurskifti.

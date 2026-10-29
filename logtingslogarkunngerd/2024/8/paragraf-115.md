@@ -1,0 +1,1 @@
+§ 115. Verður brotsverk, sum nevnt er í kapitlunum 25, 26 og 27, gjørt ímóti tí, sum við heimild í stýrisskipanini leiðir landsstýrið, uttan at treytirnar fyri at revsa eftir §§ 112 og 113 eru til staðar, verða revsingarnar, sum har eru lýstar, herdar upp til tað dupulta.

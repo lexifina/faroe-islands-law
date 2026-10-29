@@ -1,0 +1,1 @@
+§ 282. Fyri okur verður tann revsaður, sum ger sær dælt av annans munandi fíggjarligu ella persónligu trupulleikum, manglandi innliti, gáloysni ella bundinskapi fyri á tann hátt í eini avtalu at fáa ella treyta sær veiting, sum er í stórum ósamsvari við mótveitingina ella sum er kostnaðarleys.

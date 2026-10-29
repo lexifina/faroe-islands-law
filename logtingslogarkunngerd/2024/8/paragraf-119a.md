@@ -1,0 +1,1 @@
+§ 119 a. [^2] Tann, sum ger ein av teimum í § 119 nevndu persónum ónáðir við at seta seg í samband við, forfylgja ella fremja ágang á annan hátt, meðan ella í sambandi við, at hesin persónur útinnir honum alment álagda tænastuskyldu ella starvsskyldu, verður revsaður við sekt ella fongsli í upp til 2 ár.

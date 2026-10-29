@@ -1,0 +1,1 @@
+§ 174. Tann, sum í rættarviðurskiftum nýtir eitt ektað skjal sum váttan um annan persón enn tann, sum tað veruliga er váttan um, ella sum aðramáta nýtir skjalið á ein hátt, sum er í ósamsvari við endamálið við tí, verður revsaður við sekt ella fongsli í upp til 6 mánaðir.

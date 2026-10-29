@@ -1,0 +1,1 @@
+§ 264 c. Revsiásetingarnar sambært §§ 263, 264 og 264 a galda eisini fyri tann, sum uttan at hava viðvirkað til gerðina skaffar sær atgongd til ella av órøttum nýtir upplýsingar, sum fingnar eru til vegar við lógarbrotunum.

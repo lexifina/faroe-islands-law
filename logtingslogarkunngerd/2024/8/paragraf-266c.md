@@ -1,0 +1,1 @@
+§ 266 c. Tann, sum eftir at avgerð er fallin í einum máli, endurtekur tær ógildaðu skuldsetingarnar ímóti sama persóni so ofta, at skuldsetingarnar gerast meinsókn, og tá upplýsingarnar verða mettar at kunna skaða almenna umdømið hjá persóninum, verður revsaður við sekt ella fongsli í upp til 4 mánaðir.

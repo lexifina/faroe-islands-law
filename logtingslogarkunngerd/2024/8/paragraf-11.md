@@ -1,0 +1,1 @@
+§ 11. Er ein persónur, sum hevur tann í § 6 nevnda heimarætt, hevur bústað í tí í § 6 nevnda øki ella líknandi fast uppihald í hesum, revsaður í einum fremmandum landi fyri eina gerð, sum sambært føroyskari lóggávu kann hava við sær frádøming ella miss av kalli ella vinnu ella øðrum rættindum, kann slík frádøming henda eftir almennari átalu her á landi.

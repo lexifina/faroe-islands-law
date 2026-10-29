@@ -1,0 +1,1 @@
+§ 114 f. Tann, sum, uttan at tilburðurin er fevndur av §§ 114-114 e, luttekur í ella veitir munandi fíggjarstuðul ella annan munandi stuðul til deildir, bólkar ella samskipanir, sum við valdsnýtslu ætla at ávirka almenn viðurskifti ella at elva til órógv á samfelagsskipanina, verður revsaður við fongsli í upp til 6 ár.

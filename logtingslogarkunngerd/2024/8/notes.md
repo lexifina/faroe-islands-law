@@ -1,0 +1,2 @@
+[^1]: Broytt við løgtingslóg nr. 210 frá 15. desember 2025, har § 2 ljóðar soleiðis: “Henda løgtingslóg kemur í gildi 1. januar 2026.”
+[^2]: Broytt við § 1 í løgtingslóg nr. 83 frá 2. mai 2025, har § 3 ljóðar soleiðis: “Henda løgtingslóg kemur í gildi dagin eftir, at hon er kunngjørd. Stk. 2. § 1, nr. 1 er eisini galdandi fyri lógarbrot, sum eru framd, áðrenn lógin kemur í gildi, uttan so, at brotið var fyrnt eftir áður galdandi reglunum, áðrenn lógin kemur í gildi.”

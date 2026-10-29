@@ -1,0 +1,1 @@
+§ 266 b. Tann, sum alment ella við størri útbreiðslu í hyggju setir fram útsøgn ella boðskap, ið hóttir, spottar ella eyðmýkir persónsbólk orsakað av rasu, húðarliti, tjóðskaparligum ella etniskum uppruna, trúgv, kynsligum samleika ella breki, verður revsaður við sekt ella fongsli í upp til 2 ár.

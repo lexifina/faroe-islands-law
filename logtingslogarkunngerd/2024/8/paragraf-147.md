@@ -1,0 +1,1 @@
+§ 147. Hevur onkur fingið álagt at handhevja revsimyndugleika hjá statinum, og hann við hesum myndugleika á ólógligan hátt fær onkran at játta seg sekan ella geva frágreiðing ella fremur ólógliga handtøku, fongsling, rannsókn ella inndrátt, verður hann revsaður við sekt ella fongsli í upp til 3 ár.

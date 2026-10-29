@@ -1,0 +1,1 @@
+§ 195. Tann, sum setur matvøru til sølu, vitandi um, at hon er eftirgjørd ella falsað, uttan at hetta á ótvískildan hátt stendur á vøruni sjálvari, merkiseðlinum ella innpakkingini og á fakturanum, um slíkur verður latin, verður revsaður við sekt ella fongsli í upp til 3 mánaðir.

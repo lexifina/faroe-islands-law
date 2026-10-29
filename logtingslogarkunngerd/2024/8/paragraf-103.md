@@ -1,0 +1,2 @@
+§ 103. Tann, sum í kríggi ella undir herseting, ella tá ið stórur vandi er fyri kríggi ella herseting, misrøkir sáttmála viðvíkjandi fyriskipanum, ið føroyskir myndugleikar av hesi orsøk hava avgjørt at seta í verk, ella sum aðramáta arbeiðir ímóti slíkum fyriskipanum, verður revsaður við fongsli í upp til 3 ár.
+Stk. 2. Er sáttmálin misrøktur av grovum ósketni, er revsingin sekt ella fongsul í upp til 4 mánaðir.

@@ -1,0 +1,1 @@
+§ 77 a. Lutir kunnu inndragast, um stúrt verður fyri, at teir, vegna slag og í samband við aðrar ítøkiligar umstøður, fara at verða brúktir í eini revsiverdari gerð, og tað verður mett neyðugt til tess at fyribyrgja revsiverdu gerðini. Undir somu treytum kunnu aðrir ognarlutir verða inndrignir, herímillum peningur. § 75, stk. 4, er somuleiðis galdandi.

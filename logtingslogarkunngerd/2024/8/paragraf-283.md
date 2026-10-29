@@ -1,0 +1,5 @@
+§ 283. Fyri skuldarasvik verður tann revsaður, sum fyri at útvega sær ella øðrum vinning, tey ongan rætt hava til
+1) avhendir, pantsetir ella á annan hátt ræður yvir egið góðs, har til triðipartur hevur fingið rættindi, sum ikki eru sambærilig við gerðina,
+2) eftir at búgv hansara er tikið til trotabúsviðgerð, ella eftir at endurskipanarviðgerð er byrjað, fremur gerðir, sum skulu forða fyri, at krøv og ognir í búnum koma kravánarum ella onkrum einstøkum av kravánarunum til góðar, ella
+3) við falslæti, burturfjaling, sýnisrættargerð, stórum gávum, ovnýtslu, sølu fyri undirprís, gjalding av ella veðseting fyri ógjaldkomnum skuldbókingum ella á annan tílíkan hátt forðar fyri, at krøv og ognir hansara koma kravánarum ella onkrum einstøkum av kravánarunum til góðar.
+Stk. 2. Eru gerðir, sum nevndar í stk. 1, nr. 3, framdar fyri at geva kravánara framíhjárætt, verður hesin bert revsaður, um hann, tá tað var skilligt, at húsagangurin ella endurskipanarviðgerð hjá skuldaranum vóru fyri durum, fekk skuldaran til at geva sær framíhjárættin.

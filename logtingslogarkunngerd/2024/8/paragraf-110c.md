@@ -1,0 +1,3 @@
+§ 110 c. Tann, sum brýtur áseting ella forboð, ið givin eru sambært lóg sum vernd av verjufyriskipan ella uttanveltafyriskipan ríkisins, verður revsaður við sekt ella fongsli í upp til 4 mánaðir ella undir serliga skerpandi umstøðum við fongsli í upp til 3 ár.
+Stk. 2. Við sekt ella fongsli í upp til 4 mánaðir ella undir serliga skerpandi umstøðum við fongsli í upp til 4 ár verður tann revsaður, sum brýtur áseting ella forboð, ið givin eru sambært lóg fyri at kunna røkja skyldur ríkisins sum limur í Sameindu Tjóðum.
+Stk. 3. Verður brot framt á stk. 1 ella 2 av ósketni, er revsingin sekt ella fongsul í upp til 2 ár.
