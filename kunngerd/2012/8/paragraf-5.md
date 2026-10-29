@@ -1,0 +1,1 @@
+§ 5. Til Felagsskránna verður gjørt eitt yvirlit í bókstavarøð, har navn og raðnummar hjá felagi, felagskapi ella samtaki sæst. Yvirlitið skal verða alment atkomuligt á heimasíðuni www.felagsskrain.fo ella á øðrum elektróniskum miðli. Upplýsingar sambært § 2 kunnu eisini almannakunngerast á heimasíðuni.

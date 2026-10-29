@@ -1,0 +1,1 @@
+§ 2. Í Felagsskránni kunnu skrásetast upplýsingar um nevnd, stjórn og álitisfulltrúar hjá felagnum, felagsskapinum ella samtakinum, eins og upplýsing um, hvussu felagið, felagsskapurin ella samtakið sambært viðtøkunum verða bundin við undirskrift, herundir serstakliga viðvíkjandi at avhenda ogn og veðseta fasta ogn.

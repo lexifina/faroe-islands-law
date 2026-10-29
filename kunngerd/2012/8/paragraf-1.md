@@ -1,0 +1,2 @@
+§ 1. Í Felagsskránni kunnu verða skrásett ikki vinnulig feløg, felagsskapir og samtøk við lógligum endamáli, sum eru heimahoyrandi í Føroyum, og sum ikki kunnu verða skrásett í øðrum almennum skráum í Føroyum.
+Stk. 2. Við skráseting fæst einkarættur at brúka navnið hjá felagnum, felagsskapinum ella samtakinum og at brúka serstøk eyðkenni, sum eru við í skrásetingini. Eisini fæst einkarættur til onnur skrásett heiti, sum felag, felagsskapur ella samtak verða rikin undir, ella heiti, sum deildir teirra eru kend undir.
