@@ -1,0 +1,4 @@
+## Avriksflutningur við útskifting
+§ 6. Leiðari útbúgvingarstovnsins kann eftir umsókn veita næmingi avriksflutning, sum sleppir næmingi undan undirvísing og próvtøku í lærugrein, um næmingur áður hevur lokið eina lærugrein á minst gymnasialum stigi, sum ikki er fevnd av § 3, ella næmingurin hevur lokið eina lærugrein við øðrum lærugreinaheiti, sum leiðari útbúgvingarstovnsins metir, kann koma ístaðin fyri nevndu lærugrein Metingin verður gjørd við tí í huga, at undirvísingargongdin, sum skal veita avriksflutningin, eins væl stuðlar undir at náa málum og eyðkennum við útbúgvingini.
+Stk. 2. Avriksflutningur, veittur eftir stk. 1, kann vera fyri felagslærugreinar og breytalærugreinar
+Stk. 3. Fær næmingur avriksflutning við útskifting fyri lærugrein á B- ella C-stigi, sbrt. stk. 1, kann leiðari útbúgvingarstovnsins avmarka møguleikarnar at velja lærugrein á hægri stigi.

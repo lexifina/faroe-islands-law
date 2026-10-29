@@ -1,0 +1,2 @@
+§ 15. Søkir næmingur um avriksflutning fyri undirvísing og próvtøku í lærugrein, og tað eru gingin meir enn 5 ár, síðani lærugreinin varð lokin antin við próvtøku ella endaligum ársmeti, kann hann ikki krevja avriksflutning sbrt. § 3. Leiðari útbúgvingarstovnsins kann tó veita avriksflutning eftir ítøkiligari meting.
+Stk. 2. 1. pkt. í stk. 1 er ikki galdandi fyri persónar, sum biðja um at fáa útskivað samlað endaligt prógv grundað á skjalaváttanir fyri einstakar lærugreinar.

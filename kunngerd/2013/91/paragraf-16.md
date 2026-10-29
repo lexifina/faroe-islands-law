@@ -1,0 +1,1 @@
+§ 16. Avgerð um avriksflutning hjá leiðara útbúgvingarstovnsins skal fráboðast næminginum skrivliga. Um avgerðin ikki í fult mát gongur umsóknini á møti, skal avgerðin verða grundgivin og vegleiða um møguleikan at kæra sbrt. § 21.

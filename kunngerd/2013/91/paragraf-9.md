@@ -1,0 +1,1 @@
+§ 9. Leiðari útbúgvingarstovnsins kann eftir umsókn veita næmingi, sum hevur lokið undirvísing sambært reglunum í løgtingslóg um gymnasialar miðnámsútbúgvingar, og sum er løgd uttanlands, avriksflutning sbrt. § 6.

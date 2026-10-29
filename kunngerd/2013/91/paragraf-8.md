@@ -1,0 +1,1 @@
+§ 8. Leiðari útbúgvingarstovnsis kann bert víkja frá tilsøgnini um avriksflutning, givin sambært § 7, um næmingurin eftir meting stovnsins ikki í nóg stóran mun hevur luttikið í undirvísingini, sum var treytað í tilsøgnini og í tí virtuellu undirvísingini, sum skúlin álegði næminginum.

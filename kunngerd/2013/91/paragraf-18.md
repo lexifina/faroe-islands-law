@@ -1,0 +1,1 @@
+§ 18. Verður avriksflutningur í lærugrein givin eftir § 6, kann leiðari útbúgvingarstovnsins gera av, at møgulig próvtøl frá lærugreinini, sum gevur avriksflutning, kunnu flytast í prógvið eftir reglunum í § 17, sbr. tó § 19.

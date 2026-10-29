@@ -1,0 +1,1 @@
+§ 2. Leiðari útbúgvingarstovnsins skal eftir umsókn meta um fakligu førleikar næmingsins, sum kunnu geva avriksflutning. Á tí grundarlagnum ásetir leiðari útbúgvingarstovnsins vavið av undirvísing og møguligum próvtøkum, sum næmingurin kann sleppa undan.

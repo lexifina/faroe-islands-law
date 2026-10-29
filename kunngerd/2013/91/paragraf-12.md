@@ -1,0 +1,1 @@
+§ 12. Leiðari útbúgvingarstovnsins kann skipa fyri serligari undirvísingargongd fyri næming, sum hevur fingið avriksflutning, sum ber í sær, at næmingsins samlaða útbúgvingartíð verður munandi stytt í mun til vanliga undirvísingargongd.

@@ -1,0 +1,5 @@
+## Lærugreinar og gongdir, ið geva avriksflutning
+§ 1. Næmingur, sum fær avriksflutning í eini gymnasialari miðnámsútbúgving, sleppur undan einum parti av útbúgvingartíð og næmingatíð og kann harumframt sleppa undan einari ella fleiri próvtøkum.
+Stk. 2. Ein útbúgvingarstovnur skal veita avriksflutning, tá stovnurin viðurkennir, at næmingurin undan upptøku hevur vunnið sær veruligan fakligan førleika, sum ger, at hann heilt ella lutvíst hevur nátt fakligu málini í eini ella fleiri lærugreinum í útbúgvingini, ella at næmingurin hevur nátt onnur faklig mál, sum kunnu koma í staðin fyri tey ásettu málini.
+Stk. 3. Fakligi førleikin, sum skal veita avriksflutning, kann vera fingin til vega frá áður loknari útbúgvingargongd í Føroyum ella aðrastaðni í minsta lagi á gymnasialum stigi, við sjálvlestri ella á annan hátt áðrenn upptøkuna, sbr. tó § 7.
+Stk. 4. Avriksflutningur til næming, sum tekur skúlaár umaftur, ella sum verður tikin upp av nýggjum beint eftir at vera skrivaður út, verður latin eftir reglunum í hesi kunngerð, sbr. tó § 3, stk. 2.

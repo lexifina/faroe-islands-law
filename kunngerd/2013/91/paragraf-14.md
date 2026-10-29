@@ -1,0 +1,2 @@
+§ 14. Leiðari útbúgvingarstovnsins kann krevja, at næmingurin letur inn skjalprógv fyri ta undirvísingargongd, sum er grundarlag undir umsóknini um avriksflutning, eitt nú váttan ella prógv um undirvísing ella próvtøku, sum skjalprógvar fakligu førleikar næmingsins.
+Stk. 2. Leiðari útbúgvingarstovnsins kann eftir ítøkiliga meting bjóða næmingi eina roynd, sum kann verða partur av grundarlagnum undir avgerðini um at veita avriksførleika. Vil næmingurin ikki taka av tilboðnum um roynd, verður tað eisini partur av grundarlagnum undir avgerðini.
