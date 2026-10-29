@@ -1,0 +1,4 @@
+## Starvsseting o.a.
+§ 3. Tað er ikki loyvt arbeiðsgevara at gera mismun á løntakara vegna kyn. Hesin mismunur er b annaður í sambandi t.d. starvsseting, uppsøgn, starvsmeting, lønarflokkin, starvsflyting, starvsuppflyting, farloyvi, arbeiðsumstøður og framíhjárættindi.
+Stk. 2. Ikki er loyvt arbeiðsgevara at lýsa eftir fólki til arbeiðis, har tað á nakran hátt bendir á, at annað kynið hevur fyrimun, uttan so at starvið er treytaleyst kynsbundið. Heldur ikki er loyvt útbúgvingarstovnum at søkja eftir næmingum, har annað kynið hevur fyrimun. Í heilt serligum føri kann javnstøðunevndin geva undantaksloyvi.
+Stk. 3. Verður løntakari uppsagdur ella á annan hátt fyri vanbýti, tí hann hevur gjørt rættindi galdandi sambært 1. stk., kann verða veitt honum ein samsýning, sum í mesta lagi svarar til løn í 20 vikur. Samsýningin verður at áseta eftir starvsaldri og umstøðunum annars.
