@@ -1,0 +1,1 @@
+§ 4. Upplýsingar sbrt. § 2 og § 3, skulu eftir umbøn frá Umhvørvisstovuni latast eina ferð árliga, og í seinasta lagi 1. mars í avloysandi árinum. Títtleikin at lata upplýsingarnar kann broytast eftir umbøn frá Umhvørvisstovuni. Upplýsingartilfarið skal vera talgilt og sniðið skal verða sambært galdandi vegleiðing frá Umhvørvisstovuni.
