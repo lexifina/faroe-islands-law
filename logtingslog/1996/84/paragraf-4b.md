@@ -1,0 +1,3 @@
+## Stuðul til serlig tiltøk og verkætlanir.
+§ 4 b. 1) Landsstýrismanninum í fiskivinnumálum verður heimilað av játtan á fíggjarløgtingslógini at veita stuðul til serlig tiltøk og verkætlanir, sum verða fyriskipaðar fyri størri bólkar ella fleiri brúkarar, sum liður í samskipaðum ætlanum, ið hava til endamáls at stuðla fiskavirkjum at gerast betur før fyri at lúka krøv í samband við løggilding og innaneftirlit, ið eru og verða ásett av Heilsufrøðiligu Starvsstovuni.
+Stk. 2. Um stuðul er latin ávísum verkætlanum ella tiltøkum smb. stk. 1, fáa luttakarar/brúkarar ikki stuðul smb. § 4 a til somu tiltøk.

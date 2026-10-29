@@ -1,0 +1,1 @@
+§ 4 d. 1) Landsstýrismaðurin í fiskivinnumálum kann í kunngerð áseta nærri reglur og treytir fyri veitan av stuðuli sambært hesi lóg, herundir at áseta eitt býti av játtanini millum stuðul eftir §§ 4a og 4b.
