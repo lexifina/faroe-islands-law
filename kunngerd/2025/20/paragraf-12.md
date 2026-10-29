@@ -1,0 +1,1 @@
+§ 12. Fyri eftirlit og góðkenning uttan fyri vanliga arbeiðstíð, ið er mánadag til fríggjadag frá klokkan 08:00 til 17:00, tekur Arbeiðs- og brunaeftirlitið 525 kr. um tíman. Tikið verður fyri hvønn byrjaðan hálvan tíma.

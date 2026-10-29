@@ -1,0 +1,1 @@
+§ 3. Fyri eftirlit og váttan við myndugleikasertifikati av klassa I single range vektum tekur Arbeiðs- og brunaeftirlitið eitt gjald, ið er ásett eftir kostnaðinum fyri tíðarnýtslu sambært § 11, umframt avleiddan kostnað, ið myndugleikin hevur av at gera eftirlitið.

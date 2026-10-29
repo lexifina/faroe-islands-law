@@ -1,0 +1,1 @@
+§ 11. Fyri at bíða, um útgerðin hjá kundanum ikki er klár, um bíðast skal eftir, at útgerðin verður umvæld, ella um onnur líknandi viðurskifti gera, at eftirlitsfólkið hjá Arbeiðs- og brunaeftirlitinum bíðar, tekur Arbeiðs- og brunaeftirlitið 350 kr. um tíman. Tikið verður fyri hvønn byrjaðan hálvan tíma.

@@ -1,0 +1,1 @@
+§ 4. Fyri eftirlit og váttan við myndugleikasertifikati av brúgvavektum og øðrum ikki-automatiskum single range vektum við max kapasiteti > 6.000 kg tekur Arbeiðs- og brunaeftirlitið 18.000 kr., umframt útreiðslur fyri leigu av útgerð o.ø.

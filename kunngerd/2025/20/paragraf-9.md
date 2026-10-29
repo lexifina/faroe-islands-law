@@ -1,0 +1,1 @@
+§ 9. Fyri eftirlit og góðkenning við myndugleikasertifikati av fleirdimensiónellum mátarum, volumeskannarar, við atliti at OIML R129, tekur Arbeiðs- og brunaeftirlitið 12.000 kr., umframt avleiddan kostnað, ið myndugleikin hevur av at gera eftirlitið.
