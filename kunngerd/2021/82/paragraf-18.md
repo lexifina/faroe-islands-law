@@ -1,0 +1,5 @@
+## Serligar treytir viðvíkjandi hundaøði fyri innflutning úr londum og økjum í flokki B
+§ 18. Fyri hundar og kettur, sum verða innflutt úr landi ella øki í flokki B, sbr. skjal 1, skal ein neutraliserandi andevnistitrering fyri hundaøði gerast á eini ES-góðkendari kanningarstovu. Kanningin skal geva eitt úrslit upp á minst 0,5 IE/ml og skal verða gjørd av eini blóðroynd, ið ein løggildur djóralækni í sendaralandinum hevur tikið í minsta lagi 4 vikur eftir koppsetingina.
+Stk. 2. Hundar og kettur, ið verða innflutt úr landi ella øki í flokki B, kunnu ikki flytast inn fyrr enn 12 vikur eftir, at blóðroyndin eftir stk. 1 er tikin, og tá bara um úrslitið av blóðroyndini er nøktandi.
+Stk. 3. Verður endurkoppseting gjørd til tíðina, t.e. sambært tilráðing frá viðurkendum framleiðara, og er úrslitið av blóðroyndini frá undanfarnu koppseting í samsvari við kravið í stk. 1, er ikki neyðugt við nýggjari kanning sbrt. stk. 1.
+Stk. 4. Í umsókn um innflutningsloyvi skulu standa dagfestingin fyri blóðroyndini og úrslitið av kanningini. Upplýsingarnar skulu váttast av einum embætisdjóralækna í sendaralandinum.

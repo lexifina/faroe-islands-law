@@ -1,0 +1,4 @@
+## Serligar treytir fyri innflutningi av gitnaðarevnum frá londum og økjum í flokki B
+§ 35. Fyri gevaradjór av gitnaðarevni, sum verða innflutt úr londum ella økjum í flokki B, sbr. skjal 1, skal ein neutraliserandi andevnistitrering fyri hundaøði gerast á eini ES-góðkendari kanningarstovu. Kanningin skal geva eitt úrslit upp á minst 0,5 IE/ml og skal verða gjørd av eini blóðroynd, ið ein løggildur djóralækni í sendaralandinum hevur tikið í minsta lagi 4 vikur eftir koppsetingina.
+Stk. 2. Gitnaðarevni, ið verða innflutt úr landi ella øki í flokki B, kunnu ikki takast fyrr enn 12 vikur eftir, at blóðroynd eftir stk. 1 er tikin, og tá bara um úrslitið av blóðroyndini er nøktandi.
+Stk. 3. Í umsókn um innflutningsloyvi skulu standa dagfestingin fyri blóðroyndini og úrslitið av kanningini. Upplýsingarnar skulu váttast av einum embætisdjóralækna í sendaralandinum.

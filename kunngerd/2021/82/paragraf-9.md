@@ -1,0 +1,6 @@
+## Innflutningur úr londum í flokki A
+§ 9. Hundar og kettur, sum skulu innflytast til Føroya úr landi í flokki A, sbr. skjal 1, skulu hava verið í sendaralandinum ella øðrum landi í flokki A í minsta lagi 6 mánaðir fyri, at ferðin til Føroya byrjar.
+Stk. 2. Hundar og kettur, sum skulu innflytast til Føroya úr landi í flokki A, kunnu bert flytast til Føroya beinleiðis úr sendaralandinum ella um annað land í flokki A, sbr. tó stk. 3.
+Stk. 3. [^1] Hundar og kettur, sum verða innflutt úr landi í flokki A, men sum á veg til Føroya eru í ella fara gjøgnum land ella øki í flokki B, skulu lúka treytirnar fyri innflutningi úr landi ella øki í flokki B. Hetta er tó ikki galdandi, um djórini einans millumlenda og ikki fara av flogvøllinum, áðrenn tey fara víðari til Føroya.
+Stk. 4. Eru hundahvølpar og kettlingar yngri enn 6 mánaðir, kunnu teir innflytast til Føroya, um teir, eftir at teir vórðu lagdir, bara hava verið í sendarlandinum ella øðrum landi í flokki A.
+Stk. 5. Hundar og kettur, sum innan fyri seinastu 6 mánaðirnar fyri, at tey verða innflutt til Føroya, hava verið í landi, sum ikki er nevnt í skjali 1, skulu, uttan mun til sendaraland, lúka tær treytir, sum landsdjóralæknin setir eftir § 54, stk. 4.

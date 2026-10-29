@@ -1,0 +1,4 @@
+§ 53. Heilsufrøðiliga starvsstovan hevur eftirlit við, at hundar, sum eru fevndir av forboðnum í § 4, blendingsdjór, sum eru fevnd av forboðnum í § 5, og gitnaðarevni, sum ikki lúka treytirnar í hesi kunngerð, ikki verða innflutt til Føroya.
+Stk. 2. Um hundur, sum er fevndur av forboðnum í § 4, ella blendingsdjór, sum er fevnt av forboðnum í § 5, er í Føroyum ella kemur til Føroya, ger landsdjóralæknin av, um djórið skal sendast aftur til sendaralandið, um so er, at veterineri myndugleikin í sendaralandinum gevur loyvi til tess, ella um djórið skal verða avlívað.
+Stk. 3. Eftir at brot á stk. 1, sbr. §§ 4-5, er staðfest, men áðrenn atgerðir eftir stk. 2 eru settar í verk, skal djórið verða sett í móttøkustøðina, sbr. § 47.
+Stk. 4. Gitnaðarevni, sum ikki lýkur treytirnar í hesi kunngerð, verður burturbeint.

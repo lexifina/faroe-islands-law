@@ -1,0 +1,2 @@
+§ 5 a. [^1] Bannað er at innflyta útiløgudjór, t.e. í hesum føri harraleysar hundar og útiløgukøttar, ið eru tiknir av gøtuni ella komnir úr t.d. djórainternati ella djórapensiónati.
+Stk. 2. Heilsufrøðiliga starvsstovan kann veita undantak frá stk. 1, treytað av, at eigarin kann vátta at hava átt djórið í minsta lagi 6 mánaðir fyri, at djórið verður innflutt, og treytað av, at djórið annars lýkur allar treytir, settar fyri innflutningi úr viðkomandi landi.

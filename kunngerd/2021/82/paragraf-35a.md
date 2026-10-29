@@ -1,0 +1,1 @@
+§ 35 a. [^1] Heilsuváttan um kliniska kanning, sbr. §§ 36 og 43, skal vera Heilsufrøðiligu starvsstovuni í hendi 2 yrkadagar, leygardagur ikki íroknaður, fyri, at ferðin til Føroya byrjar. Heilsufrøðiliga starvsstovan kann í serligum føri geva undantak frá hesi freist, um viðkomandi treytir eru loknar.

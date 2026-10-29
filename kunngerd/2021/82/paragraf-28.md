@@ -1,0 +1,5 @@
+## Serligar treytir viðvíkjandi hundaøði fyri at ferðast í londum og økjum í flokki B
+§ 28. Fyri hundar og kettur, sum skulu ferðast í landi ella øki í flokki B, sbr. skjal 1, skal ein neutraliserandi andevnistitrering fyri hundaøði gerast á eini ES-góðkendari kanningarstovu. Kanningin skal geva eitt úrslit upp á minst 0,5 IE/ml og skal verða gjørd av eini blóðroynd, ið ein løggildur djóralækni í Føroyum hevur tikið í minsta lagi 4 vikur eftir koppsetingina.
+Stk. 2. [^1] Hundar og kettur, ið skulu ferðast í landi ella øki í flokki B, kunnu fara úr Føroyum eftir at úrslitið av blóðroyndini, nevnt í stk. 1, hevur víst nøktandi úrslit.
+Stk. 3. Verður endurkoppseting gjørd til tíðina, t.e. sambært tilráðing frá viðurkendum framleiðara, og er úrslitið av blóðroyndini frá undanfarnu koppseting í samsvari við kravið í stk. 1, er ikki neyðugt við nýggjari kanning sbrt. stk. 1.
+Stk. 4. Í umsókn um ferðaloyvi skulu standa dagfestingin fyri blóðroyndini og úrslitið av kanningini. Upplýsingarnar skulu váttast av løggildum djóralækna í Føroyum.

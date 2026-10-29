@@ -1,0 +1,1 @@
+§ 18 a. [^1] Heilsuváttan um sníkaviðgerð og kliniska kanning, sbr. §§ 19, 20 og 39, skulu vera Heilsufrøðiligu starvsstovuni í hendi 2 yrkadagar, leygardagur ikki íroknaður, fyri, at ferðin til Føroya byrjar.

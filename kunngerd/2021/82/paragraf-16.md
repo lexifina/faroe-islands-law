@@ -1,0 +1,5 @@
+## Koppseting
+§ 16. Koppsetingar, nevndar í §§ 14 og 15, skulu vera gjørdar sambært tilráðing frá viðurkendum framleiðara. Koppsetingarnar skulu vera í minsta lagi 4 vikur gamlar og ikki eldri, enn framleiðarin mælir til, tá ið djórið kemur til Føroya.
+Stk. 2. Verða endurkoppsetingar fyri sjúkur, nevndar í §§ 14 og 15, gjørdar sambært tilráðing frá viðurkendum framleiðara, kann djórið innflytast beint eftir endurkoppsetingina.
+Stk. 3. Hundahvølpar og kettlingar skulu í minsta lagi vera 12 vikur gamlir, tá ið teir verða koppsettir sbrt. §§ 14 og 15. Hundahvølpar og kettlingar kunnu ikki innflytast til Føroya fyrr enn í fyrsta lagi 4 vikur eftir seinastu kravdu koppseting.
+Stk. 4. Í umsókn um innflutningsloyvi skulu standa heiti og framleiðslunummar á koppingarevni, koppsetingardagur og gildi á øllum kravdum koppsetingum. Er talan um endurkoppseting, skal koppsetingardagur og gildi fyri seinastu koppseting eisini standa í umsóknini. Upplýsingarnar í umsóknini skulu váttast av løggildum djóralækna í sendaralandinum.

@@ -1,0 +1,1 @@
+[^1]: Broytt við kunngerð nr. 97 frá 18. august 2023, har § 2 ljóðar soleiðis: “Stk. 1. Henda kunngerð kemur í gildi dagin eftir, at hon er kunngjørd, sbr. tó stk. 2. Stk. 2. Tó kemur § 4 a, stk. 2, sum ásett í § 1, nr. 3, í gildi 1. januar 2024.”

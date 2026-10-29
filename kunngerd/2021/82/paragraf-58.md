@@ -1,0 +1,4 @@
+## Revsing
+§ 58. [^1] Um ikki hægri revsing er uppiborin eftir aðrari lóggávu, verður við sekt revsaður tann, sum brýtur ásetingarnar í §§ 2 og 3, § 4, stk. 1-4, § 4 a, § 5, § 5 a, § 6, § 7, stk. 1, § 8, stk. 1-3, §§ 9-11, § 12, stk. 1 og 2, § 21, stk. 1-3, §§ 22-24, § 25, stk. 1, § 27, § 28, stk. 1 og 2, § 30, stk. 1, § 31, stk. 1-3, § 32, stk. 1-3, §§ 34, 37, 38, 40, 42 og 44, § 45, stk. 1-3, og §§ 46 og 47.
+Stk. 2. Feløg og aðrir løgfrøðiligir persónar koma undir revsiábyrgd eftir reglunum í 5. kapitli í revsilógini.
+Stk. 3. Verður brot á ásetingarnar í § 26, § 33, stk. 1, § 37, § 45, stk. 1-3, og §§ 46 og 47 ikki mett at hava við sær harðari revsing enn sekt, kann Heilsufrøðiliga starvsstovan boða frá, at málið kann verða gjørt av uttan rættarsókn, um tann, sum hevur framt brotið, játtar seg sekan í brotinum og váttar innan eina nærri ásetta freist, ið eftir umsókn kann verða longd, at rinda eina í fráboðanini ásetta sekt.

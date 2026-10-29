@@ -1,0 +1,2 @@
+§ 49. Tollmyndugleikin skal kanna, at galdandi innflutningsloyvi fylgir við innfluttum gitnaðarevnum. Tollmyndugleikin skal á innflutningsloyvinum vátta, at eftirlitið er framt. Eitt avrit av skjølunum skal sendast Heilsufrøðiligu starvsstovuni.
+Stk. 2. Er ivi um gildið á innflutningsloyvinum ella heilsuváttanini, ella vantar innflutningsloyvi ella heilsuváttan, skal tollmyndugleikin afturhalda sendingini og boða Heilsufrøðiligu starvsstovuni frá.
