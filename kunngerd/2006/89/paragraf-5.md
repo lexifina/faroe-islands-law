@@ -1,0 +1,2 @@
+§ 5. Sjálvuppgávan er roknað fyri at vera innlatin rættstundis, tá ið hon í seinasta lagi síðsta innlatingardag er fingin Toll- og Skattstovu Føroya ella latin í postin. Eisini ber til at senda sjálvuppgávuna við telduposti, sum pdf-fílur. Sama er galdandi viðvíkjandi roknskapi og ognaruppgerð.
+Stk. 2. Fellur innlatingardagurin á ein leygardag ella sunnu- ella halgidag, verður innlatingardagurin fyrsti eftirfylgjandi gerandisdagur.

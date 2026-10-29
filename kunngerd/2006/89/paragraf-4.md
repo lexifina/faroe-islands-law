@@ -1,0 +1,2 @@
+§ 4. Økisskrivstovunum er tó heimilað, tá ið heilt serligar grundir eru til tess, s.s., deyði og sjúka, at leingja freistirnar sambært §§ 1 og 2, ein mánað í senn, tó ikki út um 15. august í álíkningarárinum.
+Stk. 2. Treytin fyri, at freistin kann verða longd, er, at skrivlig umsókn verður send økisskrivstovunum í seinasta lagi 7 dagar, áðrenn freistin er úti, og at sjálvuppgávur, roknskapir og ognaruppgerðir fyri eldri ár eru innkomin til Toll- og Skattstovu Føroya.
