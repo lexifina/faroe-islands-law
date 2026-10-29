@@ -1,0 +1,1 @@
+§ 5. Kommunali musikkskúlaleiðarin hevur tað dagliga samskiftið við musikkskúlalærararnar. Kommunali musikkskúlaleiðarin leiðir og fordeilir arbeiðið innanfyri tað lærarabýti, tímabýti og lærugreinabýti, ið musikkskúlastjórin hevur játtað kommunala musikkskúlanum.
