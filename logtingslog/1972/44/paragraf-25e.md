@@ -1,0 +1,2 @@
+§ 25 e. Mál viðvíkjandi klagum um valið, áheitanir um at sleppa undan at taka við vali og mál um innkalling av tiltaksmanni, sbr. kap. XI, verða viðgjørd av kommunustýrinum í tí kommununi, har valið, ið klagað verður um, hevur verið, ella í tí kommununi, har persónurin býr, sum ynskir at sleppa undan at taka við vali.
+Stk. 2. Fer eitt bygda(r)ráð/býráð ikki frá 31. desember orsakað av reglunum í § 26, stk. 1, so halda eisini gomlu bygda(r)ráðini/býráðini í hinum samanleggjandi kommununum fram á sama hátt.

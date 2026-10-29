@@ -1,0 +1,4 @@
+§ 20. [^8] Av hvørjum einstøkum lista verða teir valdu limirnir tiknir eftir persónliga atkvøðutali teirra.
+Stk. 2. Tey valevni á einum valevnislista, sum eru ikki vald, verða roknað sum tiltaksmenn fyri tey, sum eru á sama lista, eftir persónliga atkvøðutali teirra og taka sess í bygda(r)ráðnum/býráðnum í somu raðfylgju í staðin fyri teir limir, ið valdir eru, um so verður, at onkur av hesum doyr ella av aðrari orsøk fer frá sum limur av bygda(r)ráðnum/býráðnum.
+Stk. 3. Fer bygdaráðslimur/býráðslimur frá í valskeiðinum, og er ongin tiltaksmaður, skal landsstýrið skipa fyri vali av so mongum limum sum resta í, at bygdaráðið/býráðið er fullmannað uttan so, at meira enn helmingurin av upprunaliga limatalinum samtykkir, at hetta ikki er neyðugt.
+Stk. 4. Við tílíkt val galda somu reglur sum við vanligt kommunuval. Tó kann landsstýrið um neyðugt víkja frá teimum í lógini tilskilaðu tíðarfreistum.

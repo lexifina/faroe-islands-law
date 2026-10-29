@@ -1,0 +1,1 @@
+§ 25. Um valið við endaligu avgerðina verður lýst ógilt, verður umval at fara fram skjótast gjørligt. Við umval kunnu bert teir persónar á vallistanum velja, sum valrætt høvdu tann dagin, tað sum ógilt lýsta valið fór fram. Við umval er mannagongdin annars hin sama sum við fyrra valið.

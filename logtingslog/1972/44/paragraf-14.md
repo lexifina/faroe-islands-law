@@ -1,0 +1,1 @@
+§ 14. Veljarar, ið vilja taka lut í valinum valdagin, mugu møta persónliga; tó kunnu sjófólk, sjúk og aðrir persónar, ið hava ikki møguleika at greiða atkvøðu á valstaðnum sjálvan valdagin, greiða atkvøðu eftir somu reglum, sum galdandi eru fyri val til Føroya løgtings við innsending av brævatkvøðum.

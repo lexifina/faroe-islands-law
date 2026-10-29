@@ -1,0 +1,4 @@
+## VII Valhøli, atkvøðurúm og atkvøðukassar.
+§ 11. [^3] Atkvøðugreiðslan fer fram í einum ella fleiri hølum, sum bygda(r)ráðið/býráðið ávísir, har atkvøðurúm í neyðugum tali eru sett upp. Atkvøðurúmini skulu vera soleiðis háttað, at ongin hevur møguleika fyri uttanífrá at síggja, hvussu avvarðandi hevur atkvøtt. Atkvøðurúmini skulu vera útgjørd við tí, sum er neyðugt fyri at atkvøða.
+Stk. 2. Á valstøðunum – bæði í sjálvum valhølinum og í atkvøðurúmunum – skulu frá tí valið byrjar, yvirlit yvir valevnini við bókstavi og nummar teirra verða uppslignir. Somuleiðis skal verða uppsligin ein prentað vegleiðing fyri veljararnar, sum skal innihalda tær greinir í hesi lóg, sum mestan týdning hava fyri sjálvt valið.
+Stk. 3. Valnevndin útvega ein ella fleiri atkvøðukassar, ið skulu vera læstir, meðan atkvøðugreiðslan fer fram, og annars soleiðis háttaðir, at eingin atkvøðuseðil kann verða tikin uppúr, uttan kassin verður latin upp.

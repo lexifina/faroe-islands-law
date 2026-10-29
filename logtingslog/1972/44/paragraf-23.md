@@ -1,0 +1,3 @@
+## XI Valklagur, frítøka undan vali og innkallan av tiltaksmanni.
+§ 23. Hann, ið hevur nakað at kæra seg um viðvíkjandi vali, sum fram er farið, má, fyri at klaga hansara kann verða tikin til viðgerðar í seinasta lagi 8 dagar eftir, at valið er gjørt endaliga upp, skrivliga seta fram mótmæli sítt fyri bygda(r)ráðnum/býráðnum.
+Stk. 2. Tey mótmæli, ið framsett eru í samsvari við frammanfyri standandi reglur, verða gjørd av bygda(r)ráðnum/býráðnum á fundi, ið hildin skal verða í seinasta lagi 10 dagar eftir, at frestin er farin. Áðrenn bygda(r)ráðið/býráðið tekur avgerð sína, verður ummæli valnevndarinnar um málið at fáa.

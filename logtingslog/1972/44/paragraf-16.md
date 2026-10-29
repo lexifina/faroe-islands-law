@@ -1,0 +1,6 @@
+§ 16. Um atkvøðuseðil aftan á at vera útflýggjaður veljaranum, men áðrenn hann er koyrdur í atkvøðukassan, vísir seg at vera ónýtiligur, ella hann av óansni ella misgávum verður gjørdur ónýtiligur, kann veljarin móti at lata inn aftur hin upprunaliga seðilin fáa nýggjan seðil og greiða atkvøðu av nýggjum. Tann ónýtiligi seðilin verður gjørdur ógildur.
+Stk. 2. Tá ið steðgur kemur í atkvøðugreiðsluna aftan á ta klokkutíð, sum ásett er at enda valið, sbr. § 3, skal valið verða lýst liðugt, tó soleiðis at limir valnevndarinnar og hjálparfólk hennara tá beinan vegin hava rætt til at atkvøða og lata inn egnu atkvøðuseðlar sínar.
+Stk. 3. Eingin veljari, sum atkvøtt hevur, skal hava skyldu fyri rættinum í nøkrum føri at geva upp, hvørjum hann hevur atkvøtt fyri, ella um hann hevur atkvøtt fyri ella ímóti einum valevni.
+Stk. 4. Eingin limur í valnevndini ella nakar annar, ið hjástaddur er í valhølinum, har atkvøðuseðlar verða útflýggjaðir, hevur loyvi at geva veljarum ráð, ávísing ella tilelving um, hvønn teir skulu velja. Heldur ikki má nakar, sum á valstaðnum fær kunnleika um, hvønn ein veljari hevur valt, geva hesa vitan sína víðari.
+Stk. 5. Tað er forboðið floksskivstovum ella øðrum miðvíst at kanna eftir, um veljarar møta fram til atkvøðugreiðslu.
+Stk. 6. [^5] Brot upp á tær í stk. 4 og 5 nevndu fyriskipanir verða revsað við sekt ella fongsli.
