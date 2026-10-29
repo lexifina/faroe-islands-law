@@ -1,0 +1,2 @@
+§ 16. Avskrivað verður ikki fyri bygningar og innleggingar, sum heilt ella lutvíst eru undir tonsaskattaskipanini. Reglurnar í avskrivingarlógini viðvíkjandi avhendan eru galdandi samsvarandi, tá bygningar og innleggingar, sum heilt ella lutvíst eru undir tonsaskattaskipanini, verða avhendað.
+Stk. 2. Fara bygningar og innleggingar frá heilari ella lutvísari nýtslu undir tonsaskattaskipanini til aðra nýtslu, verða ognirnar mettar sum fult avskrivaðar eftir reglunum í avskrivingarlógini í tí tíðini, tær hava verið undir tonsaskattaskipanini.

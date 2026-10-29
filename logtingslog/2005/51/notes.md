@@ -1,0 +1,3 @@
+[^1]: Broytt við løgtingslóg nr. 83 frá 7. juni 2020, har §§ 2 og 3 ljóða soleiðis: “§ 2 Stk. 1. Henda løgtingslóg kemur í gildi dagin eftir, at hon er kunngjørd. Stk. 2. Løgtingslógin hevur virknað frá og við roknskaparárinum 2019. § 3 Reiðarí, sum framløgudagin nýta tonsaskattaskipanina, skulu ikki lúka kravið um skráseting í Føroysku Altjóða Skipaskránni, FAS, ella Føroya Skipaskráseting, fyrr enn 1. januar 2026.”
+[^2]: Broytt við løgtingslóg nr. 33 frá 26. mars 2021, har § 2 ljóðar soleiðis: “Henda løgtingslóg kemur í gildi dagin eftir, at hon er kunngjørd og hevur virknað frá og við roknskaparárinum 2019.”
+[^3]: Broytt við løgtingslóg nr. 122 frá 9. desember 2016.
