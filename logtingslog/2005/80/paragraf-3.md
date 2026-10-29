@@ -1,0 +1,1 @@
+§ 3. Tá ið sendimenn Føroya landsstýris verða settir á uttanríkissendistovum Danmarkar kongsríkis at røkja áhugamál Føroya, ið til fulnar viðvíkja yvirtiknum málsøkjum, er § 8, stk. 2 í lóg um Føroya heimastýri samsvarandi virkin.

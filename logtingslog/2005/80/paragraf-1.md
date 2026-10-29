@@ -1,0 +1,5 @@
+§ 1. Føroya landsstýri kann samráðast við fremmand ríki og millumtjóðafelagsskapir og gera altjóðarættarligar sáttmálar við tey, heruppií fyrisitingarligar sáttmálar, ið til fulnar viðvíkja yvirtiknum málsøkjum.
+Stk. 2. Stk. 1 er ikki virkið, tá ið samráðst verður, og altjóðarættarligir sáttmálar verða gjørdir, ið viðvíkja bæði Føroyum og Grønlandi. Føroya landsstýri og Grønlands landsstýri kunnu tó samtykkja at virka í felag viðvíkjandi altjóðarættarligum sáttmálum samsvarandi ásetingunum í hesi lóg.
+Stk. 3. Altjóðarættarligir sáttmálar, ið eru gjørdir sambært stk. 1 og 2, 2. pkt., kunnu verða sagdir úr gildi sambært somu ásetingum.
+Stk. 4. Ásetingarnar í stk. 1-3 fevna ikki um altjóðarættarligar sáttmálar, ið víkja at verju- og trygdarpolitikki, ei heldur um altjóðarættarligar sáttmálar, sum skulu galda fyri Danmark, ella sum samráðst verður um í millumtjóðafelagsskapi, har sum Danmarkar kongsríki er limur.
+Stk. 5. Ásetingarnar í stk. 1-3 avmarka ikki stjórnarskipanarliga ábyrgd og heimildir hjá donskum myndugleikum viðvíkjandi tí at samráðast, gera og siga úr gildi altjóðarættarligar sáttmálar, heruppií sáttmálar, ið stk. 1-3 fevna um.

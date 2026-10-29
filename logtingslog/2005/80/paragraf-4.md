@@ -1,0 +1,1 @@
+§ 4. Eftir áheitan frá Føroya landsstýri kann Danmarkar stjórn samtykkja at lata inn umsókn um limaskap Føroya, ella stuðla slíkari, í millumtjóðafelagsskapum, ið loyva øðrum eindum enn ríkjum og felagsskapum av ríkjum limaskap í egnum navni, tá ið tað er sambæriligt við stjórnarskipanarligu støðu Føroya.
