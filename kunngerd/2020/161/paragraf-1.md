@@ -1,0 +1,2 @@
+§ 1. [^1] Heilsutrygd kann rinda ískoyti til veiting frá privatstarvandi fysioterapeuti, eftir ávísing frá lækna, sum starvast í føroyska sjúkrahúsverkinum ella lækna, sum starvast á Heilsumiðstøð.
+Stk. 2. Er talan um persón yngri enn 18 ár, sum hevur likamligt brek ella varandi sjúku, ið hevur við sær munandi avleiðingar í gerandisdegnum, kann serlækni í pædiatri ávísa til fleiri viðgerðir, sambært sáttmálanum millum Fysioterapeutfelag Føroya og Fíggjarmálaráðið. Tílík ávísing kann útskrivast fyri 2 ár í senn.
