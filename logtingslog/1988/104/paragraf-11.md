@@ -1,0 +1,2 @@
+§ 11. Til tess at fremja millumlanda avtalur kann landsstýrið áseta reglur um at seta í starv á apoteki persónar við útbúgvingum, sum miða ímóti yrki á apoteki og sum hava uppruna frá útbúgvingarstovnum uttan fyri ríkið.
+2. stk. Hevur persónur útbúgving, ið kann javnmetast við eina útbúgving, sum finst í ríkinum og sum heimilar yrki á apoteki, kann landsstýrið annars loyva starvsseting á apoteki. Í loyvinum verða at tilskila tær heimildir, sum persónurin hevur. Loyvið kann verða tíðaravmarkað.

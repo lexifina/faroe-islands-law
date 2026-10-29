@@ -1,0 +1,1 @@
+§ 12. Tekur ósemja seg upp millum apoteksverkið og starvsfólkið, kann landsstýrið fyribils taka undan reglur, ásettar samb. § 9, ella við heimild í kapitli III, tá ið atlitið at tí at tryggja fólki veiting av heilivági krevur tað.

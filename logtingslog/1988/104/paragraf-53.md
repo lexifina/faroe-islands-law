@@ -1,0 +1,1 @@
+§ 53. Kunngerðir við heimild í lógarinnar § 9, § 13, § 17, § 18, § 20, § 26, § 27, § 28, § 30, § 31, 2. stk., § 32, 2. stk., § 41, 4. stk., 1. pkt. og § 47, 2. stk., 3. pkt. kunnu áseta, at kunngerðir fyriskipaðar ávísandi til donsku apotekara- og heiliváglógirnar verða settar í gildi í Føroyum við broytingum ella uttan.
