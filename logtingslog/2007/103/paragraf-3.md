@@ -1,0 +1,1 @@
+§ 3. Um partafelag ella líknandi juridisk eind rekur ella skal reka verklag, útgerð ella annað, sum ognartikið verður til, verður landsstýrismanninum heimilað at avhenda tað ognartikna til felagið fyri útveganarvirðið.
