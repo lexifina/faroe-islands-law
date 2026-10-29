@@ -1,0 +1,1 @@
+§ 5. Verkætlanaruppgávan skal verða liðug í seinasta lagi 25. apríl. Næmingarnir fáa 5 fylgjandi skúladagar til at gera uppgávuna lidna og til tess at fyrireika uppgávuframløguna. Framløgan er antin einstaklingsframløga ella bólkaframløga.
