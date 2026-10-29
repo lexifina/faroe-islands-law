@@ -1,0 +1,1 @@
+§ 1. Ásetingarnar í sáttmála millum Føroyar og Grønland at sleppa undan tvískatting av inntøku og ogn frá 30. august 2000 við tilknýttum ískoytisprotokollum og broytingarprotokollum, sum ásettar í skjali 1, fáa við hesum løgtingslógargildi.
