@@ -1,0 +1,2 @@
+§ 3. Loyvi kann bert verða givið einstaklingum. Ein persónur kann bert fáa eitt loyvi umfatandi ein hýruvogn. Einstaklingur kann tó fáa fleiri loyvi, um so er, at tørvur er á fleiri hýruvognum, uttan at aðrir umsøkjarar eru.
+Stk. 2. Loyvið er persónligt og kann hvørki heilt ella lutvíst verða handað øðrum við sølu, láni, leigu, pantseting, fíggjartøku, arvi ella á annan hátt. Við deyða loyvishavarans kann tó verða loyvt, at hjúnafelagi hansara brúkar loyvið í eina nærri ásetta tíð. Loyvt er at hava avloysara at koyra vognin.

@@ -1,0 +1,1 @@
+§ 8. Í hýruvogninum skal eisini á sjónligum staði vera skelti, sum sigur frá navni og bústaði loyvishavarns, skrásetingarnummari akfarsins, at akfarið er góðkent til vinnuligan fólkaflutning, tal á ferðandi og møguligt navn á hýruvognsstøð. Kortið fæst frá býráðnum.
