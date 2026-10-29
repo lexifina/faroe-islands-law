@@ -1,0 +1,1 @@
+§ 10. Hevur ein løntakari ella skipa/bátaeigari givið grunninum skeivar upplýsingar ella tagt umstøður, sum hava týdning fyri útgjalding úr grunninum, kunnu upphæddir, sum av órøttum eru móttiknar, verða kravdar afturgoldnar av løntakaranum ella skipa/bátaeigaranum.

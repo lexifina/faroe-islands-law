@@ -1,0 +1,1 @@
+§ 3. [^1] [^3] Fyri tey krøv, sum nevnd eru í konkurslógini § 94, nr. 2 og § 95, stk. 1, nr. 1 og 5 (í nr. 5 tó bert tey krøv, sum í konkursi vildu komið undir § 95, stk. 1, nr. 1), kann grunnurin í tí einstaka førinum rinda í mesta lagi kr. 60.000,- til hvønn løntakara. Landsstýrismaðurin kann í kunngerð hækka hesa upphædd.
