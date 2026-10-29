@@ -1,0 +1,1 @@
+§ 1. Landsstýrismaðurin í uttanríkismálum kann í kunngerð áseta verjutiltøk móti likamligum ella løgfrøðiligum persónum ella bólkum, ið eru knýttir at yvirgangsvirksemi, sambært samtykt 1267 (1999), við seinni og komandi broytingum, og samtykt 1373 (2001), ið trygdarráð Sameindu Tjóða hevur viðtikið við støði í kapitli VII í tess stovningarsáttmála.
