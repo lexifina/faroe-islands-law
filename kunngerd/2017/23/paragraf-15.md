@@ -1,0 +1,1 @@
+§ 15. Verður staðfest, at eitt skip hevur brotið ásetingar í hesi kunngerð, skal skiparin, eigarin, stjórin ella brúkarin hava fráboðan um hetta. Skipið kann tó ikki verða hildið aftur ella seinkað longri enn neyðugt fyri at tryggja, at skipið lýkur krøvini í kunngerðini.

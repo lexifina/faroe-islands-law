@@ -1,0 +1,6 @@
+## Undantøk
+§ 10. Umhvørvisstovan kann, við støði í einari umsókn, veita skipi, sum siglir í fastari rutu við í minsta lagi einari atløgu í føroyskari havn, undantaksloyvi frá krøvunum um útskifting og viðgerð av barlastarvatni sambært §§ 6 og 7. Fevnir umsóknin um undantaksloyvi eisini um útlát av barlastarvatni á havøkinum hjá einum øðrum sáttmálalandi, skal undantak somuleiðis veitast av hesum landi. Undantaksloyvi verður einans veitt, um vandin fyri at bera skaðiligar verur við barlastarvatninum, verður hildin at vera lítil.
+Stk. 2. Undantaksloyvi verður veitt við støði í eini váðameting, sum umsøkjarin skal gera sambært viðkomandi leiðreglum til sáttmálan um barlastarvatn.
+Stk. 3. Undantaksloyvi kann í mesta lagi verða latið fyri 5 ár í senn.
+Stk. 4. Skip, sum hava fingið undantaksloyvi, kunnu einans blanda barlastarvatn úr havnum ella økjum, sum eru fevnd av undantaksloyvinum. Verður barlastarvatn úr øðrum havnum ella økjum blandað uppí, skal barlastarvatnið skiftast ella viðgerast sambært §§ 6 ella 7, áðrenn skipið aftur er fevnt av undantaksloyvinum.
+Stk. 5. Umsókn um undantaksloyvi skal sendast til Umhvørvisstovuna. Verður undantaksloyvi latið, boðar Umhvørvisstovan IMO frá hesum.

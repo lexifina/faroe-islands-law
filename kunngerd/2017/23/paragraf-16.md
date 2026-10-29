@@ -1,0 +1,3 @@
+## Gjøld
+§ 16. Fyri viðgerð av umsóknum um týpugóðkenning sambært § 11 og fyri eftirlit, sýnistøku og kanningar sambært §§ 12 og 13, verður gjaldið til Umhvørvisstovuna ásett sambært kunngerðini um gjøld hjá Umhvørvisstovuni fyri umsiting og eftirlit sambært lóggávuni á umhvørvisøkinum.
+Stk. 2. Fyri viðgerð av umsóknum um týpugóðkenning av skipanum, sum brúka virkin evni sambært § 11, verður harumframt kravt gjald á 50.000 USD. Upphæddin skal gjaldast Umhvørvisstovuni, sum avgreiðir gjaldið mótvegis IMO. Umsøkjari skal endurrinda klassafeløgum tær útreiðslur, feløgini hava sambært § 11, stk. 3.

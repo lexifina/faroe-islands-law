@@ -1,0 +1,5 @@
+## Týpugóðkenning av útgerð til barlastarvatn
+§ 11. Umsókn um týpugóðkenning av nýggjari útgerð og skipanum til viðgerð av barlastarvatni skal latast Umhvørvisstovuni.
+Stk. 2. Umsøkjarin skal fyri egna rokning skjalprógva, at skipanin lýkur viðgerðarkrøvini í § 7.
+Stk. 3. Umsøkjarin skal, í samstarvi við eitt av Sjóvinnustýrinum góðkent klassafelag, leggja fram skjøl og skjalprógv fyri, at skipanin lýkur viðgerðarkrøvini í leiðreglunum til sáttmálan um barlastarvatn.
+Stk. 4. Metir Umhvørvisstovan, at útgerðin at viðgera barlastarvatn brúkar virkin evni, skal henda nýtsla góðkennast av IMO sambært viðkomandi leiðreglum til sáttmálan um barlastarvatn. Skipanir, ið nýta virkin evni, kunnu bert góðkennast, um IMO frammanundan hevur góðkent nýtslu av hesum evnum. Umhvørvisstovan kunnar umsøkjaran um metingina og um kostnaðin av undangóðkenning, endaligari góðkenning, umsóknargjald til IMO og endurrindan av útreiðslum til klassafeløg og myndugleikar í sambandi við umsóknartilgongdina sambært § 16.
