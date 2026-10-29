@@ -1,0 +1,1 @@
+§ 2. P/F Visit Faroe Islands framleiðir á hvørjum ári eina ætlan fyri ferðavinnumenning í Føroyum, ið skal góðkennast av landsstýrismanninum. Í menningarætlanini skal nágreinast, hvussu menningararbeiðið verður skipað og hvørjar ætlanirnar eru við fíggjarliga stuðlinum. Menningarætlanin verður latin landsstýrismanninum í desember mánaði fyri komandi árið.

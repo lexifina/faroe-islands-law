@@ -1,0 +1,1 @@
+§ 4. Stuðul kann bert verða veittur verkætlanum ella pørtum av verkætlanum, sum ikki eru settar í gongd, tá søkt verður um stuðulin. P/F Visit Faroe Islands kann í serstøkum førum gera undantak frá kravinum í 1. pkt.
