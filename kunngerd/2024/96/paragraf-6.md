@@ -1,0 +1,1 @@
+§ 6. Grunsmyndugleikin kann taka avgerð um uppafturtøku av búnum eftir einum strikaðum grunni, um tað vísir seg, at grunnurin hevur fleiri ognir at býta út, ella tað í aðrar mátar eru viðurskifti, ið geva orsøk til uppafturtøku av búnum. Uppafturtøka av búnum, og nær uppafturtøkan er endað, skal fráboðast innan 14 dagar.

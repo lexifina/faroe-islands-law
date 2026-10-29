@@ -1,0 +1,3 @@
+§ 4. Í sambandi við, at Skráseting Føroya skrásetir avgerð nevndarinnar um at fara í likvidatión sambært § 1, stk. 1, verða kravánarar grunsins bidnir um at fráboða krøv síni til likvidator.
+Stk. 2. Likvidator kann í fyrsta lagi taka búgvið upp til at enda 3 mánaðir eftir almannakunngering sambært stk. 1.
+Stk. 3. Kann eitt fíggjarkrav ikki verða viðurkent sum fráboðað, skal kravánari verða kunnaður um hetta við innskrivaðum brævi ella við øðrum fráboðanarformi, har móttøkan kann verða prógvað við somu trygd. Kravánari skal hava fráboðan um, at málið kann leggjast fyri skiftirættin í seinasta lagi 3 mánaðir eftir, at brævið o.a. er sent, um kravánari ynskir at mótmæla avgerðini.

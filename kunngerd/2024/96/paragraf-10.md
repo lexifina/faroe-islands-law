@@ -1,0 +1,4 @@
+## Kapittul 3
+## Tvingsilsavtøka
+§ 10. Nevndin skal syrgja fyri, at nevndarfundur verður hildin í seinasta lagi 3 mánaðir eftir, at grunnurin hevur mist helvtina av stovnsfænum. Á nevndarfundinum skal nevndin greiða frá fíggjarligu støðu grunsins og leggja fram uppskot, sum tryggjar fulnað fyri stonvsfænum, ella leggja fram uppskot um at avtaka grunnin. Er stovnsfæið eftir niðurskriving lægri enn tann upphædd, sum er ásett í § 9, stk. 1 í kongelig anordning om ikrafttræden for Færøerne af lov om erhvervsdrivende fonde, skal nevndin leggja fram uppskot um at avtaka grunnin.
+Stk. 2. Innkallar nevndin ikki til nevndarfund, ella tekur nevndin ikki avgerð um at fáa viðurskiftini viðvíkjandi stovnsfænum í rættlag sambært stk. 1, og verður hetta ikki gjørt innan eina freist, sum Skráseting Føroya ásetir, skal grunsmyndugleikin taka stig til at avtaka grunnin, um neyðugt sambært ásetingunum í § 12.

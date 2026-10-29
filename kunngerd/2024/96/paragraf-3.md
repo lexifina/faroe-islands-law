@@ -1,0 +1,1 @@
+§ 3. Likvidatorarnir skulu gera eina frágreiðing um høvuðsorsakirnar til likvidatiónina, heruppií tilskila, um orsøk er til at seta í verk eina kanning við atliti at revsirættarsøkjan. Frágreiðingin skal skjótast til ber sendast grunsmyndugleikanum og Skráseting Føroya.

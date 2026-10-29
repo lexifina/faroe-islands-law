@@ -1,0 +1,2 @@
+§ 20. Fyri hvønn grunn, sum luttekur í samanleggingini, gera eitt ella fleiri serkøn metingarfólk, ið eru óheft, eina skrivliga váttan um, hvørt kravánararnir í einstaka grunninum eru tryggjaðir nóg væl eftir samanleggingina í mun til verandi støðu.
+Stk. 2. Metingarfólkið verður tilnevnt samsvarandi vinnufelagalógini, og vinnufelagalógin er, við neyðugum tillagingum, galdandi fyri viðurskifti metingarfólksins til teir grunnar, sum luttaka í samanleggingini.

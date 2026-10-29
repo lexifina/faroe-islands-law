@@ -1,0 +1,2 @@
+§ 11. Um Skráseting Føroya hevur sett í verk eina gransking sambært § 59 í anordning om ikrafttræden for Færøerne af lov om erhvervsdrivende fonde, og viðmæla granskingarfólkini Skráseting Føroya, at grunnurin verður avtikin, skal nevndin innan ein mánað innkalla til nevndarfund, og seta fram uppskot um, at grunnurin verður avtikin.
+Stk. 2. Innkallar nevndin ikki til nevndarfund, ella tekur nevndin avgerð um ikki at avtaka grunnin sambært stk. 1, skal grunsmyndugleikin taka stig til at avtaka grunnin, um neyðugt sambært ásetingunum í § 12.
