@@ -1,0 +1,4 @@
+§ 1. Áðrenn inntøka, sum er gjaldsskyldug eftir § 18 í lógini, verður útgoldin persóni, sum er gjaldsskyldugur eftir § 17 í lógini, skal barsilsgjaldið eftir § 19 í lógini avroknast gjøgnum eitt av landsstýrismanninum góðkent stað til avrokningar av lønum. Avrokningarstaðið avroknar barsilsgjaldið til Toll- og Skattstovu Føroya.
+Stk. 2. Tá A-inntøka verður rindað av gjaldsskyldugum eftir § 17, stk. 2, nr. 2 í lógini, skulu hesi avrokna sín part av barsilsgjaldinum til Toll- og Skattstovu Føroya:
+1) Við at geva Toll- og Skattstovu Føroya fulltrú til at taka barsilsgjaldið av peningastovnskonto hjá viðkomandi, ella
+2) við at rinda barsilsgjaldið eftir rokning frá Toll- og Skattstovu Føroya. Barsilsgjaldið eftir rokning frá Toll- og Skattstovu Føroya skal gjaldast innan 20 dagar eftir, at Toll- og Skattstova Føroya hevur sent rokningina.
