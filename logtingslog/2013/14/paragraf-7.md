@@ -1,0 +1,1 @@
+§ 7. Landsstýrismaðurin ásetir í kunngerð neyvari treytir og reglur fyri, nær og hvussu stuðul verður játtaður, nær tilsøgn um stuðul fellur burtur, og nær útgoldin stuðul kann verða kravdur afturgoldin. Eisini verða ásett krøv um fíggjarætlan, eftirlit, upplýsingarskyldu og atgongd til roknskapartilfar, umframt um roknskap og grannskoðan hjá stuðulsmóttakara.
