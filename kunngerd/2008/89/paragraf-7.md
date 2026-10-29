@@ -1,0 +1,5 @@
+## Innanvirkis roknskapur
+§ 7. Roknskaparskrásetingin skal leggjast soleiðis til rættis, at tað í hóskandi mun kunnu verða gjørdir roknskapir og frágreiðingar o.a. við upplýsingum um, hvussu útreiðslur, inntøkur og kostnaðnir hjá kommununi eru liðaðar út á endamál, stað, framleiðslu, virksemi o.tíl.
+Stk. 2. Fyri at lýsa virksemið í kommununi og millum kommunur, skulu í hóskandi mun skrásetast nøgdarupplýsingar, sum fevna um tað, ið verður avrikað, og um tilfeingisnýtslu (t.d. tíðarnýtslu hjá starvsfólkum) o.tíl.
+Stk. 3. Roknskaparskrásetingin skal skapa grundarlag fyri at lýsa, hvat tað einstaka virksemið og ymsu veitingarnar kosta ella væntandi koma at kosta, og eisini hvørji viðurskifti eru avgerandi fyri nýtsluna av tilfeingi til framleiðslu. Eisini skal innanhýsis roknskapurin kunna geva grundarlag fyri at lýsa produktivitetin, t.e. lutfallið millum framleiðslutáttir og framleiðslunøgd.
+Stk. 4. Landsstýrismaðurin ger saman við kommununum vegleiðingar um innanhýsisroknskapir herundir meginreglur fyri, hvussu skráseting og uppseting skal fara fram.

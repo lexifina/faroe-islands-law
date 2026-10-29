@@ -1,0 +1,5 @@
+## Kommunur og kommunalir stovnar
+§ 4. Fíggjarnevndin skipar roknskaparhaldið undir yvirskipaðu ásetingunum og syrgir fyri at fingnar verða til vega tær upplýsingar, sum nevndar eru í § 1.
+Stk. 2. Tað áliggur fíggjarnevndini at gera og dagføra eina roknskaparreglugerð, sum ásetur, hvussu roknskaparhaldið í kommunalu eindunum er fyriskipað. Ansað skal verða eftir, at roknskaparreglugerðin við ábyrgdar- og heimildarreglum verður hildin. Landsstýrismaðurin ger eina vegleiðing um, hvussu slíkar reglur skulu verða gjørdar. Tryggjað skal vera, at tey, sum arbeiða á roknskaparøkinum, hava nøktandi fakligan førleika at røkja uppgávuna.
+Stk. 3. Kommunustýrið skal góðkenna roknskapareglugerðina.
+Stk. 4. Tað áliggur kommununum at hava nøktandi KT-skipanir, sum stuðlað undir roknskaparverkið sbrt. § 1 og tey formkrøv, sum annars verða sett í hesi kunngerð. Tað áliggur somuleiðis kommununum at hava KT-skipanir, sum kunnu samskifta við skipanir hjá Fíggjarmálaráðnum í sambandi við upplýsingar, sum fíggjarmálaráðið skal hava sbr. § 10, stk. 1-3.

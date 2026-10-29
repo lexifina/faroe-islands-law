@@ -1,0 +1,3 @@
+## Broyting í skrásetingarmeginreglum
+§ 14. Tá ið skrásetingarmeginregla verður broytt, fer tað, treytað av, hvør broytingin er, at bera í sær tøkniliga treytaðar meirútreiðslur/meirinntøkur ella minniútreiðslur/minniinntøkur. Hesar tøkniliga treytaðu útreiðslur/inntøkur skulu ikki verða tiknar við sum útreiðslur/inntøkur í játtanarroknskapinum. Í staðin fyri skulu roknskaparpostar fyrst í tí fíggjarárinum, tá broytingin verður gjørd, verða tillagaðir soleiðis, at teir vísa ta upphædd, sum teir høvdu havt, um so var, at broytingin varð gjørd frammanundan viðkomandi fíggjarári.
+Stk. 2. Landsstýrismaðurin ger av, hvussu farið verður fram, tá ið í skrásetingarmeginreglur verða broyttar.

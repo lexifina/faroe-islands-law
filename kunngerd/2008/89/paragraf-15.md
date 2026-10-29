@@ -1,0 +1,8 @@
+## Kapittul 7
+## Gjaldingar
+§ 15. Goldið skal verða út um eina felags kt-útgjaldsskipan hjá kommununi. Tað skal verða gjørligt at skipa munadygg eftirlit í útgjaldsskipanini.
+Stk. 2. Kommuna kann hava ein ella fleiri kommunukassar at avgreiða ymisk viðurskifti við borgaran ella við annan kommunalan stovn. Útgjaldingar úr kassanum skulu verða avmarkaðar til gjaldingar, sum ikki eru hóskandi at avgreiða um KT-útgjaldsskipanina hjá kommununi, og kann ikki verða brúktur til ferðaforskot, ferðapening ella samsýningar av nøkrum slagi. Kommunukassin fevnir bæði um kontantkassa og innistandandi í peningastovnum. Tað skal ongantíð liggja meira peningur í kassanum enn neyðugt.
+Stk. 3. Eisini ber til hjá kommunalum stovnum ella virksemi at hava ein handkassa. Peningurin kann bert verða brúktur til smáar útreiðslur, sum ikki eru hóskandi at avgreiða um KT-útgjaldsskipanina hjá kommununi, og kann ikki verða brúktur til ferðaforskot, ferðapening ella samsýningar av nøkrum slagi.
+Stk. 4. Førdur skal verða kassaroknskapur (kassafrágreiðing e. t.), har dagliga skulu verða førdar allar inn- og útgjaldingar fyri hvønn einstakan post ella, um serligar sundurgreiningar eru, ein heildarupphædd fyri hvørja sundurgreining. Er talan um ein handkassa, skal hesin verða gjørdur upp eina ferð um mánaðin, ella tá ið fylt verður á hann.
+Stk. 5. Kommuna skal javnan gera upp roknskaparligar skrásetingar viðvíkjandi ogn og skuld, herímillum teirra kassa- og gjaldførispening. Er talan um virksemi sum talar fyri styrktum eftirliti á annan hátt, verða serligar reglur um hetta ásettar í roknskaparreglugerðini hjá kommununi.
+Stk. 6. Reiður peningur skal verða goymdur tryggur og má ikki koma í bland við pening, sum ikki er kommununi viðkomandi.
