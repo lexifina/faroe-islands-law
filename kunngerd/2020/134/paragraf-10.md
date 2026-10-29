@@ -1,0 +1,1 @@
+§ 10. TAKS kann frá fyritøkuni, leiðsluni og frá grannskoðaranum, sum sambært § 8, stk. 1, hevur gjørt eina váttan, krevja at fáa tær upplýsingar, sum eru neyðugar fyri at skjalprógva, at krøvini í hesi kunngerð eru hildin.

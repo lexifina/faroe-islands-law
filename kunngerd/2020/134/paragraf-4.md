@@ -1,0 +1,5 @@
+## Kjarnustarvsfólk
+§ 4. Stuðul til lønarútreiðslur til kjarnustarvsfólk kann í mesta lagi vera fyri 10 starvsfólk við fullum starvsbrøki í hvørjari fyritøku og í mesta lagi 27.000 kr. fyri hvørt starvsfólkið um mánaðin, og kann ikki vera hægri enn lønin, sum er rindað starvsfólkunum, undir hesum ALS gjald, AMEG gjald og frítíðarløn, sum arbeiðsgevarin skal rinda. Ein fullur starvsbrøkur er 40 tímar um vikuna.
+Stk. 2. Fyritøkur, sum hava tvey ella fleiri fólk í starvi við niðursettum starvsbrøki, kunnu leggja starvsbrøkirnar saman til fullan starvsbrøk.
+Stk. 3. Fyritøkan skal grundgeva fyri, at starvsfólkini eru neyðug. Er grundgevingin ikki nøktandi, kann TAKS sýta at góðkenna lønarútreiðslur til kjarnustarvsfólk.
+Stk. 4. Er ferðavinnufyritøkan partur í einum samtaki, og um fyritøkurnar reka virksemi, sum er fevnt av tveimum ella fleiri av virkseminum, nevnt í § 2, stk. 1, nr. 1-5, verður stk. 1-3 nýtt upp á samlaðu fyritøkurnar í samtakinum. 1. pkt. er tó ikki galdandi fyri fyritøkur í einum samtaki, sum reka sjóvegis ferðafólkaflutning millum Føroyar og útheimin, sbr. § 2, stk. 1, nr. 5.
