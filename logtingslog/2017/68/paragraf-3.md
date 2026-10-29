@@ -1,0 +1,1 @@
+§ 3. Landsstýrismaðurin veitir sambært § 6 í løgtingslógini um kolvetnisvirksemi loyvi til leiting eftir og framleiðslu av kolvetnum. Almennu treytirnar, sum setast skulu, eru í standardloyvinum, ið er hjálagt sum skjal 2.
