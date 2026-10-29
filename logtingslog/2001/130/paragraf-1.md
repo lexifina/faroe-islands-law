@@ -1,0 +1,2 @@
+§ 1. Samsvarandi løgtingssamtyktini frá 20. apríl 2001 um sjálvstýri Føroya fólks, § 46 í løgtingslóg nr. 103 frá 26. juli 1994 um stýrisskipan Føroya og § 2 í heimastýrislógini (B. Færø Amts Kundgørelse Nr. 11 af 31. marts 1948 af Lov om Færøernes Hjemmestyre) eru øll mál og málsøki á lista A í heimastýrislógini yvirtikin sum føroysk sermál við gildi frá 1. januar 2002.
+Stk. 2. Hóast stk. 1 fevnir henda lóg ikki um málini og málsøkini serforsorg, fólkatrygging, heilsumál, læknar, jarðamøður og sjúkrahús.
