@@ -1,0 +1,1 @@
+§ 9. Framleiðari ella innflytari, ið hevur boðað Arbeiðseftirlitinum frá sambært § 6, stk. 1 ella § 7, skal, tá Arbeiðseftirlitið biður um tað, eftirkanna ella fáa kanningar gjørdar við tí fyri eyga at fáa til vega fleiri upplýsingar.

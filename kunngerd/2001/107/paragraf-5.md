@@ -1,0 +1,1 @@
+§ 5. Pakkitilfarið skal verða merkt samsvarandi ásettum reglum um merking, eins og møguligum tillutaðum framleiðsluskrásetingarnummari (PR-nr.), sbr. § 12, og eftir reglum, sum kunnu vera ásettar sambært § 23, stk. 2, nr. 4.

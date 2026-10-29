@@ -1,0 +1,1 @@
+§ 8. Framleiðari ella innflytari, ið hevur boðað Arbeiðseftirlitinum frá sambært § 6, stk. 1 ella § 7, skal eisini boða teimum frá møguligum broytingum í givnu upplýsingunum. Samstundis skal boðast frá, um evnið ella tilfarið verður brúkt ella ætlast brúkt til onnur endamál, um nýggj toksikologisk vitan er tøk ella broytingar eru í samansetingini av tilfarinum.

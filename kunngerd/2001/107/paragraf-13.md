@@ -1,0 +1,2 @@
+## Vanligar upplýsingar- og kanningarskyldur
+§ 13. Tá Arbeiðseftirlitið biður um tað, ella tá umstøðurnar annars gera tað neyðugt, skal tann, sum framleiðir ella flytur inn eitt evni ella tilfar, fáa kanningar gjørdar, til dømis hjá serligum sakkunnleika, og lata frá sær allar upplýsingar, ið neyðugar eru til tess at kunna staðfesta, um evnið ella tilfarið kunnu hava við sær vanda fyri trygd og heilsu.

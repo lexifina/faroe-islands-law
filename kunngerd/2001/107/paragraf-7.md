@@ -1,0 +1,1 @@
+§ 7. Fráboðanarskyldan liggur eisini á framleiðarum og innflytarum av evnum og tilfari, sum ikki hava skrásett PR-nummar, og sum kunna vera vandamikil fyri trygd og heilsu ella í aðramáta ávirka hesi, í teimum førum har evni ella tilfar hava fingið nýtt handilsheiti.

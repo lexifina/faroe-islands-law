@@ -1,0 +1,1 @@
+§ 18. Arbeiðsgevarin skal syrgja fyri, at nøktandi upplýsingar eru til taks um evni og tilfar, ið kunnu vera vandamikil, ella sum í aðramáta kunnu ávirka trygd ella heilsu, í førum, har hesi verða handfarin við útflutningi fyri eyga ella í samband við flutning annars, so at tey verða handfarin á fult forsvarligan hátt hvat trygd og heilsu viðvíkur.

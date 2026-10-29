@@ -1,0 +1,2 @@
+§ 26. Stjórin fyri Arbeiðseftirlitið kann, tá serligar umstøður gera seg galdandi, loyva einstøkum undantøkum frá ásetingunum í hesi kunngerð, eins og veita undantøk fyri serligar bólkar av evnum og tilfari, tá hetta verður mett rímiligt og fult forsvarligt.
+Stk. 2. Stjórin fyri Arbeiðseftirlitið kann, tá serligar umstøður gera seg galdandi, loyva undantøkum frá § 16 í hesi kunngerð, tá hetta verður mett rímiligt og fult forsvarligt.
