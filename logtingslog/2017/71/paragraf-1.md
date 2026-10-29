@@ -1,0 +1,1 @@
+§ 1. Fiskivinnugrunnurin skal fíggja menning, nýskapan, gransking, royndir og verkætlanir í fiskivinnuni. Endamálið er at menna átøk og skipanir í føroyskari fiskivinnu við atliti at lívfrøðiligari, búskaparligari og samfelagsligari burðardyggari gagnnýtslu av havtilfeinginum.
