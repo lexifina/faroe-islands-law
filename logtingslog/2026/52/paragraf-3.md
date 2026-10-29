@@ -1,0 +1,1 @@
+§ 3. Landsverk hevur heimild at útvega bygningar og hølir at leiga út sum bráðfeingis bústaðir. Landsverk hevur harafturat heimild at útvega grundleggjandi innbúgv og at seta í stand, umbyggja og halda við líka bústaðirnar.
