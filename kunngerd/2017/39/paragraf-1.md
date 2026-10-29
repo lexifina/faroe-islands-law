@@ -1,0 +1,1 @@
+§ 1. Kunngerðin er galdandi fyri smærri vinnufør samsvarandi ásetingunum og kap. I, regel 1. Kunngerðin er somuleiðis galdandi fyri fyritøkur og persónar í Føroyum, sum umbyggja fiskifør, ið eru fevnd av hesum regluverki.
