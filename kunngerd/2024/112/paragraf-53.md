@@ -1,0 +1,1 @@
+§ 53. Familjufyrisitingin útvegar sær eina fullkomna revsiváttan um umsøkjaran, beint áðrenn barnið verður latið honum. Um barnið longu uppiheldur sær hjá umsøkjaranum, útvegar Familjufyrisitingin sær eina fullkomna revsiváttan, beint áðrenn ættleiðingarloyvið verður skrivað.

@@ -1,0 +1,1 @@
+§ 65. Um ættleiðingin er framd við einari útlendskari ættleiðingaravgerð, ið verður viðurkend í Føroyum, sbr. § 32, stk. 1 í løgtingslógini, verður onki ættleiðingarloyvi útskrivað, men Familjufyrisitingin skal vátta skrivliga, at tann útlendska ættleiðingaravgerðin verður viðurkend í Føroyum.

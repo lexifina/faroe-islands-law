@@ -1,0 +1,2 @@
+## Frágreiðing til gevaraland
+§ 36. Fyri umsøkjara við einari ítøkiligari ella generellari góðkenning, sbrt. § 18, stk. 1, ið ynskir at ættleiða eitt útlendskt barn, ger Familjufyrisitingin við støði í einstaklingalýsingini av umsøkjaranum eina frágreiðing um viðurskiftini hjá umsøkjaranum til útlendsku ættleiðingarmyndugleikunum. Familjufyrisitingin sendir frágreiðingina til Ankestyrelsen ella til útlendska ættleiðingarmiðlandi myndugleikan ella felagsskapin, sbrt. § 44.

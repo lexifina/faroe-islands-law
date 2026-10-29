@@ -1,0 +1,1 @@
+§ 3. Umsókn um góðkenning sum ættleiðari til fremmandaættleiðing kann ikki latast inn fyrr enn aftan á, at tað barnið, sum kom síðst í familjuna, hevur verið i familjuni í minst 6 mánaðir, tó undantikið, um talan er um serligar umstøður.

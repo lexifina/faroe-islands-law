@@ -1,0 +1,1 @@
+§ 33. Familjufyrisitingin kann ikkiinnheinta upplýsingar um umsøkjara, ið eru komnar fram í sambandi við luttøku á einum ættleiðingarfyrireikandi skeiði og brúka hesar í sambandi við avgerð um góðkenning sum ættleiðari. Skeiðsundirvísararnir ella onnur mugu heldur ikki geva slíkar upplýsingar víðari til Familjufyrisitingina ella Ættleiðingarsamráðið.

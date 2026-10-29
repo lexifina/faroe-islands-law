@@ -1,0 +1,2 @@
+## Umsetingar
+§ 4. Tann, ið søkir um ættleiðing ella um góðkenning sum ættleiðari, skal, tá ið viðkomandi verður biðin um tað, syrgja fyri, at váttanir, dómsavrit o.a. verður umsett til føroyskt ella danskt, tá ið talan er um skjøl, ið eru á øðrum máli enn føroyskum, donskum, grønlendskum, norskum, svenskum, finskum, íslendskum ella enskum. Umsetingin skal váttast av einum almennum myndugleika í viðkomandi landi ella av einum útbúnum týðara ella líknandi í Føroyum ella í Danmark.

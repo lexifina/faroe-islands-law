@@ -1,0 +1,1 @@
+§ 39. Ættleiðingarráðgeving sbrt. § 28, stk. 2, í løgtingslógini verður í útgangsstøðinum avmarkað til tvær ráðgevingargongdir. Onnur av hesum ráðgevingargongdum skal í útgangsstøðinum veitast innan 5 ár eftir, at ættleiðari er komin heim við barninum. Hin ráðgevingargongdin kann veitast inntil barnið er fylt 18 ár.

@@ -1,0 +1,6 @@
+## Kanningartilgongdin og góðkenningartilgongdin í Familjufyrisitingini
+§ 26. Ættleiðingarsamráðið ger eitt tilmæli til Familjufyrisitingina um, hvørt umsøkjarin kann góðkennast sum ættleiðari. Síðani tekur Familjufyrisitingin avgerð í málinum. Tilmælið verður gjørt út frá kanningum, ið Familjufyrisitingin hevur fingið til vega.
+Stk. 2. Í kanningartilgongdini og góðkenningartilgongdini verður fyrst kannað, um umsøkjarin lýkur góðkenningartreytirnar í §§ 20-22, sbrt. § 19, stk. 2. Harnæst verður kannað, um umsøkjarin annars kann metast at vera skikkaður at fostra upp eitt ættleitt barn, sbr. § 19, stk. 1.
+Stk. 3. Tað er Familjufyrisitingin, ið fær upplýsingarnar til vega, ið eru neyðugar fyri at støða kann takast til, hvørt umsøkjarin lýkur treytirnar í §§ 20-22, sbr. § 19, stk. 1, harumframt hvørt umsøkjarin annars kann metast at vera skikkaður til at fostra upp eitt ættleitt barn, sbr. § 19, stk. 1.
+Stk. 4. Serkunnleikin hjá Familjufyrisitingini verður tikin upp í málið alt eftir ítøkiligu viðurskiftini í málinum.
+Stk. 5. Familjufyrisitingin tekur avgerð um at seta í verk medisinska, sálarlæknaliga, sálarliga ella aðra serkanning. Ættleiðingarsamráðið letur Familjufyrisitingini eitt tilmæli at brúka í sambandi við teirra avgerð um, hvørt ein kanning, nevnd í 1. pkt., skal gerast. Hetta ger seg galdandi, hóast umsøkjarin játtar, at kanningin verður gjørd.

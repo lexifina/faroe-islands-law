@@ -1,0 +1,3 @@
+§ 56. Fær ein barnaverndartænasta eina áheitan um sjálvbodna leysgeving av einum barni til innanlands ættleiðing, verða foreldrini vegleidd um møguleikan fyri at fáa stuðul sbrt. almennu lóggávuni, um tey lata vera við at burturættleiða barnið. Um ynski um burturættleiðing stendur við, verður málið sent Familjufyrisitingini skjótast gjørligt og í seinasta lagi, tá ið barnið verður føtt.
+Stk. 2. Familjufyrisitingin vegleiðir foreldrini á sama hátt, ið nevnd eru í stk. 1, um barnaverndartænastan ikki longu hevur veitt vegleiðing.
+Stk. 3. Standa foreldrini við ynskið um burturættleiðing, syrgir Familjufyrisitingin fyri, at neyðugu kanningarnar av viðurskiftunum hjá barninum og foreldrunum verða framdar.

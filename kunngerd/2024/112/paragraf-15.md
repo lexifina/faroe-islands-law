@@ -1,0 +1,1 @@
+§ 15. Familjufyrisitingin biður umsøkjaran um at koma til eina samrøðu um ættleiðingina og um týdningin av ættleiðingini, um ikki umsøkjarin longu tá hevur fingið nøktandi vegleiðing frá øðrum myndugleika.

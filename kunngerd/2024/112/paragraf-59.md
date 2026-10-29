@@ -1,0 +1,2 @@
+§ 59. Verður eitt barn skotið upp av Adoptionsnævnet, sbrt. § 58, 1. pkt., velur Adoptionsnævnet millum teir umsøkjarar, hvørs mál eru send til Adoptionsnævnet, tann umsøkjaran, ið verður mettur at vera best skikkaður til at ættleiða tað ítøkiliga barnið.
+Stk. 2. Um barnið, ið Adoptionsnævnet hevur skotið upp, ikki er fevnt av góðkenningarkarminum hjá umsøkjaranum og umsøkjarin hevur bústað í Føroyum, tekur Familjufyrisitingin støðu til, um ein umsókn um víðkan av góðkenningarkarminum til at fevna um barnið, ið er skotið upp, kann gangast á møti ella ikki.

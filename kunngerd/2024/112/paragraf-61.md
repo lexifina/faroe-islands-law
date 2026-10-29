@@ -1,0 +1,1 @@
+§ 61. Tá ið Familjufyrisitingin, eftir tilmæli frá Ættleiðingarsamráðnum, góðkennir ein umsøkjara til innanlands ættleiðing av einum ítøkiligum barni, sbrt. § 18, stk. 1, nr. 1, skal málið fráboðast landsstýrisfólkinum.

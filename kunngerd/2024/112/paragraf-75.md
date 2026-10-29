@@ -1,0 +1,1 @@
+§ 75. Ein og hvør myndugleiki ella felagsskapur, ið tekur lut í fremjan av ættleiðingarmálum, og sum kunnu staðfesta, at ein áseting í Haagersáttmálanum ikki er hildin, ella at stórur vandi er fyri, at hon ikki verður hildin, skal beinanvegin boða Høvuðsmyndugleikanum frá hesum.

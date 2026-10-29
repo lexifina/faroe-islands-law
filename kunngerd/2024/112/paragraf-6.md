@@ -1,0 +1,1 @@
+§ 6. Samtykki frá foreldrunum ella verjanum hjá barninum, sbrt. § 8 í løgtingslógini, til, at barnið verður burturættleitt við einari innanlands fremmandaættleiðing, kann latast til, at barnið verður ættleitt av tí, sum Adoptionsnævnet peikar út til at ættleiða barnið.

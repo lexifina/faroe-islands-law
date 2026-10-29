@@ -1,0 +1,1 @@
+§ 48. Víkjast kann frá freistini fyri, nær umsøkjarin skal kunnast, sbr. §§ 46 og 47, í teimum førum, har tað er neyðugt, orsakað av einari freist, ið er ásett av upprunalandinum hjá barninum ella orsakað av serligum umstøðum.

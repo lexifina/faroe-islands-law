@@ -1,0 +1,3 @@
+## Serliga um familjuættleiðingar
+§ 13. Verður søkt um innanlands ættleiðing av einum barni, ið ikki er fylt 18 ár, skal Familjufyrisitingin innheinta eina váttan frá Fosturforeldraskipanini um, hvørt umsøkjarin lýkur krøvini fyri at hava eitt barn til fosturs sbrt. løgtingslóg um barnavernd.
+Stk. 2. Fosturforeldraskipanin skal upplýsa, hvørjar kanningar liggja til grund fyri váttanini, og um serligar umstøður hava gjørt seg galdandi, ið hava við sær, at tað er ivasamt, um ættleiðing er tað besta fyri barnið. Um so er, skal tilfarið, ið hevur verið til skjals hjá Fosturforeldraskipanini, sendast saman við váttanini til Familjufyrisitingina.

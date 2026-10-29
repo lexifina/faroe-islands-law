@@ -1,0 +1,1 @@
+§ 69. Um barnagjald til at uppihalda barninum varð ásett, áðrenn ættleiðingin varð framd, skal Familjufyrisitingin syrgja fyri, at tað verður áteknað barnagjaldsskjalið, at ættleiðingin er framd, og at uppihaldsskyldan er fallin burtur.

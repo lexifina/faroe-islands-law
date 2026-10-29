@@ -1,0 +1,3 @@
+§ 52. Tá eitt barn verður skotið upp til ættleiðing, har ættleiðingin er fevnd av Haagersáttmálanum, og barnið er fevnt av góðkenningini hjá umsøkjaranum, sbrt. § 46 og § 49, stk. 2, og umsøkjarin ynskir at ættleiða barnið, ið er í uppskoti, er tað Ankestyrelsen, ið letur eina váttan samsvarandi grein 17 c í sáttmálanum til útlendska myndugleikan, um at ættleiðingartilgongdin kann halda fram.
+Stk. 2. Í teimum førum, har greipingaruppskotið skal leggjast fyri Familjufyrisitingina, sbr. §§ 47, 49 og 50, og umsøkjarin tekur undir við at ættleiða barnið, er tað Familjufyrisitingin, ið letur grein 17 c váttanina sbrt. Haagersáttmálanum.
+Stk. 3. Váttanin sbrt. stk. 2 verður latin á einum oyðublaði, ið Anskestyrelsen hevur góðkent.
