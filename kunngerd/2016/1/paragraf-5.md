@@ -1,0 +1,1 @@
+§ 5. Fyri próvtøku, útskriving av prógvi, avriti av prógvi og fyri útskriving av kalliteknum til áhugavarparatænastur og áhugavarparafylgisveinatænastur, verður at gjalda ómaksgjald, sum ásett í skjali 4.

@@ -1,0 +1,1 @@
+§ 1. Henda kunngerð fyriskipar ásetingar um ársgjøld fyri eftirlitsvirksemi hjá Fjarskiftiseftirlitinum av frekvensviðurskiftum og ómaksgjøld fyri at røkja uppgávurnar sambært kapittul 7 í løgtingslógini, og ásetingum settar við heimild í ásetingunum í kapittul 7 í løgtingslógini.

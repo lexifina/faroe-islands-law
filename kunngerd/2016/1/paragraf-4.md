@@ -1,0 +1,1 @@
+§ 4. Fyri próvtøku og endurnýggjan av próvtøku at fáa radiopróvbræv, útskriving av radiopróvbrævi og avriti av radiopróvbrævi og útskriving av radioloyvi og avriti av radioloyvi, verður at gjalda ómaksgjald, sum ásett í skjali 3.
