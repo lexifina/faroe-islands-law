@@ -1,0 +1,1 @@
+§ 1.Tænastumenn í Sjúkrahúsverkið Føroya, sum ikki mynda sjúkrahúsleiðslunar, verða settir í starv av ávikavist sjúkrahúsleiðaranum á Landssjúkrahúsinum og umsjónarmanninum á ávikavist Klaksvíkar og Suðuroyar Sjúkrahúsi.
