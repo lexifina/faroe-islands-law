@@ -1,0 +1,1 @@
+§ 16. Uppboðssølugjaldið er 10.000 kr. fyri hvørja seriu. Gjaldið verður býtt á vinnandi boðini eftir nøgd. Uppboðssølugjaldið fellur til gjaldingar, tá avgerð er tikin um, hvør ella hvørji vinna boðið. Uppboðssølugjaldið fer til uppboðssøluhaldaran. Uppboðssøluhaldarin krevur inn gjaldið.

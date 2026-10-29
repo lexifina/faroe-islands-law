@@ -1,0 +1,5 @@
+## Innkrevjing
+§ 7. Vørn sendir persóni ella felag, sum á uppboði hevur keypt rættindini at veiða í 2018, rokning fyri gjaldið fyri rættindini. Rokning verður send, tá uppboðssølan er hildin. Upphæddin fellur til gjaldingar 31. desember 2018. Gjaldast skal, hóast avreitt ikki verður.
+Stk. 2. Fyri 3 og 8 ára rættindi sendir Vørn rokning fyri gjald fyri hvørt ár aftaná 2018, tá árið er lokið, fyri tey í árinum tillutaðu rættindi. Rokning verður send til persón ella felag, sum eigur rættindini 1. januar í tí ári, rokning verður send fyri. Gjaldið fellur til gjaldingar 20. í mánaðanum aftaná, at rokning er send. Gjaldið skal rindast, hóast avreitt ikki verður.
+Stk. 3. Verður gjald ikki goldið rættstundis, kann Vørn innloysa trygdina, sum er veitt fyri gjaldið.
+Stk. 4. Er trygd, sambært § 5, sett í reiðum peningi, kann keypari lata uppboðssølugjald og síðani gjald fyri rættindi at veiða, keypt á uppboði, mótrokna beinanvegin, tá keypt er. Møgulig restskuld fellur til gjaldingar eftir reglunum í hesi grein.
