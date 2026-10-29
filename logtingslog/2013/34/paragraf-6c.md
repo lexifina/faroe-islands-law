@@ -1,0 +1,2 @@
+§ 6 c. [^3] [^4] [^5] [^2] Av innistandandi upphædd 1. januar 2013, markað til Royndarstøðina í Hoyvík, verða kr. 5,0 mió. nýttar til antikvariska serskipan í Koltri soleiðis, at í árunum 2014 til 2025 flytur Búnaðargrunnurin landskassanum upphæddina, í síni heild ella lutvíst, eftir umbøn frá Søvnum landsins fyri staðfesta nýtslu.
+Stk. 2. [^2] Avvarðandi landsstýrismaður kann innan egið málsøki áseta treytir um nýtslu av serstudninginum sbrt. stk. 1.

@@ -1,0 +1,1 @@
+§ 8. Um lántakari ikki megnar at gjalda skuld til Búnaðargrunnin, hevur grunnurin heimild at gera avtalu við lántakaran um eitt lægri lánsgjald í eitt avmarkað tíðarskeið, tó so, at skuldin ikki veksur.

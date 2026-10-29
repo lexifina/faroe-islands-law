@@ -1,0 +1,2 @@
+§ 14. Roknskaparhaldið skal fylgja lógini um landsins almenna roknskaparhald v.m., tó soleiðis, at niðurskrivingar móti væntandi tapum upp á útlán roknskaparliga skulu viðgerast samsvarandi reglunum fyri peningastovnarnar.
+Stk. 2. Roknskapirnir hjá Búnaðargrunninum verða grannskoðaðir av løggildum grannskoðara og skulu sendast landsstýrismanninum við frágreiðing um virksemið í farna árinum. Roknskapirnir verða lagdir fyri Løgtingið sambært ásetingunum í stýrisskipanarlógini.
