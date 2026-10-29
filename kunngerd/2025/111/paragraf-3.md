@@ -1,0 +1,1 @@
+§ 3. Viðgerðin hjá Undirvísingarstýrinum kann fevna um øll sløg av persónsupplýsingum, undir hesum vanligar persónsupplýsingar, viðkvæmar persónsupplýsingar sbrt. dátuverndarlógini § 11, revsiverd viðurskifti, sbrt. § 13 í dátuverndarlógini og persónstøl, sbrt. § 16 í dátuverndarlógini.

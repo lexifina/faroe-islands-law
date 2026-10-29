@@ -1,0 +1,5 @@
+## Viðgerðartrygd
+§ 6. Undirvísingarstýrið skal seta í verk hóskandi tøknilig og bygnaðarlig tiltøk, ið eru kravd sbrt. dátuverndarlógini § 46 í mun til váðarnar, sum standast av viðgerðini av persónsupplýsingum. Endamálið er at tryggja áhaldandi trúnað, integritet, atkomu og rættleika í Kervi+. Dátuábyrgdarin kann ikki áleggja Undirvísingarstýrinum eyka trygdarkrøv.
+Stk. 2. Undirvísingarstýrið skal hava innanhýsis mannagongdir um verksettu tøkniligu og bygnaðarlig tiltøkini, sbrt. stk. 1. Mannagongdirnar skulu eftirhyggjast árliga umframt at starvsfólk, ið viðgera persónupplýsingar knýttar til Kervi+, altíð eru kunnað um galdandi mannagongdir.
+Stk. 3. Einstaki dátuábyrgdarin sbrt. § 2, stk. 2, hevur ábyrgdina av at fremja hóskandi tøknilig og bygnaðarlig tiltøk, ið knýta seg til leiklutin sum dátuábyrgdari í sambandi við nýtslu av Kervi+.
+Stk. 4. Undirvísingarstýrið hevur ábyrgdina av, at ásetingarnar um dátuvernd ígjøgnum sniðgeving og dátuvernd ígjøgnum standardstillingar í dátuverndarlógini § 38, verða fylgdar í mun til at menna, reka, viðlíkahalda og fyrisita Kervi+.
