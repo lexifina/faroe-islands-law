@@ -1,0 +1,1 @@
+§ 7. Tá løgtingsformaður fer frá, fær hann løgtingsformanssamsýning í 6 mánaðir, um hann hevur verið tingformaður longri enn eitt ár. Hevur hann verið tingformaður í styttri skeið, fær hann samsýning í 3 mánaðir.

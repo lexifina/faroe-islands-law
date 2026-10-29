@@ -1,0 +1,2 @@
+## Eftirløn
+§ 5. Løgtingið rindar tingfólkum upp í 15% av samsýningini, sbrt. § 1, stk. 1 afturat í eftirløn í eina eftirlønarskipan, góðkend av landsstýrinum. Eftirlønarprosentið verður ásett sambært skjali 1 í mun til, hvussu leingi tingfólkið ávikavist hevur sitið á tingi og hevur verið landsstýrisfólk eftir gomlu eftirlønarskipanunum. § 2, stk. 1 í eftirlønarlógini er ikki galdandi fyri løgtinsfólk, við atliti at løgtingssamsýning.
