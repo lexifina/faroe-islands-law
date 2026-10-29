@@ -1,0 +1,1 @@
+§ 1. [^1] Heimilað verður landsstýrismanninum at veita lán við eini upphædd upp á í mesta lagi 35,19 mió kr. til kommunurnar, sum eru nevndar í § 3. Lánið kann veitast til keyp av grundøki, at gera hetta byggibúgvið og til bygging av ellis- og røktarheimi í Vági.
