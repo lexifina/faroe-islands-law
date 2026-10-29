@@ -1,0 +1,4 @@
+## Útgáva til almenningin
+§ 24. Ljóðbøkur og annað tilfar, sum Landsbókasavnið hevur útvegað ella framleitt sambært § 23, kann, við útgávu til almenningin fyri eyga, verða selt rættindahavarum.
+Stk. 2. Søluprísurin er útreiðslurnar, ið Landsbókasavnið hevur av at framleiða ljóðbókina ella annað tilfar. Keyparar avdraga kostnaðin árliga við at rinda Landsbókasavninum 50% av inntøkunum, til framleiðslukostnaðurin er rindaður, tó í mesta lagi í 10 ár, treytað av, at útgávan er tøk fyri almenningin alt tíðarskeiðið.
+Stk. 3. Landsbókasavnið kann, í tann mun ljóðbøkur og annað tilfar, ið er framleitt eftir ásetingini í § 23, geva ljóðbókina og annað tilfar út til almenningin. Hetta er tó treytað av, at avtala er fingin í lag við rættindahavara, um at ljóðbókin ella annað tilfar ikki er givið út ella ikki er í umbúna at verða givið út til almenningin av øðrum forlagi.

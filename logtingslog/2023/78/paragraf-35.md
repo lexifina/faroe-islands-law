@@ -1,0 +1,1 @@
+§ 35. Tann, ið umsitur økisnøvn og líknandi, ið eru tillutað Føroyum, skal geva Landsbókasavninum talgilt avrit av yvirlitinum yvir slík økisnøvn, umframt upplýsingar um, hvør hevur skrásett økisnøvnini.

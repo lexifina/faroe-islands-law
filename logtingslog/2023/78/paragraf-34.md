@@ -1,0 +1,2 @@
+§ 34. Eru verk bara atgeingilig, um serlig tøknilig útgerð verður nýtt, skal neyðuga nýtsluleiðbeiningin vera hjáløgd, tá avhendað verður. Tá ið talgild verk verða útgivin við serligum útbúnaði, skal tann, ið hevur avhendingarskylduna, avhenda tøkniligt skjalprógv, sum er neyðugt, fyri at verkið skal gerast atgeingiligt.
+Stk. 2. Tann, ið avhendar, kann krevja, at tøkniliga tilfarið ikki verður atgeingiligt hjá óviðkomandi triðjamanni.
