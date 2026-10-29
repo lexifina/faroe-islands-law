@@ -1,0 +1,1 @@
+§ 2. Treytin fyri, at ískoyti verður veitt er, at ein kommunulækni skrivliga hevur ávíst sjúklinginum til viðgerð, áðrenn hon byrjar. Tó kann ein lækni ávísa á annan hátt, um mett verður, at sjúklingurin hevur brúk fyri bráðfeingis sálarligari hjálp. Eftir hetta skal læknin skjótast gjørligt útflýggja eina skrivliga ávísing.
