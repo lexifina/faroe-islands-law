@@ -1,0 +1,1 @@
+§ 6. Lýkur eitt grannskoðanarvirki ikki longur treytirnar í § 13, stk. 2 og 5 í grannskoðaralógini, sbr. tó reglur settar í gildi við heimild í § 13, stk. 6 í grannskoðaralógini, ella heldur grannskoðanarvirkið á annan hátt uppat, skal grannskoaðanarvirkið strikast úr skránni. Skrásetingin av hesum fer fram hjá Skráseting Føroya.
