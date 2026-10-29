@@ -1,0 +1,2 @@
+§ 9. Kommunan, sjálveigandi stovnurin ella felagsskapurin, góðkennir tey heim, har børn í dagrøktarskipanini skulu ansast.
+Stk. 2. Áðrenn eitt heim verður góðkent sum dagrøktarheim, skal at eitt fólk, so vítt gjørligt við serligum kunnleiki, vitja í heiminum og kunna seg við umstøðurnar. Ansast skal eftir, at heimið og tann ella tey, ið skulu ansa børnunum, mugu metast at vera egnaði til hetta arbeiðið. Serstakliga skal tryggjast, at rúmini, har børnini skulu vera, tey heilsuligu viðurskiftini og uttandura spælimøguleikarnir, eru trygg og hóskandi til ansan av børnum.

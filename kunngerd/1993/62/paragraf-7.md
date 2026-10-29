@@ -1,0 +1,2 @@
+§ 7. Dagrøkt kann verða skipað kommunalt, ella tað kann við góðkenning kommununnar verða givið loyvi til ein sjálveigandi stovn ella felagsskap o.l. at skipa fyri dagrøkt.
+Stk. 2. Um loyvi til at skipa fyri dagrøkt verður givið einum sjálveigandi stovni ella felagsskapi o.l., skal tað í loyvinum ásetast, at fráboðan skal sendast til avvarandi kommunu um, hvørji dagrøktarheim av sjálvsognarstovninum ella felagsskapinum verða góðkend til dagrøkt.

@@ -1,0 +1,1 @@
+§ 16. Almannastovan hevur eftirlit við døgnstovnunum. Rokniskaparárið hjá eini døgnstovni er almannakkaárið, og fíggjarætlan fyri komandi árið og rokniskapur fyri farna árið skal hvørt ár sendast Almannastovuni til góðkenningar.

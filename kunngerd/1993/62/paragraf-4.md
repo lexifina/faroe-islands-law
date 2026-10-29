@@ -1,0 +1,2 @@
+§ 4. Almannastovan hevur eftirlit við góðkendu dagstovnunum. Rokniskaparárið hjá dagstovnunum er almannakkaárið, og fíggjarætlan fyri komandi árið og rokniskapur fyri farna árið skal hvørt ár sendast viðkomandi kommunu og Almannastovuni til góðkenningar.
+Stk. 2. Ger Almannastovan broytingar í teirri av kommuni góðkendu fíggjarætlan fyri eina dagstovn, skal Almannastovan boða kommununi frá hesum beinanvegin, soleiðis at kommunan fær tikið hædd fyri broytingini í fíggjarætlan kommununnar fyri komandi árið.
