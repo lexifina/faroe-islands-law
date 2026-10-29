@@ -1,0 +1,7 @@
+§ 34. Landsstýrismaðurin kann veita tilskot til útreiðslur foreldra fyri uppihald næminga í aðrari kommunu, um so er, at viðkomandi næmingar bert kunnu fáa undirvísing í 8.-10. flokki í einum skúla, har dagligur flutningur millum heim og skúla er serliga ótryggur, drúgvur ella kostnaðarmikil.
+Stk. 2. Landsstýrismaðurin kann veita tilskot til útreiðslur foreldra fyri uppihald næminga í aðrari kommunu, um so er, at viðkomandi næmingar bert kunnu fáa ta í § 4, 4.-5. stk. umrøddu undirvísing í einum skúla, har dagligur flutningur millum heim og skúla í royndum ikki er møguligur fyri næmingarnar.
+Stk. 3. Landsstýrismaðurin kann ístaðin við samtykki foreldra, smb. § 65, skipa fyri, at teir í 1. og 2. stk. nevndu næmingar verða at búgva á staðnum, har skúli teirra er.
+Stk. 4. Landsstýrismaðurin kann við samtykki foreldra, smb. § 65 í serstøkum føri loyva, at næmingar, sum eru í 7. skúlaári og yngri, og sum ikki ganga í skúla í heimbygdini, verða at búgva á staðnum, har skúli teirra er.
+Stk. 5. Tilskotið verður veitt sum heilt ella lutvíst endurgjald fyri innivist, sum landsstýrismaðurin hevur góðkent. Tilskotið skal heilt ella lutvíst samsvara við tann meirkostnað foreldra, ið stendst av, at næmingurin býr ikki heima. Harumframt verður veitt tilskot til ferðaútreiðslur næminga millum heim og skúla vikuskiftini, og tá ið frítíðir byrja og enda.
+Stk. 6. Tilskotið eftir 1.-5. stk, verður veitt úr landskassanum.
+Stk. 7. Heimstaðarkommunan endurrindar skúlakommununi útreiðslur hennara fyri skúlagongdina hjá næminginum, smb. § 27.

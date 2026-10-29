@@ -1,0 +1,7 @@
+§ 45. Leiðari skúlans ansar eftir, at allir teir næmingar, sum eru skrivaðir inn í fólkaskúlan, taka lut í undirvísingini, smb. § 55, 5. stk.
+Stk. 2. Er næmingur burtur frá undirvísingini, skulu foreldrini, smb. § 65, persónliga ella skrivliga geva skúlanum upplýsing um orsøkina til hetta. Er orsøkin til fráveruna sjúka, ið varir meir enn 2 vikur, kann skúlin krevja læknaváttan fyri fráveruna. Læknaváttan kann somuleiðis verða kravd fyri styttri endurtiknar fráverur vegna sjúku.
+Stk. 3. [^1] Um so er, at næmingur ikki heldur skúlans reglur, skal skúlaleiðarin seta tiltøk í verk.
+Stk. 4. [^1] [^4] Skúlaleiðarin setur fyriskipan í verk fyri næmingar, ið hava serligar avbjóðingar, harímillum við atliti at sosialum felagsskapi, trivnaði og tilknýti. Stig kunnu verða tikin til, at næmingar verða fluttir í annan skúla ella í annað undirvísingartilboð.
+Stk. 5. [^1] Landsstýrismaðurin ger nærri reglur um, hvørji tiltøk skúlaleiðarin skal seta í verk sbrt. stk. 3, og hvørji atlit, sum kunnu geva grundarlag fyri avgerð hjá skúlaleiðaranum at flyta næming í aðrar skúlar, sbrt. stk. 4.
+Stk. 6. [^1] [^4] Landsstýrismanninum verður heimilað at seta á stovn serligan skúla ella undirvísingartilboð fyri næmingar, ið hava serligar avbjóðingar, harímillum við atliti at sosialum felagsskapi, trivnaði og tilknýti, ið ikki á annan hátt kunnu fáa nøktandi undirvísing í fólkaskúlanum.
+Stk. 7. [^4] Landsstýrismaðurin ásetur nærri reglur um skúla ella undirvísingartilboð sbrt. stk. 6.

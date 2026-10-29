@@ -1,0 +1,1 @@
+§ 66. Við atliti at teimum meginreglum, sum galdandi eru fyri skúlastýri, smb. §§ 50, 52, 53 og 54, er landsstýrismanninum heimilað at gera reglur viðvíkjandi skúlastýrum o.ø. í almennum undirvísingarstovnum undir landinum, sum undirvísa næmingar í fólkaskúlaaldri, smb. eisini § 4, 4. stk.

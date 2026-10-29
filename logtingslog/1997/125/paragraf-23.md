@@ -1,0 +1,4 @@
+§ 23. Teir undirvísingarmiðlar, ið neyðugir eru, skulu ókeypis latast næmingunum til nýtslu. Hetta er tó ikki galdandi fyri tól og útbúnað, ið nýtt verða til undirvísing í frítíðini eftir § 4, 6. stk., og sum næmingarnir taka heim til egna nýtslu. Landsstýrismaðurin ásetur í kunngerð vavið av undirvísingarmiðlum eftir 1. pkt.
+Stk. 2. Í hvørjum skúla smb. § 30, 1. stk. verður skipað eitt skúlabókasavn sum námsfrøðiligur tænastudepil. Skúlabókasavnið er partur av virksemi skúlans og galdandi bókasavnsskipan. Í skúlabóka-savninum skulu vera til taks undir-vísingarmiðlar til undirvísingina í skúlanum, herímillum eisini frílesibøkur. Skúlabókasavnið skal leiðbeina næmingarnar um tilfarsnýtslu.
+Stk. 3. Landsstýrismaðurin kann áseta gjøllari reglur um endamál og virki skúlabókasavnsins.
+Stk. 4. [^3] (Strikað).

@@ -1,0 +1,2 @@
+§ 65. Tey rættindi, ið við lógini eru veitt foreldrum, eigur tann ella teir persónar, ið hava foreldramyndugleikan. Næmingar, ið ikki eru undir foreldramyndugleika, hava sjálvir hesi rættindi.
+Stk. 2. Undantikið spurninginum um, nær skúlagongdin byrjar, og hvussu leingi hon varir, kann skúlin halda tann, ið stendur fyri húskinum, næmingurin hoyrir til, vera heimilaðan at fremja atgerðir hansara, ið hevur foreldramyndugleikan.

@@ -1,0 +1,1 @@
+§ 61. [^10] Tíðin hjá lestrarbørnunum at ganga til verður sett við samráðingum millum skúlaleiðaran og viðkomandi prest. Lestrarbørnini skulu fáa ta lestrartíð, tey hava brúk fyri. Við tíðarásetingini skal verða ansað eftir, at skúlans arbeiði verður tarnað sum minst. Fæst ikki semja partanna millum, setur landsstýrismaðurin lestrartíðina.

@@ -1,0 +1,1 @@
+§ 36. [^7] [^4] Til at røkja undirvísing í frítíðini eftir § 4, stk. 8 ella aðrar námsfrøðiligar arbeiðsuppgávur, ið ikki koma undir § 35, kunnu verða sett starvsfólk við serligari útbúgving. Landsstýrismaðurin ásetur greiniligari reglur hesum viðvíkjandi.

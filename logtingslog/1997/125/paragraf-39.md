@@ -1,0 +1,1 @@
+§ 39. Skúlastýrið kann eftirlíka einum lærara, sum av góðum grundum vil sleppa undan at undirvísa í kristnikunnleika. Um lærari av hesi orsøk ikki kann fáa fulla tænastutíð, verður lønin skerd samsvarandi, men eftirlønaraldur hansara verður kortini óskerdur.

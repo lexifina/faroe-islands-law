@@ -1,0 +1,5 @@
+§ 12. Næmingarnir verða undirvístir á tí floksstigi í grundskúlanum, ið samsvarar við skúlaaldur teirra. Næmingur kann tó í samráð við foreldrini, smb. § 65, verða undirvístur á sama floksstigi í 2 ár, um hann ikki hevur fingið undirvísing í longri tíð, ella aðrar serligar grundir benda á, at hetta er best fyri hann. Somuleiðis kann ein næmingur undir heilt serligum umstøðum leypa eitt floksstig um.
+Stk. 2. [^1] Serundirvísing og sernámsfrøðiligur stuðul, sbrt. § 4, stk. 4, ið ikki er fyribils, skal verða grundað á eina námsfrøðiliga/sálarfrøðiliga kanning, og skal fara fram í samráð við næmingin og foreldrini. Um foreldrini nokta fyri hesum, skal skúlin kunna barnaverndina um avgerðina hjá foreldrunum.
+Stk. 3. [^4] Landsstýrismaðurin ásetur nærri reglur um serundirvísing og sernámsfrøðiligan stuðul, og hvat ein námsfrøðilig og sálarfrøðilig kanning skal umfata sbrt. stk. 2.
+Stk. 4. [^4] Læruætlan verður gjørd til næmingar, ið fáa serundirvísing ella sernámsfrøðiligan stuðul sbrt. stk. 2.
+Stk. 5. [^4] Foreldrini, smb. § 65, og næmingurin taka í samráð við skúlan avgerð um val av lærugreinum smb. §§ 7 og 9, 1.-4. stk. um framhaldandi skúlagongd.

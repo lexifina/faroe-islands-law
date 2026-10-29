@@ -1,0 +1,1 @@
+§ 66 a. [^10] Ognirnar hjá Færø Amts Skolefond verða lagdar í sjálvsognargrunn, hvørs endamál er at veita granskingarstyrk til verkætlanir í námsfrøði innan fólkaskúlaøkið. Landsstýrismaðurin ásetir reglur fyri grunnin.
