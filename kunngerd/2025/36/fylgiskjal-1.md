@@ -1,0 +1,13 @@
+## Skjal 1
+Alment um kunngerðina
+Ásetingarnar í hesi kunngerð skulu lesast, skiljast og tulkast við atliti til niðanfyri nevndu broytingar og tillagingar til føroysk viðurskifti:
+1) Allastaðni, har “Søfartsstyrelsen” ella annar danskur myndugleiki verður nevndur í hesi kunngerð, skal, tá ið ræður um føroyskt myndugleikaøki, skiljast “Sjóvinnustýrið”, ella møguliga annar heimilaður føroyskur myndugleiki.
+2) Allastaðni, har orðingar sum “Danmark”/“dansk”, “Grønland”/“grønlandsk” ella “dansk skib”/“grønlandsk skib” verða nýttar í hesi kunngerð, skal skiljast “Føroyar/føroyskt” ella “føroyskt skip”, uttan so at ásetingarnar viðvíkja viðurskiftum uttan fyri føroyskt myndugleikaøki.
+3) Av tí at Føroyar ikki eru limur í ES, eru tilvísingar til krøv og reglur í ES direktivum og ES fyriskipanum ikki galdandi fyri føroysk skip, uttan so at nevndu reglur eru settar í gildi við føroyskari lóggávu ella beinleiðis verða álagdar skipum, sum ikki sigla undir ES flaggi (triðjalandsskip) sum treyt fyri framhaldandi at sigla í ES sjógvi ella koma í ES havn. Viðkomandi ES reglur kunnu tó eftir tørvi nýtast vegleiðandi fyri føroysk skip.
+4) Dagfestingar nevndar í skjølunum til hesa kunngerð, sum eru tengdar at gildiskomuni av avvarðandi donsku reglunum, skulu í føroyskum høpi skiljast sum galdandi frá tí degi, tá henda kunngerð um fráboðan frá Sjóvinnustýrinum kemur í gildi.
+5) Tær til eina og hvørja tíð galdandi vegleiðingarnar frá Søfartsstyrelsen, sum knýta seg til hetta regluverkið, verða við neyðugum tillagingum eisini nýttar av Sjóvinnustýrinum.
+Heimildir
+1) Anneks I, II, III, IV, V og VI hava støðið í altjóða sáttmálanum um fyribyrging móti dálking frá skipum (MARPOL) við seinni broytingum og protokollum umframt skjal IV, regla 4 og 5 í Helsinki-sáttmálanum.
+2) Anneks I, II, III, IV, V og VI innihalda ásetingar, ið seta í verk teir partar av altjóða sáttmálanum MARPOL 73/78 saman við protokollini frá 1997, ið eru fevndir av økinum í løgtingslóg um trygd á sjónum. Hesar ásetingar eru í kunngerðini markeraðar við bókstavinum “S”. Í anneksunum eru afturat hesum ásetingar, ið fevna um økið í løgtingslóg um verju av havumhvørvinum. Hesar ásetingar eru markeraðar við bókstavinum “M”. Hesar ásetingar eru einans tiknar við sum upplýsandi tilfar.
+3) MARPOL-sáttmálin fevnir um ásetingar, ið bæði eru fevndar av løgtingslóg um trygd á sjónum og løgtingslóg um verju av havumhvørvinum. Tær ásetingar, ið eru í skjølunum, sum eru fevndar av báðum økjum, eru markeraðar við “S/M”.
+4) Ásetingar í hesi kunngerð, ið fevna um byggikrøv til minni lastskip og stuttleikaskip eru skrivað við kursiv.
