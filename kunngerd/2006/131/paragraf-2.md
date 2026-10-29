@@ -1,0 +1,2 @@
+§ 2. Virðið á óskrásettum partabrøvum v.m. eftir § 1, nr. 1 í kapitalvinningsskattalógini verður sett til handilsvirðið.
+Stk. 2. Er handilsvirðið á óskrásettum partabrøvum ókent, t.d. av tí at partabrævið ikki hevur verið selt áður, ella tí at umstøðurnar ikki kunnu sigast at kunna vera lagdar til grund í eini meting av handilsvirðinum, kann metingin verða gjørd við útgangsstøði í fylgjandi greinum, sum einans eru vegleiðandi.

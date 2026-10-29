@@ -1,0 +1,1 @@
+§ 11. Virðið, sum verður ásett við hjálpiregluni, kann heilt ella lutvíst síggjast burtur frá, tá ið tað hevur týdning og er umráðandi at finna annað egnað virðið, sum er so nær handilsvirðinum sum gjørligt.
