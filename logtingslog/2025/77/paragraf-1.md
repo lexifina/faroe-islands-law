@@ -1,0 +1,1 @@
+§ 1. Landsstýrisfólkinum verður landskassans vegna heimilað at hækka skuldina við í mesta lagi 925 mió. kr. til at halda kravið um minstagjaldføri í 2025 og til at rinda fyri gjaldførishall landskassans í 2023 og 2024.
