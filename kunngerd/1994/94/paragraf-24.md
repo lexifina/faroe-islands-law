@@ -1,0 +1,1 @@
+§ 24. Flutningur av eldfimum løgi í flokki I-1, 1-2, II-1 og III-1 í rørleiðingum á almennum økjum ella alment tilgongdum økjum má einans fara fram við loyvi frá og eftir treytum, sum Brunaumsjón landsins setur.

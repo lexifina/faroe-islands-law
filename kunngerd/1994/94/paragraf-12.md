@@ -1,0 +1,3 @@
+§ 12. Íløt ella tangar, ið skulu fyllast við eldfimum løgi, skulu reinsast soleiðis, at leivdir av tí evni, sum var í frammanundan, ikki kann flyta tað, sum latið verður á, í ein vandamiklari flokk.
+Stk. 2. Áfyllingar skulu fara fram við neyðugum atliti til víðkan og trýstøking orsakað av møguligari hitabroyting, ið kann hava við sær, at løgur rennur yvir ella at tangin/ílatið kann bresta.
+Stk. 3. Íløt, tangar o.t. við eldfimum løgi í flokki I-1, 1-2, II-1 og III-1 (t.d. bensin, spritt, petrolium og gassolja) og tóm íløt og tangar, sum løgur í flokki I-1 og I-2 (t.d. bensin og spritt) hava verið í, skulu verða fullvæl afturlatin.

@@ -1,0 +1,2 @@
+§ 5. Fyllast skal kring niðurgrivnar tangar á ein slíkan hátt, at trygd er fyri, at teir ikki verða skaddir av gróti og trýsti, t.d. tá ið koyrt verður omaná teimum. Tyrvandi lagið oman á tangum skal altíð vera í minsta lagi 0,5 m.
+Stk. 2. Niðurgrivnir tangar, sum ikki hava verið í nýtslu í meira enn 2 ár, skulu beinast burtur (takast upp) ella fyllast við sandi ella á annan hátt undir eftirliti gerast vandaleysir.

@@ -1,0 +1,1 @@
+§ 17. Uppløg yvir 5.000 eindir av eldfimum løgi í flokki I-1, I-2, II-1, II-2 og III í tangum ella á goymslu úti ella inni, kunnu einans verða sett á stovn eftir treytum, sum Brunaumsjón landsins í hvørjum einstøkum føri metir vera neyðugar.

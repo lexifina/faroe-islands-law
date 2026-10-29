@@ -1,0 +1,7 @@
+§ 18. Undantikin ásetingunum í §§ 15 og 16 eru niðan fyri nevndu uppløg:
+a) Uppløg upp til 120 eindir av løgi í flokki II-2, III-1 og III-2 (t.d. spiritus, gassolja og ymisk sløg av serligum evnum til kemiskan ídnað) í niðurgrivnum tangum.
+b) Uppløg av løgi í flokki II-2 og III-2 í íløtum og í innandura tangum og tangum oman á jørð úti, tá ið løgirnir eru ikki á goymslu saman við løgi í flokki I-1, I-2, II-1 og III-1. Uppløg av løgi í flokki II-2, ið verða stovnsett í sambandi við virkir, sum eru nevnd í § 13, koma tó undir ásetingarnar í § 16.
+c) Uppløg upp til 25 eindir av løgi í flokki I-1, I-2, II-1 og III-1.
+d) Uppløg upp til 100 eindir av løgi í flokki I-1, I-2, II-1 og III-1 í íløtum, sum eru í útsøluhølunum í handlum og tilhoyrandi goymsluhølum, tá ið løgurin er í íløtum, ið ikki rúma meira enn 1 litur av løgi í flokki I-1, og tá ið samlaða nøgdin í glas- og plastikkíløtum ikki er meira enn 75 litrar, hvørki í søluhølinum ella á goymsluni. Eingin áfylling, tapping ella stoyting í onnur íløt má fara fram í sølu- ella goymsluhølunum.
+e) Uppløg upp til 32 eindir í íløtum, tá ið upplagið einans fevnir um løg í flokki III-1 (t.d. upplag upp til 1.600 litrar av gassolju í íløtum).
+f) Uppløg upp til 32 eindir av løgi í flokki III-1 (t.d. 1.600 litrar av gassolju) í innandura tangum og tangum úti oman á jørð, tá ið innandura tangar, ið rúma meir enn 40 litrar, eru í kjallaranum (1. hædd) ella í stovuhæddini (2. hædd), og tangar úti eru í minsta lagi 2,5 m frá grannamarki og 5 m frá øðrum bygningum.

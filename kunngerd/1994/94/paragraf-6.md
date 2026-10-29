@@ -1,0 +1,1 @@
+§ 6. Brunaumsjón landsins ger serfyriskipan fyri eldfiman løg við ásetingum fyri plasering, innrætting og nýtslu av virkjum í bólki A og B umframt upplagi av eldfimum løgi og ger reglur fyri framleiðslu av íløtum, tangum, goymslu-, fyllingar- og tømingarviðurskiftum og útbúnaði, sum hoyrir til. Serfyriskipanin, ið ikki verður lýst kann útvegast frá Brunaumsjón landsins.

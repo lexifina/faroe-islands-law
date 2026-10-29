@@ -1,0 +1,1 @@
+§ 23. Tangabilar og ella leysir tangar (fullir sum tómir) til løg í flokki I-1, 1-2 og II-1, og tangabilar, leysir tangar o.t. við løgi í flokki III-1, og akfør við meir enn 600 upplagseindum í flokki I-1, I-2 og 11-1 í íløtum, mugu ikki uttan serligt loyvi frá brunamyndugleikunum setast í garasjur ella inn í bygningar.

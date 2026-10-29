@@ -1,0 +1,1 @@
+§ 26. Virkir, goymslur, goymsluøki, tangar, rør, pumpur og tílíkur útbúnaður, flutningstól og tað, sum annars kemur undir hesa kunngerð, kann ikki takast í nýtslu, uttan at endalig váttan er fingin frá brunamyndugleikunum.

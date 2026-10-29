@@ -1,0 +1,1 @@
+§ 7. Trukkar og tílík flutningstól til nýtslu á virkjum í bólki A og á goymslustøðum til eldfiman løg við logamarki undir 30° C, skulu vera í samsvari við brunatøkniliga vegleiðing, sum er góðkend av Brunaumsjón landsins (t.d. vegleiðing nr. 21, ið Dansk Brandteknisk Institut hevur útgivið).

@@ -1,0 +1,1 @@
+§ 11. Íløt og tangar, sum ikki roknast undir § 10, (við tilhoyrandi áfyllingar- og úrtømingarútbúnaði og aðrari tilhoyrandi útgerð) til eldfiman løg, skulu vera í samsvari við serfyriskipanina nevnd í § 6 ella góðkend av Brunaumsjón landsins.

@@ -1,0 +1,1 @@
+§ 8. Virkir og uppløg eins og tey virki, ið eru nevnd í § 13 og § 16, skulu við jøvnum millumbilum sýnast av Brunaumsjón landsins, sambært ásetingunum í § 24, stk. 2 í løgtingslóg nr. 87 frá 12. juni 1986 um eldsbruna o.a.
