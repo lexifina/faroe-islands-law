@@ -1,0 +1,1 @@
+§ 14. Avhending, veðseting ella annar rættarhandil viðvíkjandi gjørdum innskotum á konto til íløgugrunn kunnu ikki fara fram, eins og innskotini ikki heldur kunnu verða kravd av ognarum fyri skuld, smb. tó § 10.

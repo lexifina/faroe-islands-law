@@ -1,0 +1,1 @@
+§ 13. Roknskapur hjá bókhalds- ella roknskaparskyldugum skulu fyri avsetingarárið og eftirfylgjandi ár verða settir upp soleiðis, at teir innihalda tær bókingar, sum eru neyðugar fyri eftirlit við gjørdum avsetingum til íløgugrunnar og við røttu nýtslu avsetinganna. Gjølligari reglur um hetta verða settar av líkningarráðnum.

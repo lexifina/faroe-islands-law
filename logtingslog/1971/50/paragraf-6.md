@@ -1,0 +1,3 @@
+§ 6. [^5] Avseting til íløgugrunn kann ikki verða nýtt, fyrr enn 6 mánaðir eru farnir frá tí at hin sambært § 5 skylduga innseting á konto til íløgugrunn er gjørd.
+2. stk. Avsetingin skal í heild vera nýtt, áðrenn 10 ár eru liðin frá avsetingarárinum. Henda freist kann eftir skrivligari umsókn verða longd av landsstýrinum ella honum, ið landsstýrið heimilar til tess, tá ið avvarðandi skjal prógvar, at hann ikki hevur ræði á orsøkunum til at nýtsla ikki er gjørd, áðrenn freistin er at enda.
+3. stk. Hevur ein skattskyldugur sett av til íløgugrunn fleiri inntøkuár, kann avsetingin fyri ávíst inntøkuár ikki verða nýtt, fyrr enn allar eldri avsetingar eru nýttar.
