@@ -1,0 +1,1 @@
+§ 14. Hjá fiskiførum, sum hava loyvi at fiska uppsjóvarfisk, sum er undir kvotuskipan, er hjáveiða av hesum fiskasløgum loyvd í beinleiðis fiskiskapi eftir svartkjafti. Hjáveiðan verður roknað av kvotuni hjá viðkomandi fiskifari.
