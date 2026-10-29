@@ -1,0 +1,1 @@
+[^1]: Broytt við løgtingslóg nr. 54 frá 29. mai 2024, har § 2 ljóðar soleiðis: “Henda løgtingslóg kemur í gildi, tá ið nýtt løgting verður sett sambært § 9, stk. 2 í stýrisskipanarlógini eftir fyrst komandi løgtingsval.”

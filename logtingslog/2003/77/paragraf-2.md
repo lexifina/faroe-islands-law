@@ -1,0 +1,2 @@
+§ 2. [^1] Løgmaður velur nevnd við trimum fólkum at geva løgmanni tilmæli um samsýningar og eftirløn o.a. til landsstýrisfólk. Ein av limunum skal verða løgfrøðingur, ein skal verða kønur í lønarmálum og ein skal verða roknskaparkønur.
+Stk. 2. Nevndin skal í tilmæli sínum hava atlit at lønarlagnum í landinum yvirhøvur, og teirri tign og ábyrgd, sum liggja í størvunum. Nevndin skal eisini, við muninum á lønarlagi í huga, javnmeta við, hvussu samsvarandi størv verða lønt í grannalondum okkara. Nevndin kann herumframt hava atlit at øðrum viðkomandi viðurskiftum.
