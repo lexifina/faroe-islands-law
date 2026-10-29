@@ -1,0 +1,1 @@
+§ 16. Í upptøkubólkinum til serflokkin er toymisleiðarin fyri serflokkin, sum er formaður. Hini umboðini eru umboð fyri Sernám, umboð fyri leiðslu skúlans ella Førleikastovuna og umboð frá skúlanum, har næmingurin er innskrivaður.
