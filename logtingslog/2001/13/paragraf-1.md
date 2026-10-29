@@ -1,0 +1,1 @@
+§ 1. Landsstýrismanninum verður heimilað at veita mótborgan, sbr. § 3, stk. 1, í “lov om statsgaranti for lån fra Kreditforeningen af Kommuner i Danmark til færøske kommuner” í teim førum, tá ið kommunekredit veitir lán til kommuur at umfíggja lán, ið vóru partur av avtaluni frá 1995 um samlaða endurfígging av kommuuskuldini.”
