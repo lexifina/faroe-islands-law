@@ -1,0 +1,1 @@
+§ 1. Grunsins grundfæ eru tær ognir, sum “Fonden til bevaring af Kirkebøruinen på Færøerne” eigur, og haraftrat 25.000 kr., sum pf. Føroya Banki í Tórshavn gav til nevnda endamál í 1956 á 50 ára degi bankans.
