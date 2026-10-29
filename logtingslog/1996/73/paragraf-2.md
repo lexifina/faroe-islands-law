@@ -1,0 +1,2 @@
+§ 2. [^1] Landsstýrismaðurin kann leggja lógina til Vinnuframagrunnin at umsita. Neyðugar útreiðslur til umsiting av lógini, her uppií útreiðslur til hjálp frá serkønum, verða hildnar av serstakari játtan á fíggjarløgtingslógini.
+Stk. 2. Leggur landsstýrismaðurin sínar heimildir eftir hesi lóg til Vinnuframagrunnin, kann landsstýrismaðurin áseta reglur um kærumøguleikar her ímillum, at avgerðir tiknar av Vinnuframagrunninum ikki kunnu kærast til landsstýrismannin.
