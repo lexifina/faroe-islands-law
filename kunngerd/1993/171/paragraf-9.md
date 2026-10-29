@@ -1,0 +1,1 @@
+§ 9. Forboð móti sølu, útflýggjan ella nýtslu av tilfari, sbr. § 4, kann innan 4 vikur eftir avgerðina verða kært til landsstýrið, hvat ið viðvíkur spurninginum um, hvussu reglurnar eru at skilja, sum forboðið er gjørt eftir. Klaga sleppur einum ikki undan fyribils at akta forboðum og boðum.

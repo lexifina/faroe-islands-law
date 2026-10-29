@@ -1,0 +1,3 @@
+## Upplýsingarskylda um eltilfar.
+§ 3. Við sølu, útflýggjan ella innlegging av eltilfari, sum ikki áður hevur verið marknaðarført, útflýggjað ella innlagt her í landinum, og sum er tikið við á yvirlitinum, sum DEMKO umsitur, skal ein og hvør, ið sum virkiseigari, innflytari, heilsølumaður, smásølumaður, elinnleggjari ella annað selur, útflýggjar ella leggur inn tilfarið prógva fyri elnevndini, at upplýsingar um tilfarið eru latnar DEMKO ella “Elektricitetsrådet”. Upplýsingarnar verða latnar á einum serligum oyðublað, sum fæst hjá DEMKO.
+Stk. 2. Yvirlit yvir tilfar, sum upplýsingarskyldan fevnir um, fæst hjá SEV.
