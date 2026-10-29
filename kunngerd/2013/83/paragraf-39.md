@@ -1,0 +1,2 @@
+§ 39. Leiðari útbúgvingarstovnsins avger, um kærumál sbrt. § 38, stk. 1 skal viðgerast, ella um tað verður víst aftur. Afturvísing skal vera skrivlig og grundgivin.
+Stk. 2. Tekur leiðari útbúgvingarstovnsins avgerð um, at kæran verður víst aftur, kann kærarin umvegis leiðara útbúgvingarstovnsins kæra málið til Mentamálaráðið innan 7 dagar eftir, at afturvísingin er kunngjørd kæraranum. Leiðari útbúgvingarstovnsins sendir Mentamálaráðnum sítt tilmæli saman við kæruni.

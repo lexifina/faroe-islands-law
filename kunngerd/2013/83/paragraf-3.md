@@ -1,0 +1,2 @@
+§ 3. [^1] Upptøka á útbúgvingarnar nevndar í § 1, stk. 1, nr. 3 og 4 er treytað av, at umsøkjari hevur fráfaringarpróvtøku fólkaskúlans, 9. flokk.
+Stk. 2. [^1] Umsøkjari, sum ikki lýkur treytirnar fyri atgongd til útbúgvingina, kann verða tikin upp, um skúlin metir, at umsøkjarin hevur tær neyðugu fakligu fyritreytirnar fyri at fullføra útbúgvingina til ásetta tíð. Umsøkjari kann verða vístur til upptøkuroynd, sum skúlin skipar fyri.

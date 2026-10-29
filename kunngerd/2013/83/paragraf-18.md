@@ -1,0 +1,2 @@
+§ 18. [^1] Treytin fyri, at næmingur kann halda fram á næsta skúlaskeiði er, at talmetið fyri innanhýsis eftirmetingina í yrkislærugreinunum, sbrt. § 17, stk. 1, í minsta lagi er 02.
+Stk. 2. [^1] Næmingur, sum ikki lýkur treytirnar í stk. 1 fyri at halda fram næsta skúlaskeið, kann eftir avgerð leiðara útbúgvingarstovnsins og í samráð við læruplássið fáa møguleika at taka skúlaskeiðið ella partar av skeiðnum umaftur.
