@@ -1,0 +1,2 @@
+§ 7. Landsgrannskoðanin letur aðalstjóranum, sum hevur sett í verk og endað eina kanning eftir § 5, stk. 3 og 4, ummæli sítt. Ummælið verður eisini latið løgmansstjóranum og aðalstjóranum í Fíggjarmálaráðnum.
+Stk. 2. Aðalstjórin skal skrivliga boða Landsgrannskoðanini, løgmansstjóranum og aðalstjóranum í Fíggjarmálaráðnum frá, um hann ikki hevur í hyggju at fylgja møguligum tilmælum frá Landsgrannskoðanini. Grundgevast skal fyri avgerðini.
