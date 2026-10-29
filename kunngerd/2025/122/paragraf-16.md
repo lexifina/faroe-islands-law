@@ -1,0 +1,2 @@
+§ 16. Familjufyrisitingin skal skjótast gjørligt taka fyribils avgerð um samveru sambært § 35 í løgtingslógini.
+Stk. 2. Um barnið ikki hevur samveru við tað foreldrið, sum biður um samveru, skal Familjufyrisitingin skjótast gjørligt og eftir áheitan taka eina fyribils avgerð um samveru við tí endamáli at varðveita sambandið millum samveruforeldur og barn. Hetta er tó ikki galdandi, um grundaður ivi er um, at samveran er til barnsins besta.

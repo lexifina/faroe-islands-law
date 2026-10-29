@@ -1,0 +1,1 @@
+§ 23. Familjufyrisitingin kann biðja um, at ein samrøða við barnið sambært § 39 í løgtingslógini verður hildin í Familieretshuset í Danmark ella hjá Ríkisumboðnum í Grønlandi um barnið býr ella uppiheldur sær har, ella hjá føroysku ella donsku sendistovuni har, sum barnið býr ella uppiheldur sær.

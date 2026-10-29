@@ -1,0 +1,4 @@
+§ 18. Foreldrini og barnið skulu samstundis, sum tey fáa í boði einsæris barnaserkøna ráðgeving, verða kunnaði um innihaldið í § 21, stk. 1-4.
+Stk. 2. Einsæris ráðgevingin er ikki treytað av, at bæði foreldur luttaka. Familjufyrisitingin skal bjóða foreldrunum einsæris barnaserkøna ráðgeving, um bara annað foreldrið ella barnið vil luttaka. Vil annað foreldrið ikki luttaka, metir Familjufyrisitingin um, hvørt hitt foreldrið skal bjóðast til einsæris ráðgeving einsamalt.
+Stk. 3. Familjufyrisitingin leggur einsæris ráðgevingina til rættis og avgerð, hvussu nógv hon skal fevna um, og hvør luttekur í einsæris ráðgevingini í senn.
+Stk. 4. Familjufyrisitingin kann sum meginregla ikki veita einsæris barnaserkøna ráðgeving og viðgera mál um foreldramyndugleika, samveru ella bústað hjá barni samstundis um ráðgevingin og viðgerðin av málinum snúgva seg um tað sama, uttan so at mett verður, at hetta er til barnsins besta.

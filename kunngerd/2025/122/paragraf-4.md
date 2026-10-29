@@ -1,0 +1,3 @@
+§ 4. Skal tað, áðrenn avgerð verður tikin sambært § 13, stk. 2, í løgtingslógini, innheintast eitt ummæli frá tí foreldrinum, sum ikki hevur lut í foreldramyndugleikanum, skal Familjufyrisitingin vegleiða viðkomandi um møguleikan fyri at fáa flutt foreldramyndugleikan sambært § 13 í løgtingslógini.
+Stk. 2. Um Familjufyrisitingin, hóast mótmæli frá tí av foreldrunum, sum ikki hevur lut í foreldramyndugleikanum, ætlar at góðkenna eina avtalu um flyting av foreldramyndugleikanum sambært § 13, stk. 2, í løgtingslógini, og avgerðin hjá Familjufyrisitingini verður kærd til Føroya Kærustovn, kann avtalan ikki góðkennast, fyrr enn Kærustovnurin hevur tikið avgerð.
+Stk. 3. Verður ein avtala sambært stk. 2 góðkend, boðar Familjufyrisitingin Landsfólkayvirlitinum frá avtaluni.
