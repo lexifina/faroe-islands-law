@@ -1,0 +1,3 @@
+## Eldhættisligt virksemi
+§ 37. Til at seta á stovn virksemi, har ið verða goymd, framleidd, viðgjørd, handfarin ella nýtt spreingikvæmir, eldfimir ella eldførir løgir, ella luftevni ella onnur vandaevni, krevst loyvi frá landsstýrismanninum í tilbúgvingarmálum. Sama er, tá ið tað snýr seg um umbyggingar, umvælingar, økingar, niðurtøku ella broytingar í rakstrinum.
+Stk. 2. Landsstýrismaðurin í tilbúgvingarmálum kann krevja, at neyðug tiltøk verða sett í verk til tess at byrgja fyri eldvanda, eldspjaðing ella spreinging, ella til tryggingar av fullgóðum rýmingar-, bjargingar- og sløkkingarmøguleikum, um eldur kemur í, ella um óhapp stendst av vandamiklum evnum.

@@ -1,0 +1,1 @@
+§ 26. Tá skaðahending ella vanlukka er, hava kommunala tilbúgvingin og landstilbúgvingin rætt til at nýta vatn í brunnum, vatnleiðingum og øðrum, har vatn er. Samsýning kann ikki verða kravd fyri tað vatn, sum kommunala tilbúgvingin ella landstilbúgvingin brúkar.

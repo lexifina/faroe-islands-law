@@ -1,0 +1,2 @@
+§ 9. Tá tað er neyðugt, orsakað av stødd ella vavi á skaðahending ella vanlukku, skal kommunal tilbúgving veita hjálp til aðra kommunala tilbúgving, uttan so, at tørvur er á manning og amboðum aðrastaðni samstundis.
+Stk. 2. Um so er, at eingin avtala er gjørd frammanundan um endurgjald, skulu tær beinleiðis útreiðslur, ið standast av at veita hjálp, verða endurgoldnar av teirri kommunu, sum hevur biðið um hjálpina. Stk. 3. Ósemjur um endurgjald verða avgjørdar av landsstýrismanninum í tilbúgvingarmálum.

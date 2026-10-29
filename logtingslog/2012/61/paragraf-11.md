@@ -1,0 +1,1 @@
+§ 11. Landsstýrismanninum í tilbúgvingarmálum verður heimilað, í samráð við kommunurnar, í kunngerð at áseta nærri reglur um vavið á uppgávunum, sum kommunalu tilbúgvingarnar skulu røkja, og um tilbúgvingarliga samstarvið millum kommunur og millum landið og kommunurnar sbrt. §§ 8, 9 og 10.

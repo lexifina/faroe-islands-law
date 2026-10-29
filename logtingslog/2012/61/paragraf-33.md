@@ -1,0 +1,1 @@
+§ 33. Landsstýrismaðurin í tilbúgvingarmálum kann frá øllum krevja upplýsingar um, hvørji tilbúgvingarlig tiltøk eru sett í verk, ella ætlanir eru um at seta í verk, umframt upplýsingar, sum vera mettar neyðugar til at fremja uppgávurnar í tilbúgvingini.

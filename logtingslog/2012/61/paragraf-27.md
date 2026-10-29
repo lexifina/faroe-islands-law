@@ -1,0 +1,1 @@
+§ 27. Tilbúgvingarmanning skal, í sambandi við átøk, geva sær far um, hvussu skaði ella vanlukka er íkomin. Verður okkurt illgrunavert funnið, skal beinanvegin boðast løgregluni frá, og um til ber, skulu prógv fyri hesum varðveitast.

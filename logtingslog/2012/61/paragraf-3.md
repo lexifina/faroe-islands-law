@@ -1,0 +1,1 @@
+§ 3. Landsstýrismaðurin í tilbúgvingarmálum samskipar tilrættisleggingina av tilbúgvingini og skal á tann hátt tryggja eina samvirkandi tilbúgving fyri alt landið og veitir myndugleikum, kommunum og fyritøkum ráðgeving.

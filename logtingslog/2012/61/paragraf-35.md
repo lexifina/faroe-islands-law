@@ -1,0 +1,2 @@
+§ 35. Landsstýrismanninum í tilbúgvingarmálum verður heimilað í kunngerð at áseta nærri reglur um atgerðir, sum skulu setast í verk, tá tiltøk eru, innandura sum uttandura, fyri at fyribyrgja skaða á fólk, djór, umhvørvi, virði og ognir.
+Stk. 2. Landsstýrismaðurin í tilbúgvingarmálum kann gera av, at tá tiltøk eru, skal vaktarhald vera, sum kommuna stendur fyri, og sum fyriskiparin skal gjalda fyri eftir taksti, sum kommuna ásetir. Tann, sum hevur vaktarhald, skal hava hóskandi samleikaprógv, og kann vera til staðar uttan rættarúrskurð.

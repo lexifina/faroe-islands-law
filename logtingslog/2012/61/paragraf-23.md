@@ -1,0 +1,1 @@
+§ 23. Kommunali tilbúgvingarleiðarin, ella átaksleiðarin vegna hann, skal, tá tað verður mett neyðugt í sambandi við uppgávur sbrt. § 8, senda boð eftir hjálp frá aðrari kommunalari tilbúgving, og um neyðugt senda boð eftir hjálp frá landstilbúgvingini.
