@@ -1,0 +1,4 @@
+§ 43. Í málum um burturbeining av olju, sum eru brot á § 7, stk. 1, ella á reglur, ásettar sambært § 7, stk. 2, kunnu skip verða hildin aftur av løgregluni ella tí, sum landsstýrismaðurin heimilar.
+Stk. 2. Skip kann verða hildið aftur, um tað er neyðugt at tryggja krav um rindan av bót, málskostnað ella inndrátti, herundir inndrátti av virðum, tó bert til nevndu upphæddir eru goldnar, ella trygd er veitt. Verður hetta ikki gjørt innan 2 mánaðir eftir, at málið er endaliga avgjørt, kann fulnaður søkjast í skipinum. Skipið kann tó ikki verða hildið aftur, um tann, sum hevði ræðið á skipinum, tá ið burturbeiningin varð framd, av órøttum hevði ræði á tí.
+Stk. 3. Landsstýrismaðurin ella tann, sum landsstýrismaðurin heimilar, kann harumframt halda aftur skjøl, pappír og onnur prógv av líknandi slagi.
+Stk. 4. [^2] Tá ið skip verður hildið aftur, verður kapittul 69 í rættargangslógini um lóghald nýtt við teimum broytingum, sum fylgja av stk. 1-3.

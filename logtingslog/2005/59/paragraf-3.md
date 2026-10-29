@@ -1,0 +1,1 @@
+§ 3. Í fyrisiting av lógini og tá ið heimildirnar í lógini verða nýttar, skal dentur m.a. leggjast á eina vistskipanarliga tilgongd, varsemi mótvegis náttúru og umhvørvi og nýtslu av bestu tøku tøknini.

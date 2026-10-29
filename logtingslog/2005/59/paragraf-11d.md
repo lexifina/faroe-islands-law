@@ -1,0 +1,1 @@
+§ 11 d. Skip skulu, í tann mun tað ber til, lata vera við at taka barlastarvatn, sum inniheldur møguligar skaðiligar og sjúkuelvandi verur, eins og at taka barlastarvatn, har ógvusligur vøkstur av eitrandi æti er.

@@ -1,0 +1,1 @@
+§ 29. Landsstýrismaðurin kann áseta reglur um, at sølufyritøkur, innflytarar, útflytarar, farmasendarar og havnamyndugleikar skulu lata upplýsingar um samanseting og nøgd av evnum og tilfari, ið verða lastað og lossað í føroyskum havnum.

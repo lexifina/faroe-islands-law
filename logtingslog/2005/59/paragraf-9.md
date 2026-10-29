@@ -1,0 +1,1 @@
+§ 9. Landsstýrismaðurin kann áseta reglur um uppskipan og burturbeining av tangaskolivatni og reglur um eftirlit við, at ásetingarnar verða hildnar, eitt nú um útnevning av persónum, ið skulu fremja eftirlitið og heimildir teirra.

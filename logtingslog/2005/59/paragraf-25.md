@@ -1,0 +1,3 @@
+§ 25. Nýtsla av evnum ella tilfari (kemikalium) fyri at basa dálking, ella fyri at granska basingarmøguleikar kann bert fara fram við loyvi frá landsstýrismanninum. Uttan fyri føroyskt sjóumveldi kann loyvi harumframt veitast av heimilaðum myndugleikum í einum landi, sum hevur tikið undir við altjóða sáttmálanum um at fyribyrgja dálking frá skipum.
+Stk. 2. Loyvi sambært stk. 1, 1. pkt. kann bert gevast í einstøkum førum, ella um serligar umstøður gera seg galdandi í eitt nærri ásett tíðarskeið. Í loyvinum skal vera ásett, hvørji evni kunnu nýtast, nøgd, ið kann nýtast, treytir um goymslu, eftirlit og fráboðan.
+Stk. 3. Landsstýrismaðurin kann áseta reglur um nýtslu av kemikalium til niðurberjing av oljudálking.

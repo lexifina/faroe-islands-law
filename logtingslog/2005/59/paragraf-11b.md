@@ -1,0 +1,5 @@
+§ 11 b. Loyvt er einans at tøma barlastarvatn sambært reglunum, sum eru ásettar í hesum kapitli, og reglum, sum eru ásettar við heimild í hesum kapitli. Barlastarvatn skal viðgerast í einari góðkendari og virknari skipan, sum lýkur krøvini í altjóða viðgerðarstandardum.
+Stk. 2. Landsstýrismaðurin kann áseta reglur um tøming av barlastarvatni, útskifting og viðgerð av barlastarvatni o.tíl.
+Stk. 3. Landsstýrismaðurin kann áseta reglur um, at hann í ávísum førum kann veita undantak frá viðgerðarkravinum sambært stk. 2. Reglur kunnu tá ásetast um, at viðkomandi, sum hevur ábyrgd av skiparakstrinum, og sum søkir um undantaksloyvi, fyri egna rokning skal lata gera kanningar av vandum í sambandi við tøming av óviðgjørdum barlastarvatni og senda inn kanningarúrslit umframt upplýsingar um, hvussu kanningarnar eru gjørdar og av hvørjum.
+Stk. 4. Landsstýrismaðurin kann áseta reglur um góðkenning av royndarætlanum fyri nýggja barlastarvatntøkni og um, at skip, sum luttaka í slíkum royndum, ikki eru áløgd kravið um viðgerð sambært stk. 2.
+Stk. 5. Landsstýrismaðurin kann áseta reglur um ásetan av økjum, har loyvt er at tøma óviðgjørt barlastarvatn.

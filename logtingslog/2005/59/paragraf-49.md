@@ -1,0 +1,1 @@
+§ 49. Reglur, sum eru ásettar við heimild í kongligu fyriskipanini, nevnd í § 48, stk. 2, verða verandi í gildi, til reglur, ásettar við heimild í hesi lóg, koma í staðin. Brot á reglurnar verða revsað sambært reglunum, sum higartil hava verið galdandi.

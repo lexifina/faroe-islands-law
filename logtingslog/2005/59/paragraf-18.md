@@ -1,0 +1,2 @@
+§ 18. Loyvi til søkking av tilfari, sum er tikið upp av havbotninum, kann verða veitt, um mett verður, at hetta ikki hevur týðandi dálking við sær.
+Stk. 2. Landsstýrismaðurin kann m.a. fyri at fremja altjóða sáttmálar áseta reglur um veitan av loyvi til søkking av havbotnstilfari, hvørji fyrilit takast skulu, tá ið mett verður um umsóknir, undir hvørjum treytum loyvi kunnu veitast, og at umsøkjarar fyri egna rokning skulu gera kanningar av havbotnstilfarinum.

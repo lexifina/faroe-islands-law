@@ -1,0 +1,1 @@
+§ 37. Landsstýrismaðurin kann áseta reglur um, hvussu upplýsingar, herundir formkrøv til skrivligar og elektroniskar upplýsingar, sum verða kravdar sambært lógini og reglum, ásettar sambært lógini, skulu latast.

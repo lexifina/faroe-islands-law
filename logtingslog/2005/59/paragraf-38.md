@@ -1,0 +1,2 @@
+§ 38. Útgerð ella skipanir, sum eru kravdar umborð á skipum ella havstøðum sambært hesi lóg ella í reglum, ásettar sambært lógini, skulu vera góðkendar av landsstýrismanninum ella tí myndugleika, sum landsstýrismaðurin hevur heimilað.
+Stk. 2. [^1] Er talan um útlendsk skip, skulu skipanirnar ella útgerðin góðkennast av heimilaðum myndugleika í einum landi, sum hevur tikið undir við sáttmálanum um fyribyrging av dálking frá skipum, samanber tó ásetingarnar um góðkenning av skipanum til viðgerð av barlastarvatni í § 11 a, stk. 3 og 4, og § 11 c.

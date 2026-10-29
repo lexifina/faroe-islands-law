@@ -1,0 +1,1 @@
+§ 28. Landsstýrismaðurin kann m.a. fyri at fremja altjóða sáttmálar áseta reglur um at lata upplýsingar um vandamikið ella dálkandi góðs umborð á skipum og um at seta í verk skipan at taka ímóti, goyma og lata slíkar upplýsingar víðari.

@@ -1,0 +1,1 @@
+§ 50. Avgerðir, tiknar sambært reglunum, nevndar í § 48, stk. 2 og § 49, varðveita gildi, til nýggj avgerð verður tikin sambært hesi lóg ella sambært reglum, ásettar við heimild í hesi lóg. Brot á slíkar avgerðir verða revsað sambært teimum reglum, sum higartil hava verið í gildi.

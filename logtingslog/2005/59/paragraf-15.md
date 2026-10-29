@@ -1,0 +1,2 @@
+§ 15. Landsstýrismaðurin kann m.a. fyri at fremja altjóða sáttmálar áseta reglur um serlig tiltøk fyri at minka um luftdálkingina frá skipum og havstøðum, sum t.d. krøv til brennievni.
+Stk. 2. Landsstýrismaðurin kann áseta reglur um, at fyritøkur, ið selja ella lata brennievni til skip ella havstøðir, fyri egna rokning skulu útvega, goyma og lata upplýsingar um nøgd og samanseting av selda ella latna brennievninum.
