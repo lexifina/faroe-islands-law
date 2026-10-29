@@ -1,0 +1,1 @@
+§ 1. Fyri vegleiðandi ummæli sum Vanlukkutryggingarráðið gevur um persónsskaða, sum ikki er fevndur av arbeiðsskaðatryggingarlógini, verður goldið til Vanlukkutryggingarráðið kr. 2.000,00 fyri hvørt ummæli.
