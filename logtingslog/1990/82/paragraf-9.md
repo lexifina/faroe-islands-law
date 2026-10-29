@@ -1,0 +1,2 @@
+§ 9. [^1] Verður søk reist móti tryggingarfelag av einum, sum komin er fyri skaða, skal felagið boða ánaranum av hundinum til hvønn rættarfundin við freist sum eftir § 217 eftir rættargangslógini, er galdandi fyri vitnir í borgarligum málum. Tilsøgnin skal siga, hvat stendur í stk. 2.
+Stk. 2. Tann, sum fær tilsøgn eftir stk. 1, kann gerast partur í málinum við at boða frá tí til rættarbókina. Ger hann ikki tað, er avgerðin í endurgjaldsspurninginum við dómi ella sátt bindandi fyri hann.

@@ -1,0 +1,1 @@
+§ 2. Tað er forboðið at hava hund á støðum, har ongin býr, uttan so at løgreglan gevur loyvi til tess. Tílíkt loyvi kann bert verða givið, tá ið nóg góð trygd fæst fyri, at hundurin verður fullvæl ansaður og loyvi kann takast aftur, nær tað skal vera.

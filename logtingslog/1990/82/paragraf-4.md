@@ -1,0 +1,1 @@
+§ 4. Ger hundur grannum ónáðir, tí hann goyr ella hvínur og gevst ikki, og kæra verður givin inn til løgregluna, leggur hon honum, sum hevur hundin, ta treytina við at hava hundin inni læstan, ella um tað einki batti, ella um hundurin longu var innilæstur, at beina fyri honum.
