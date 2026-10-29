@@ -1,0 +1,2 @@
+§ 1. Musikkskúlamiðnámsútbúgvingin er ein 3 ára tónleikaútbúgving, ið gevur framkomnum næmingum eitt skipað undirvísingartilboð á miðnámsstigi, fyrireikar evnaríkar næmingar til nám á hægri tónlistaskúla, og kann geva áhugaleikarum í Føroyum eina holla tónleikaútbúgving.
+Stk. 2. Miðnámsstig liggur millum vanligan musikkskúla og musikkkonservatorium. Vanligt byrjanarstig er ájavnt 6. stigi hjá Associated Board of The Royal Schools of Music.
