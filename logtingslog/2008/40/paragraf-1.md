@@ -1,0 +1,3 @@
+## Umlegging av virksemi, ogn og skuld v.m.
+§ 1. Landsstýrismanninum verður heimilað at gera avtalur um at leggja virksemið hjá Vága Floghavn í P/F Vága Floghavn saman við ogn, skuld, rættindum og skyldum. Umleggingin fær roknskaparligan og skattligan virknað frá 1. januar 2008.
+Stk. 2. [^1] Heimilað verður landsstýrismanninum at hækka partapeningin í felagnum við tilsamans upp til 365 mió. kr. við tí endamáli at leingja flogvøllin til 1799 metrar, útbyggja terminalin og gera aðrar útbyggingar. Umframt hetta verður heimilað landstýrismanninum at hækka partapeningin í felagnum við teimum upphæddum, sum verða játtaðar á Løgtingsins fíggjarlóg, jbr. stk. 1, og í tann mun, hetta er neyðugt fyri at tryggja ein støðugan rakstur av felagnum.
