@@ -1,0 +1,1 @@
+§ 4. Henda kunngerð fær gildi dagin eftir, at hon er kunngjørd. Samstundis fer úr gildi kunngerð nr. 166 frá 3. desember 1992 um frítøku fyri avgjaldsskyldu sambært lóg um meirvirðisgjald fyri vælgerandi tiltøk.
