@@ -1,0 +1,1 @@
+§ 2. Landsstýrismanninum verður heimilað uttan viðurlag at avhenda til felagið allar forkanningar og annað tilfar, ið Landsverk hevur framleitt í sambandi við verkætlanina um fast samband um Skopunarfjørð. Slík avhending hevur ikki skattligar avleiðingar við sær fyri felagið.
