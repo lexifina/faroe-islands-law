@@ -1,0 +1,5 @@
+§ 7. Landsstýrismaðurin kann veita loyvi til vinnuliga gagnnýtslu av grundvatni, sum rennur í ella sum kann vinnast burtur úr undirgrundini, tá alment er lýst eftir umsóknum.
+Stk. 2. Landsstýrismaðurin kann somuleiðis veita virkjum og fyritøkum loyvi at gagnnýta grundvatn á egnum ella leigaðum grundøki, um vatnið skal brúkast til ta vinnuligu framleiðsluna hjá virkinum ella fyritøkuni. Loyvi verður latið eftir umsókn.
+Stk. 3. Treytað av, at vatnnøgdin er nóg stór, kunnu fleiri loyvi latast til somu keldu ella grundvatnsgoymslu.
+Stk. 4. Loyvi til vinnuliga gagnnýtslu av grundvatni kann bara latast smápartafelag ella partafelag, sum er skrásett hjá Skráseting Føroya, ella sum er fráboðað Skráseting Føroya sum undir stovnan, og sum hevur høvuðssæti í Føroyum.
+Stk. 5. Landsstýrismaðurin ásetur í kunngerð nærri reglur og treytir fyri vinnuligari gagnnýtslu av grundvatni, undir hesum m.a. treytir um jarðfrøðiligar boriroyndir, boritøkni, um at máta vatnnøgdir og vatngóðsku, og um at lata myndugleikunum upplýsingar um hesi viðurskifti.
