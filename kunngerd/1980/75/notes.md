@@ -1,0 +1,1 @@
+[^1]: Broytt við kunngerð nr. 96 frá 30. oktober 2007. Skeltini eru ikki tikin við her á síðuni men eru at finna í kunngerðablaði A 2007 á síðu 205 og í litum á vinstra bredda á hesi síðuni á logir.fo undir “Skjøl”.

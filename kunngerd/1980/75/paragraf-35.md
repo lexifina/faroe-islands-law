@@ -1,0 +1,1 @@
+§ 35. Innkoyring til privata ogn kann eigarin merkja við reyðum endurskini. Hetta má ikki vera størri enn 30 cm2 og má ikki verða sett nærri enn 1,5 m frá kanti á akbreyt á tí meira týðandi vegnum. Góðkenning frá vegamyndugleikanum krevst til uppseting av endurskini á øki, sum hoyrir til tann meira týðandi vegin.

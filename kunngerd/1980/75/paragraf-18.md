@@ -1,0 +1,1 @@
+§ 18. Leiðbeiningarskelti verða sett nærindis tí staði ella við byrjan á tí vegastrekki, sum skeltið viðvíkur. Skelti, sum verða sett nakað burturfrá, kunnu hava fráleikan tilskilaðan í neðra ella á undirskelti.

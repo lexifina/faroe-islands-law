@@ -1,0 +1,1 @@
+§ 4. Ferðsluskelti hava vanliga gildi fyri alla ferðslu frameftir. Týdningur teirra kann tó avmarkast til bert at hava gildi fyri ferðslu á ávísum farbreytum. Hetta kann verða gjørt týðiligari við pílum, sum vísa niðureftir á upphongdum talvum.

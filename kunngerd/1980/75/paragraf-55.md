@@ -1,0 +1,1 @@
+§ 55. Uttan mun til merking kann akfar, ið verður nýtt í vegarbeiði, so varisliga sum gjørligt verða koyrt soleiðis, sum arbeiðið krevur. Neyðsendarakstur skal fara fram sambært reglum, sum eru fyri hesum. Sama er galdandi fyri aðrar bólkar av ferðandi, sum hava serligar reglur t.d. avlamin.

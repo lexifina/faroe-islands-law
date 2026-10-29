@@ -1,0 +1,1 @@
+§ 54. Á almennum vegi kunnu upplýsingar verða givnar á best hóskandi hátt eftir umstøðunum, tá tær bert eru fyri gongufólk, og tá merkingin verður sett upp við gongugøtu, sum ikki liggur við veg, ið motorakandi kunnu nýta.

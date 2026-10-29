@@ -1,0 +1,1 @@
+§ 41. Til sundurskiljing av gøtu í breytir til ymisk sløg av ferðslu ella ymiskar ferðsluleiðir verður nýtt smøl óbrotin ella brotin strika. Óbrotna striku er í vanligum umstøðum ikki loyvt at fara um.

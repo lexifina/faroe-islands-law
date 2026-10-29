@@ -1,0 +1,1 @@
+§ 34. Steyrar og aðrir fastir lutir nær kanti á akbreyt kunnu verða merktir við endurskini við sama liti sum á jaðarastólpum. Í serligum førum kunnu verða nýttar jaðaramerkingarplátur. Mastrarspenni, klænir steyrar og tílíkt kunnu merkjast við skiftandi hvítum og reyðum liti.

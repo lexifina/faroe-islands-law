@@ -1,0 +1,2 @@
+§ 39. Merking á akbreyt, súklubreyt v.m. er hvít. Gul merking verður tó nýtt til bráðfengis ferðslustýring t.d. tá vegarbeiði fer fram, ella vegur er umlagdur, og hon skal aktast fram um hvíta merking. Harumframt verður gul merking nýtt til T 61 Steðgforboð og T 62 Parkeringarforboð, smb. § 45.
+2. stk. Í staðin fyri ella aftrat merkingini kunnu verða nýttir ferðslunaglar, sum kunnu verða útgjørdir við endurskini við litum sum eftir 1. stk.
