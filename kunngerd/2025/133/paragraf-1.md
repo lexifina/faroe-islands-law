@@ -1,0 +1,1 @@
+§ 1. Henda kunngerð er galdandi fyri føroysk skip á 300 BT ella meira og fyri útlendsk skip á 300 BT ella meira, sum koma í ella fara úr føroyskari havn ella øðrum lastingarstaði ella lossingarstaði í Føroyum ella í føroyskum sjóøki innanfyri 200 fjórðingar úr grundlinjunum, ella byrjar at sigla regluliga í føroyskum sjóøki.

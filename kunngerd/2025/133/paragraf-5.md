@@ -1,0 +1,4 @@
+§ 5. Um skipið ikki hevur eitt loyvisbræv sbrt. § 4, skal reiðari hjá skipi, ið siglir undir føroyskum flaggi, eisini skipi, sum er leiguskrásett í Føroyum, boða Sjóvinnustýrinum frá, hvør trygging er teknað. Um skipið hevur eitt skjal sbrt. § 4, er ongin fráboðanarskylda.
+Stk. 2. Fráboðan um trygging sbrt. stk. 1 skal latast Sjóvinnustýrinum eina ferð um árið.
+Stk. 3. Um skipið ikki hevur skjal sbrt. § 4, kann Sjóvinnustýrið í serligum føri krevja prógv fyri, at tann, ið hevur veitt tryggingina, sbr. § 2, hevur loyvi at reka slíkt virksemi í landinum, har hann hevur heimstað, og at hann er fíggjarliga førur fyri at veita fulnað fyri møguligum sjórættarligum krøvum.
+Stk. 4. Henda broytingar í tryggingini, sum kunnu ávirka gildi loyvisbrævsins, hevur reiðarin, so skjótt hann fær kunnleika til hetta, skyldu at boða Sjóvinnustýrinum frá hesum.

@@ -1,0 +1,1 @@
+§ 4. Eitt skjal, Certificate of Entry, sum lýkur krøvini í § 3 og vísir, at tryggingin er teknað hjá einum limi í The International Group of P&I Clubs, verður góðkent sum loyvisbræv sbrt. § 153 í anordning om ikrafttræden for Færøerne af søloven.
