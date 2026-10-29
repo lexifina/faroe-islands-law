@@ -1,0 +1,1 @@
+§ 12. Eitt próvtøkusvar skal vera próvtakarans egna sjálvstøðuga svar, um ikki annað er ásett. Kommunali musikkskúlaleiðarin vísir próvtakara burtur frá avvarðandi próvtøku, um próvtakarin útvegar sær sjálvum ella veitir øðrum ólógliga hjálp, ella nýtir hjálparmiðlar, sum ikki eru loyvdir.
