@@ -1,0 +1,1 @@
+§ 6. Útflýggjanarstøðini, sambært § 4, kunnu mánadag til fríggjadag hava opið millum kl. 10:00 og kl. 18:00, tó ein av døgunum til kl. 19:00. Leygardag kunnu útflýggjanarstøðini hava opið millum kl. 10:00 og kl. 16:00.
