@@ -1,0 +1,1 @@
+§ 2. Verður biðið um avrit ella fotoavrit umframt fyrsta eintakið av skjølunum í einum máli, ið verða latin eftir áheitan sambært fyrisitingarlógini, krevur viðkomandi myndugleiki fyri hesi 20 kr. fyri fyrstu síðuna og 1 kr. fyri hvørja byrjaða næstu síðu av skjølunum í málinum.
