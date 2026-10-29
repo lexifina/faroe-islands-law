@@ -1,0 +1,1 @@
+§ 3. Gjaldið í § 2 skal verða tikið fyri tíð, sum Heilsufrøðiliga starvsstovan nýtir til eftirlit á staðnum og/ella til málsviðgerð. Gjald skal ikki verða tikið fyri tíð, sum Heilsufrøðiliga starvsstovan nýtir til ferðing.

@@ -1,0 +1,2 @@
+§ 1. Fyri eftirlit við transitti, lossing og lasting í fríhavnum, frílagrum og lagrum í fríøki o.t. av animalskum vørum (non-conformum vørum) úr triðjalondum, sum ikki lúka reglurnar fyri innflutningi, og sum aftur skulu útflytast (reeksporterast) til triðjaland, tekur Heilsufrøðiliga starvsstovan gjald eftir fylgiskjali 1.
+Stk. 2. Gjaldið, nevnt er í stk. 1, skal verða goldið Heilsufrøðiligu starvsstovuni, áðrenn vøra verður frígivin.
