@@ -1,0 +1,1 @@
+§ 34. Landsstýrismaðurin kann áseta gjøllari reglur um valið, um brævatkvøður og uppgerð av valinum, umframt fráboðan um uppstillaðu valevnini og um úrslitið av valinum og kann áseta gjøllari reglur um kunning um valið.

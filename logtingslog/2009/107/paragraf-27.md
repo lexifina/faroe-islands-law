@@ -1,0 +1,2 @@
+§ 27. Tá ið veljari hevur atkvøtt, og fylgibrævið er rætt útfylt og váttað, leggur hann brævbjálvan við atkvøðuseðlinum og fylgibrævið í tann størra brævbjálvan, sum hann klistrar aftur. Eisini skrivar hann týðiliga navn og bústað í teigin á baksíðuni á størra brævbjálvanum.
+Stk. 2 Brævbjálvin verður síðani handaður honum, sum atkvøtt er hjá. Hesin syrgir fyri, at brævbjálvin er valstýrinum í hendi í góðari tíð, áðrenn atkvøðugreiðslan byrjar.

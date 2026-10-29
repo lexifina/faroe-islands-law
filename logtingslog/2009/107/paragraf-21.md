@@ -1,0 +1,3 @@
+§ 21. Útflýggjaður atkvøðuseðil kann latast inn aftur í býti við nýggjan atkvøðuseðil, áðrenn veljarin er liðugur at greiða atkvøðu. Valstýrið sær til, at atkvøðuseðil, ið ikki verður nýttur, verður gjørdur ógildur.
+Stk. 2. Tá ið steðgur kemur í atkvøðugreiðsluna, aftan á ta klokkutíð, sum ásett er at enda valið, skal valið verða lýst liðugt, tó soleiðis, at limir í valstýrinum og hjálparfólk tess tá beinanvegin hava rætt til at atkvøða og lata inn atkvøðuseðlar sínar.
+Stk. 3. Tað er bannað at lýsa við valtilfari inni í valhølinum. Valstýrið hevur ábyrgdina av, at onki, sum kann órógva valið, er í hølinum ella beint við valhølið. Øll, sum eru í valhølinum, skulu annars gera eftir boðum frá valstýrinum.

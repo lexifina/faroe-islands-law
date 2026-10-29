@@ -1,0 +1,2 @@
+§ 33. Verður valið ógildað, skipar biskupur sum skjótast fyri umvali. Á umvalinum kunnu einans tey, ið vóru á vallista og høvdu valrætt á valdegnum, greiða atkvøðu. Biskupur ger reglur um, hvussu umvalið verður kunngjørt. Harumframt ásetir biskupur tíðarfreistir fyri framløgu av vallista, innlating av kærum o. ø. samsvarandi ásetingunum í hesi lóg.
+Stk. 2. Verður valið av einum limi ógildað, kemur næst valdi inn fyri henda sum valdur. Ber hetta ikki til, skipar biskupur sum skjótast fyri ískoytisvali.

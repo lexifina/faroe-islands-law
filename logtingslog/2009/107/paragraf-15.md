@@ -1,0 +1,7 @@
+## Valevnislistar
+§ 15. Valið fer fram sambært valevnislistum, har navngivnir persónar eru valevni.
+Stk. 2. Valevnislistarnir skulu vera formanninum í valstýrinum í hendi í seinasta lagi kl. 22.00 seks vikur undan valdegnum.
+Stk. 3. Í mesta lagi 9 nøvn fleiri enn tey, ið veljast kunnu í kirkjuráðið, kunnu vera á valevnislistanum. Valevnini skulu skriva undir listan, og í minsta lagi 3 og í mesta lagi 25 veljarar í kirkjusóknini – kortini ikki fleiri enn 20% av teimum, sum hava valrætt – skriva undir sum stillarar. Valevni er ikki stillari. Serligur listi yvir stillararnar, har teir skilliga eru lýstir við navni, starvi og bústaði, skal vera lagdur hjá. Valevni og stillarar kunnu eisini skriva undir á avrit av valevnislistanum. Eisini kunnu valevni og stillarar í staðin fyri undirskrift vátta luttøku sína við brævi, telefaksi ella telduposti o.l. Ein stillari skal lata valevnislistan inn, og hevur hesin rætt til at fáa kvittan frá formanninum í valstýrinum fyri, at hann hevur tikið ímóti listanum, og nær.
+Stk. 4. Valevnini verða stillað upp í bókstavarøð. Ikki er loyvt valevnislista at skipa listasamband við annan valevnislista.
+Stk. 5. Stillar nakar upp á meira enn einum valevnislista, verður valið ógildugt, um tað fellur á hann, og verður atkvøðutal hansara ikki talt við.
+Stk. 6. Hann, sum stendur sum stillari fyri fleiri listar, verður ikki roknaður sum stillari á nøkrum lista.

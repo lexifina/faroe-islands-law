@@ -1,0 +1,3 @@
+§ 2. Valdu limirnir í kirkjuráðnum skulu í minsta lagi verða 4 og í mesta lagi 12.
+Stk. 2. Talið á valdum limum verður ásett í mun til kirkjufólkið í kirkjusóknini pr. 1. februar í valárinum. Biskupur útvegar valstýrunum upplýsingar um talið av kirkjufólki frá avvarðandi myndugleika og boðar frá, hvussu nógvir limir skulu veljast í kirkjuráðið.
+Stk. 3. [^1] Talið á valdum kirkjuráðslimum er 4 fyri tey fyrstu 59 kirkjufólkini í kirkjusóknini. Í kirkjusókn við 60-999 kirkjufólkum eru 6 limir í kirkjuráðnum. Talið á limum verður síðani økt við einum limi fyri hvørji 1000 kirkjufólk, tó so, at í mesta lagi eru 12 valdir limir.

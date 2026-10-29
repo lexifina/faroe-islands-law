@@ -1,0 +1,1 @@
+§ 49. Kæra um gildi av valinum skal vera landsstýrismanninum í hendi í seinasta lagi 5 dagar eftir, at valúrslitið er kunngjørt. Eftir at hava fingið ummæli frá valstýrinum, tekur landsstýrismaðurin avgerð í málinum. Avgerð landsstýrismansins er endalig innan fyrisitingina.

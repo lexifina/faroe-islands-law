@@ -1,0 +1,3 @@
+§ 7. Kirkjufólk, ið hoyrir til aðra kirkjusókn í prestagjaldinum ella hevur loyst sóknarband, sbr. § 8 í løgtingslóg um at brúka kirkju og um limaskap í fólkakirkjuni, kann verða verandi skrásett í kirkjusóknini, har tað býr, ella lata seg skráseta í kirkjusóknini, tað hevur knýtt seg til.
+Stk. 2. Kirkjufólk eru einans valbær í kirkjusóknini, har tey eru skrásett sum veljarar.
+Stk. 3. Sóknarbandsloysari, sum er valdur inn í kirkjuráðið í kirkjusóknini, viðkomandi hevur knýtt sóknarband til, varðveitir sætið, til nýtt kirkjuráð tekur við, hóast sóknarpresturin, sum sóknarband er knýtt til, er farin úr embæti. Á sama hátt verður starvið sum tiltakslimur varðveitt.

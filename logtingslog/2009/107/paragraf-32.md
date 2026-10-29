@@ -1,0 +1,2 @@
+§ 32. Kæra um valið skal vera biskupi í hendi í seinasta lagi 5 yrkadagar aftan á valið. Biskupur ger úrskurð í seinasta lagi 5 yrkadagar eftir, at hann hevur fingið kæruna.
+Stk. 2. Kærarin ella valstýrið kunnu innan 5 yrkadagar skjóta avgerð biskups inn fyri landsstýrismannin. Landsstýrismaðurin ger úrskurð í seinasta lagi 5 yrkadagar eftir, at hann hevur fingið kæruna. Úrskurður landsstýrismansins er endaligur innan fyrisitingina.

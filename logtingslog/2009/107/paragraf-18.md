@@ -1,0 +1,1 @@
+§ 18. Er bert ein valevnislisti komin inn, tá freistin at lata inn listar eftir § 16, stk. 1 er farin, ella verður bert ein listi góðkendur, kann valstýrið í kirkjusóknum við færri enn 500 kirkjufólkum avlýsa valið og heita á stillararnar um at raðfesta valevnini. Skilligt skal vera, hvørji verða vald, og í hvørji raðfylgju varalimir skulu vera. Varalimir eru ikki persónligir

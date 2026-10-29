@@ -1,0 +1,1 @@
+§ 13. Áðrenn serligt val sbrt. § 1, stk. 3 verður hildið, ásetir biskupur, nær valið skal verða, og ger reglur um, hvussu hetta verður kunngjørt. Harumframt ásetir biskupur tíðarfreistir o. a. samsvarandi ásetingunum í hesi lóg.

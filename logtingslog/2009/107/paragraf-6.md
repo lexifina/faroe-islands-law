@@ -1,0 +1,2 @@
+§ 6. Sóknarprestur ella kirkjutænari, sum ikki býr í kirkjusóknini, har hann starvar, kann lata seg skráseta á vallista í teirri kirkjusókn, har hann starvar. Sama rætt hevur hjúnafelagi hjá sóknarpresti og kirkjutænara.
+Stk. 2. Sóknarprestur ella kirkjutænari, sum starvar í tveimum ella fleiri kirkjusóknum, kann lata seg skráseta á vallista í einari av kirkjusóknunum, har hann starvar. Sama rætt hevur hjúnafelagi hjá sóknarpresti og kirkjutænara.
