@@ -1,0 +1,2 @@
+§ 16. Í seinasta lagi 14 dagar undan próvtøku kunnar útbúgvingarstovnurin próvtakararnar um neyðug og loyvd hjálparamboð.
+Stk. 2. Allar próvtøkur fara fram á føroyskum. Próvtøkur kunnu tó fara fram á øðrum máli, uttan so, at endamálið er at prógva førleika próvtakarans í føroyskum máli. Tað er ein fyritreyt, at próvtakari, próvhoyrari og próvdómari hava neyðugan førleika í avvarðandi máli, sum próvhoyrt verður á.

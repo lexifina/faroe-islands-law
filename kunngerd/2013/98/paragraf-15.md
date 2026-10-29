@@ -1,0 +1,4 @@
+§ 15. Møtir lesandi ikki til próvtøku, sum viðkomandi hevur innskrivað seg til, verður henda próvtøkan roknað sum ein av teimum trimum møguleikunum, sum tann lesandi hevur, sambært § 14, stk. 1.
+Stk. 2. Ásetingin í stk. 1 er ikki galdandi fyri lesandi, sum vegna sjúku ella av øðrum váttaðum lógligum forfalli, er forðaður í at møta til próvtøku.
+Stk. 3. Er tann lesandi, vegna sjúku ella av øðrum váttaðum lógligum forfalli, ikki møttur til munnliga próvtøku, kann tann lesandi fara til próvtøku í sama próvtøkuskeiði, um verkligur møguleiki er fyri tí. Um hetta ikki ber til, so við undirvísingarbyrjan í næstu hálvu.
+Stk. 4. Er tann lesandi, vegna sjúku alla av øðrum váttaðum lógligum forfalli, ikki møttur til skrivliga próvtøku, skal tann lesandi fara til skrivliga próvtøku í hesari lærugrein í næsta próvtøkuskeiði.

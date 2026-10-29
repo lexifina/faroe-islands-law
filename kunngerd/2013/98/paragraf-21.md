@@ -1,0 +1,2 @@
+§ 21. Próvtakari, sum verður ov seinur til eina próvtøku, hevur ikki krav upp á at sleppa til próvtøkuna.
+Stk. 2. Um leiðari útbúgvingarstovnsins metir, at ein próvtakari, sum er ov seinur til eina munnliga ella skrivliga próvtøku, ikki kann hava fingið upplýsingar um próvtøkuspurningarnar ella um próvtøkuuppgávuna, at seinkanin er stutt og hevur rímiligar orsøkir, kann leiðari útbúgvingarstovnsins loyva próvtakaranum at fara til próvtøku. Í hesum sambandi verður próvtøkutíðin ikki longd uttan í heilt serligum føri og í samráð við Mentamálaráðið.

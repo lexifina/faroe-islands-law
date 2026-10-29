@@ -1,0 +1,1 @@
+§ 20. Ein skrivlig próvtøka er byrjað, tá byrjað verður at býta próvtøkuuppgávurnar út. Ein munnlig próvtøka er byrjað, tá próvtakarin hevur tikið próvtøkuspurningin, uppgávuna, uppgávuorðingina ella samsvarandi.

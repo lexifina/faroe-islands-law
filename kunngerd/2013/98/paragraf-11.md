@@ -1,0 +1,3 @@
+§ 11. Verður brek ella skeivleiki í próvtøkuspurningi ella í próvtøkuuppgávu staðfestur, skal leiðari útbúgvingarstovnsins alt fyri eitt hava boð um hetta. Leiðari útbúgvingarstovnsins ger, í samráð við serkøn fólk, eina meting av breki ella skeivleika og tekur avgerð um hvussu hesi verða rættað.
+Stk. 2. Ber ikki til at rætta brek ella skeivleikar, kann leiðari útbúgvingarstovnsins í samráð við Mentamálaráðið bjóða próvtakara endurpróvtøku.
+Stk. 3. Mentamálaráðið kann geva skúlanum boð um at ógilda eina próvtøku og skipa fyri endurpróvtøku, um brek ella skeivleikar eru av avgerandi týdningi fyri møguleikarnar at svara spurningi ella at loysa eina uppgávu.
