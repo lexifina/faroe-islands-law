@@ -1,0 +1,1 @@
+§ 2. Næmingurin skal, eftir 3 ára nám, hava førleika til, í kirkjuligum og í samkomuligum høpi, at spæla á orgul til sálmasang, og at spæla inngangsspæl, útgangsspæl og konsertspæl. Eisini skal næmingurin duga at gera forspøl til sálmar og leiða kór.
