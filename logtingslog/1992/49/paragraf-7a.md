@@ -1,0 +1,1 @@
+§ 7 a. [^1] Landsstýrismaðurin kann eftir at hava fingið ummæli frá Dátueftirlitinum áseta nærri reglur um varðveiting av almennum savnindum av slíkum slagi, sum eru fevndar av løgtingslóg um viðgerð av persónsupplýsingum.

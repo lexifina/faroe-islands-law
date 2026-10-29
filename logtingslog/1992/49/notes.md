@@ -1,0 +1,2 @@
+[^1]: Broytt við løgtingslóg nr. 63 frá 30. apríl 2018.
+[^2]: Tílík avtala er gjørd millum forsætismálaráðið og landsstýrið, undirritað ávikavist 30. mars 1990 og 12. oktober 1990. Úr avtaluni er serliga at nevna § 8 stk. 1, 1. pkt., har sagt verður: “Landsarkivaren træffer inden for den gældende danske lovgivnings rammer bestemmelse om offentlighedens adgang til at benytte de afleverede arkivalier.”
