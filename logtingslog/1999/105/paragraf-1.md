@@ -1,0 +1,2 @@
+§ 1. Landsstýrismaðurin stovnar eitt lívs-tryggingarpartafelag við 500.000 kr. í partapeningi, sum verður teknaður av landsstýrinum. Partapeningurin verður ogn landsins, og kunnu partabrøvini ikki avhendast, uttan við heimild í løgtingslóg. Navnið á partafelagnum verður P/f Føroya Lívstrygging.
+Stk. 2. Tryggingareftirlitið, jbr. løgingslóg um tryggingarvirksemi kann loyva, at vikið verður frá ásetingunum um stovnan av lívstryggingarfeløgum í løgtingslóg um tryggingarvirksemi, í tann mun, fyrilit mótvegis tryggingartakarunum ikki tala ímóti.

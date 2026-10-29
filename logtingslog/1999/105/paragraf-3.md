@@ -1,0 +1,1 @@
+§ 3. Tann í løgtingslóg um lívstryggingarvirksemi nevnda landskassaábyrgd er framvegis galdandi fyri tær tryggingaravtalur, sum Føroya Lívstrygging hevur tann 31. desember 1999. Sama er galdandi fyri aðrar skyldur, ið verða yvirtiknar frá Føroya Lívstrygging eftir hesi lóg.
