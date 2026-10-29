@@ -1,0 +1,2 @@
+§ 4. Á bili, hvørs heildarvekt í mesta lagi er 3.500 kg, og motorsúkklu kunnu píkadekk einans verða nýtt, um øll hjól á akfarinum hava hesi. Tó kann annað dekkið vera uttan píkar, tá ið talan er um dupult monterað hjól, tvíburahjól.
+Stk. 2. Á traktori, motoramboði, viðfestisvogni til traktor ella motoramboð, viðfestisamboði og øllum akførum, hvørs loyvda heildarvekt er yvir 3.500 kg, kunnu píkadekk einans verða nýtt, um øll hjól á sama ási hava tey. Tó kann annað dekkið vera uttan píkar, tá ið talan er um dupult monterað hjól, tvíburahjól.
