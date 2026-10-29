@@ -1,0 +1,1 @@
+§ 2. Landsstýrið fær heimild til at endurrinda statinum løn og eftirlønarútreiðslur til 6 tænastumenn, sum verða læntir til Postverk Føroya. Eftirlønarútreiðslurnar verða býttar millum stat og landskassa í mun til eftirlønaraldur ávíkavist hjá Post- og Telefrafvæsenet og Postverk Føroya.
