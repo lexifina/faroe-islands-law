@@ -1,0 +1,1 @@
+§ 6. Listin skal vera latin inn av einum umboði fyri flokkin ella stillara, og hesin hevur rætt til á einum avriti av valevnislistanum at fáa kvittan frá formanninum fyri, at listin er móttikin og nær.

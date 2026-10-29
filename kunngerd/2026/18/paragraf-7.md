@@ -1,0 +1,1 @@
+§ 7. Ongin má stilla upp samstundis til val sum valevni hjá meira enn einum flokki ella stilla upp uttanflokka og samstundis taka undir við einum flokki. Ger nakar ímóti hesum, verður valið, um tað fellur á hann, ógildugt.

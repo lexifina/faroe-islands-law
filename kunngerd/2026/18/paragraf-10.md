@@ -1,0 +1,1 @@
+§ 10. Heldur nevndin, at ein rættstundis innlatin valevnislisti er so ófullfíggjaður, at neyðugt er at gera hann ógildugan, skal nevndin beinanvegin boða viðkomandi umboði fyri flokkin ella viðkomandi stillara frá hesum og geva honum høvi til innan 24 tímar at bøta um brekið.
