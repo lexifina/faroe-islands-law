@@ -1,0 +1,1 @@
+§ 13. TAKS kann frá fyritøkuni, leiðsluni og frá grannskoðaranum, sum sambært § 12, stk. 2, hevur gjørt eina váttan, krevja at fáa tær upplýsingar, sum eru neyðugar fyri at skjalprógva, at krøvini í hesi kunngerð eru hildin. TAKS kann harumframt krevja, at tær upplýsingar, sum eru latnar inn sambært § 12, verða skjalprógvaðar við hjálp frá góðkendum grannskoðara.

@@ -1,0 +1,10 @@
+## Kapittul 5
+## Eftirlit, javning og afturrindan av stuðli
+§ 12. Fyritøkan skal í seinasta lagi 11. september 2020 lata inn til TAKS uppgerð yvir veruliga umsetningin umframt veruligu føstu útreiðslurnar hjá fyritøkuni í stuðulstíðarskeiðinum.
+Stk. 2. Er stuðulsupphæddin fyri fyritøkuna omanfyri 120.000 kr., skal uppgerðin áteknast av góðkendum grannskoðara við váttan við grundaðari vissu. TAKS kann eisini í hvørjum føri sær, hóast 1. pkt., krevja, at uppgerðin skal áteknast av góðkendum grannskoðara við váttan við grundaðari vissu.
+Stk. 3. Fyritøkur, ið hava v-tal, skulu lata inn uppgerð umvegis Vinnugluggan hjá TAKS. Fyritøkur, ið ikki hava v-tal, skulu lata uppgerðina inn á serligum oyðublaði, sum liggur á heimasíðuni hjá TAKS www.taks.fo.
+Stk. 4. Fyritøka skal, tá tað verður kravt, lata ískoytisupplýsingar og skjalprógv til nýtslu í avgerðini um javning eftir stk. 5.
+Stk. 5. Um veruliga afturgongdin í umsetninginum ella veruligu útreiðslurnar í stuðulstíðarskeiðinum hjá fyritøkuni víkja frá tí í sum er upplýst í umsóknini, tekur TAKS, grundað á uppgerð og skjalprógv, sum fyritøkan hevur latið inn, avgerð um javning av stuðlinum, sum er rindaður út. Javnað verður uppeftir ella niðureftir, sbr. § 3, treytað av, at upplýsingarnar frá fyritøkuni, sbr. § 10, hava havt við sær, at tað er rindað ov lítið ella ov nógv í stuðli.
+Stk. 6. TAKS kann krevja, at stuðulin, sum er rindaður út, verður rindaður aftur heilt ella lutvíst, um uppgerð ikki verður latin inn innan fyri ta í stk. 1 ásettu freist, ella um upplýsingar ikki eru latnar inn innan fyri ta freist, sum TAKS hevur ásett sambært stk. 4, umframt um uppgerð og skjalprógv annars ikki verða mett at vera nøktandi.
+Stk. 7. TAKS kann krevja, at stuðulin, sum er rindaður út, verður rindaður aftur heilt ella lutvíst, um treytirnar í løgtingslóg nr. 45 frá 7. apríl 2020 um stuðulsskipan og í hesi kunngerð ikki eru hildnar.
+Stk. 8. Hevur fyritøkan meira enn eina sjálvstøðuga rakstrareind, sbr. § 2, nr. 3, skal gerast upp sambært stk. 1 fyri hvørja rakstrareind sær, sbr. § 4. Stk. 4 verður nýtt samsvarandi. Javnað verður eftir stk. 5 fyri hvørja rakstrareind sær.

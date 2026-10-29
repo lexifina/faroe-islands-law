@@ -1,0 +1,19 @@
+## Kapittul 2
+## Allýsingar
+§ 2. [^1] Í hesi kunngerð skilst við:
+1) Fyritøka:
+a) Ein likamligur persónur, sum fyri egna rokning rekur vinnuligt virksemi, t.e. sjálvstøðugt vinnurekandi, ella
+b) ein løgfrøðiligur persónur, undir hesum parta- og smápartafelag, íognarfelag, kommandittfelag, lutafelag, og aðrar fyritøkur við avmarkaðari ábyrgd ella deild undir útlendskum løgfrøðiligum persóni, sum rekur vinnuligt virksemi í Føroyum.
+2) Vinnuligt virksemi: Søla av vørum ella immateriellum rættindum, tænastuveitingum o.l., sum fyritøkan vanliga móttekur viðurlag fyri ella søla ella útleigan av fastogn, og har fyritøkan hevur sum endamál at fremja fíggjarligu áhugamálini hjá eigaranum av fyritøkuni, eigarunum av ella luttakarunum í felagnum ella fíggjarligu áhugamálini hjá grunninum.
+3) Sjálvstøðug rakstrareind: Geografiska adressan, har virksemið hjá fyritøkuni er staðsett. Ein fyritøka kann ikki hava fleiri sjálvstøðugar rakstrareindir á somu geografisku adressu. Ein fyritøka kann tó hava fleiri sjálvstøðugar rakstrareindir, um sjálvstøðugu rakstrareindirnar verða riknar frá ymiskum hølum, har tað fyri hvørt høli sær er gjørd leiguavtala millum partar, sum ikki eru nærstandandi, sbr. § 2 í konkurslógini, sum lógin er sett í gildi í Føroyum við kongligari fyriskipan, og leiguavtalan er gjørd innan 4. apríl 2020. Hetta er eisini galdandi fyri høli í húsum, sum eru løgd sundur til eigaraíbúðir eftir løgtingslóg um eigaraíbúðir.
+4) Fastar útreiðslur: Skjalfestar útreiðslur viðvíkjandi virkseminum hjá fyritøkuni ella sjálvstøðugu rakstrareindini, knýttar at virksemi í Føroyum, sum eru óheftar av søluni og framleiðsluni hjá fyritøkuni, og sum fyritøkan skal rinda, hóast fyritøkan ikki hevur sølu ella framleiðslu eitt tíðarskeið, undir hesum húsaleiga, el, leasing, tryggingargjøld, fjarskiftisgjøld og hiti umframt rentuútreiðslur o.a. Avskrivingar og avdráttir eru ikki fastar útreiðslur eftir hesi kunngerð. Fyritøkan skal gera føstu útreiðslurnar upp eftir somu meginreglum, sum í seinast góðkenda roknskapinum. Hevur fyritøkan ikki ein roknskap, sum fyrr er góðkendur, skal fyritøkan gera føstu útreiðslurnar upp samsvarandi við ta lóggávu, sum er galdandi fyri fyritøkuna. Hækkingar í føstum útreiðslum kunnu, um tær eru ella verða settar í verk eftir 1. apríl 2020, takast við í umsóknina, um tær verða framdar sambært fastlagdari skipan í upprunaavtaluni. TAKS ger vegleiðing um, hvørjar útreiðslur eru fastar útreiðslur eftir hesi kunngerð.
+5) Umsetningur: Søluvirðið av framleiðslu og tænastuveitingum o.ø., frádrigið avsláttur, meirvirðisgjald og annan skatt. Fyritøkan skal gera umsetningin upp eftir somu meginreglum, sum í seinasta roknskapinum. Hevur fyritøkan ikki ein roknskap, skal fyritøkan gera umsetningin upp samsvarandi við ta lóggávu, sum er galdandi fyri fyritøkuna.
+6) Tilvísingartíðarskeið: Tað samanberingartíðarskeiðið, afturgongdin í umsetninginum verður gjørd upp í mun til, sbr. tó § 10, stk. 2. Tilvísingartíðarskeiðið er:
+a) Frá og við 1. apríl 2019 til og við 30. juni 2019, sbr. tó litra b.
+b) Fyri fyritøkur, sum eru stovnaðar eftir 1. januar 2019, men áðrenn 12. mars 2020, og sum ikki hava ein umsetning í tíðarskeiðinum, nevnt í litra a, er tíðarskeiðið frá og við 1. desember 2019 til og við 29. februar 2020.
+7) Stuðulstíðarskeiðið: Tíðarskeiðið, sum tað verður veittur stuðul fyri føstu útreiðslurnar hjá fyritøkuni. Fyritøkan skal søkja um stuðul fyri alt tíðarskeiðið frá og við 1. apríl 2020 til og við 30. juni 2020.
+8) Gjaldførislutfall: Ogn í umferð býtt við stuttfreistaðari skuld.
+9) Solvensprosent: Eginogn frároknað minnilutaáhugamál býtt við ognir tilsamans falda 100.
+10) EBITDA: Úrslit áðrenn rentu, skatt, avskrivingar og niðurskrivingar.
+11) EBITDA faktor: Skuld býtt við EBITDA.
+12) Ogn í umferð, stuttfreistað skuld, langfreistað skuld. Sum lýst í §§ 25 og 26 í ársroknskaparlógini.
