@@ -1,0 +1,1 @@
+§ 23. Í teimum førum, har fleiri próvtøl verða givin í einari próvtøku, og har bert eitt próvtal verður nýtt, verður eitt vektað miðaltal roknað út. Tá tað verður gjørt, má bert brúkast ein desimalur, og endaliga próvtalið má ikki vera desimaltal.

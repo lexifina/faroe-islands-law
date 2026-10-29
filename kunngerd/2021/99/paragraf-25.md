@@ -1,0 +1,2 @@
+§ 25. Avgerðir tiknar sambært hesi kunngerð, sum ikki eru umfataðar av § 24, kunnu kærast til landsstýrismannin. Freistin er fýra vikur eftir, at avgerðin er fráboðað.
+Stk. 2. Kæra verður skrivliga send Fróðskaparsetri Føroya, ið sendir kæruna víðari til landsstýrismannin saman við sínum ummæli av málinum. Áðrenn málið verður sent landsstýrismanninum, skal Fróðskaparsetur Føroya geva kæraranum høvi til, innan sjey dagar, at gera viðmerkingar til ummælið. Møguligar viðmerkingar hjá kæraranum skulu sendast landsstýrismanninum.

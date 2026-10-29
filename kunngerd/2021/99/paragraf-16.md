@@ -1,0 +1,2 @@
+§ 16. Próvtøkan er staðin sambært minstamarki fyri at verða staðin eftir galdandi próvtalastiga ella staðið. Hvør próvtøka skal vera staðin fyri seg.
+Stk. 2. Í námsskipanini kann verða ásett, at ein samanseting av próvtøkum verður staðin sum ein próvtøka. Í hesum føri skal tann lesandi standa allar partar í samlaðu próvtøkuni. Endaligt próvtal verður eitt vektað miðalpróvtal av próvtølunum frá øllum pørtunum.

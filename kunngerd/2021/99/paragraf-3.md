@@ -1,0 +1,2 @@
+§ 3. Próvtøkurnar skulu leggjast til rættis sum einstaklingspróvtøkur. Í námsskipanini kann tó verða ásett, at ávísar próvtøkur verða lagdar til rættis sum bólkapróvtøkur, har fleiri lesandi verða próvdømd fyri felags avrik. Avrikini hjá teimum lesandi skulu próvdømast hvørt sær.
+Stk. 2. Bachelorritgerð og masterritgerð eru vanliga einstaklingsavrik, men kunnu eftir reglum, sum dekanurin ásetir, avrikast av fleiri lesandi í felag. Avrikini hjá teimum lesandi skulu próvdømast hvørt sær.
