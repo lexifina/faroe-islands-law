@@ -1,0 +1,2 @@
+§ 4. Kann tað ætlast, at arbeiðir koma at misprýða ella skemma natúruna, skulu tiltøk setast í verk fyri at forða ella minka um skaðan.
+Stk. 2. [^1] Vegagerð, setan av el- og telefonsteyrum og onnur arbeiðir, ið kunnu væntast at broyta sereyðkenni við landslagnum munandi, ella at týna leivdir av sermerktari natúr, mugu ikki verða gjørd ella byrjast uttan loyvi frá natúrfriðingarnevndini. Hendir hetta kortini, kann nevndin nokta fyri, at arbeiðið heldur fram og krevja, at avvarðandi ger alt aftur, sum tað var.

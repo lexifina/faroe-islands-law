@@ -1,0 +1,1 @@
+§ 24. Teir úrskurðir, sum yvirfriðingarnevndin ger, eru endaligir og kunnu ikki skjótast inn fyri dómstólarnar, sbr. tó § 73 í grundlógini, men nevndin kann sjálv taka upp aftur eitt mál og møguliga broyta avgerð, hon hevur tikið áður, tá ið serstakar umstøður kunnu gera seg galdandi.
