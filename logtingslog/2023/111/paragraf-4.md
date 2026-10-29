@@ -1,0 +1,3 @@
+§ 4. Uttan mun til ásetingina í § 3 kunnu góðkend framleiðsluvirki innflyta rúsdrekka og ethanol við meira enn 60 rúmprosentum av alkoholi at brúka til rúsdrekkaframleiðslu.
+Stk. 2. Apoteksverkinum er loyvt at innflyta og selja ethanol til tekniska nýtslu og til heilivágsframleiðslu eftir reglum, sum landsstýrismaðurin ásetur.
+Stk. 3. Treytað av, at landsstýrismaðurin hevur givið loyvi til tess og treytað av, at virksemið fer fram í hóskandi høli og undir hóskandi eftirliti, kunnu fyritøkur og einstaklingar flyta inn smærri nøgdir av rúsdrekka og ethanoli til royndir og vørumenning. Tað er ikki loyvt at selja ella lata rúsdrekka, sum verður framleitt eftir hesi áseting.
