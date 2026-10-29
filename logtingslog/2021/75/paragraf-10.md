@@ -1,0 +1,3 @@
+§ 10. Eigari ella brúkari av elektriskari innlegging hevur ábyrgdina av, at innleggingin lýkur reglur, ásettar sbrt. § 5, stk. 1, nr. 2, umframt trygdarkravið í § 3.
+Stk. 2. Eigari ella brúkari av elektriskari innlegging hevur ábyrgd av, at innleggingin verður rikin og viðlíkahildin á fullgóðan hátt samsvarandi reglum sbrt. § 5, stk. 1, nr. 2. Eigari ella brúkari av elektriskari innlegging skal eisini fáa í rættlag feilir og manglar skjótast gjørligt, umframt skjótast gjørligt seta tiltøk í verk til tess at forða fyri, at feilir og manglar kunnu hava við sær vanda, sbr. § 3.
+Stk. 3. Eigari ella brúkari av elektriskari innlegging skal vísa ansni til tess at forða fyri, at innleggingin verður yvirlastað.

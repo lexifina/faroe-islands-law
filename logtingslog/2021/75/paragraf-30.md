@@ -1,0 +1,3 @@
+§ 30. Gerðarrætturin, sbr. § 29, stk. 2, hevur 2 limir. Tann ella teir, sum hava fingið loyvi sbr. § 27, og fastognareigararnir ella nýtararnir velja hvør sín lim. Um annar parturin ikki skrivliga hevur sagt hinum partinum frá sínum vali innan 14 dagar aftan á, at hin seinri hevur boðað frá sínum vali, missir hin fyrri sín rætt til at velja sín lim, soleiðis at hin parturin eisini hevur rætt at velja hin limin.
+Stk. 2. Um gerðarrætturin ikki kann semjast, tilnevnir sorinskrivarin ein ástøðumann. Ástøðumaðurin ger av, innan fyri markið av teimum ósambærligu áskoðanunum, teir spurningar, ið ósemjan er um.
+Stk. 3. Úrskurðurin hjá gerðarrættinum verður fráboðaður báðum pørtum skrivliga. Úrskurðurin kann ikki verða skotin inn fyri annan fyrisitingarligan myndugleika.

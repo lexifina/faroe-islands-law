@@ -1,0 +1,1 @@
+§ 11. Tann, ið rekur ein elektriskan útbúnað til at veita elektriska orku, kann ikki, sum treyt fyri at veita elektrisitet til brúkaran, seta strangari trygdarkrøv enn tey, ið fylgja av reglum, ásettar sbrt. § 5, stk. 1.

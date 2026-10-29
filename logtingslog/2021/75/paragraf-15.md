@@ -1,0 +1,1 @@
+§ 15. Elnevndin kann geva boð um, at eigari ella brúkari av elektriskum útbúnaði ella elektriskari innlegging letur løggilda elinnleggingarfyritøku fremja eftirlit av útbúnaðinum ella av innleggingini fyri rokning eigarans ella brúkarans.

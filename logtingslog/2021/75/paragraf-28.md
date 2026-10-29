@@ -1,0 +1,4 @@
+§ 28. Við atliti at gerð av útbúnaðum, sum koma undir § 27, hevur tann, ið eigur býtisútbúnaðin, heimild at gera neyðugar fyrireikandi uppmátingar og onnur tøknilig fyrireikingararbeiði og kanningar.
+Stk. 2. Til at fara undir tey fyrireikingararbeiðir og tær kanningar, sum nevndar eru í stk. 1, skulu teir avvarðandi eigarar og nýtarar í minsta lagi 14 dagar frammanundan fáa serstakt boð um hetta. Ber hetta ikki til, verður kunngjørt soleiðis, sum mett verður hóskandi á staðnum.
+Stk. 3. Teir skaðar, ið standast av arbeiðinum, skulu verða endurgoldnir. Fæst ikki friðarsemja um støddina á endurgjaldinum, verður hetta ásett av Elnevndini. Avgerðin hjá Elnevndini kann verða skotin inn fyri landsstýrismannin.
+Stk. 4. Tann, ið við vilja tekur burtur, avlagar ella løstar merkingar, sum verða gjørdar í sambandi við fyrireikingararbeiðini, verður revsaður við sekt, uttan so, at strangari revsing er uppiborin eftir revsilógini.

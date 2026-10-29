@@ -1,0 +1,1 @@
+§ 16. Elnevndin kann geva eigaranum ella brúkaranum av elektriskum útbúnaði ella elektriskari innlegging boð um at bøta um feilir og manglar við útbúnaðinum ella innleggingini fyri rokning eigarans ella brúkarans.

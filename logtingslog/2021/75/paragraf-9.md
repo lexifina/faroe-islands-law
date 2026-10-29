@@ -1,0 +1,3 @@
+§ 9. Eigari ella brúkari av elektriskum útbúnaði hevur ábyrgd av, at elektriski útbúnaðurin lýkur reglur, ásettar sbrt. § 5, stk. 1, nr. 1, umframt trygdarkravið í § 3.
+Stk. 2. Eigari ella brúkari av elektriskum útbúnaði hevur ábyrgd av, at útbúnaðurin verður rikin og hildin við líka á fullgóðan hátt samsvarandi reglum, ásettar sbrt. § 5, stk. 1, nr. 1. Eigari ella brúkari av elektriskum útbúnaði skal eisini fáa í rættlag feilir og manglar skjótast gjørligt, umframt skjótast gjørligt seta tiltøk í verk fyri at forða fyri, at feilir og manglar kunnu hava við sær vanda, sbr. § 3.
+Stk. 3. Eigari ella brúkari av elektriskum útbúnaði skal vísa ansni fyri at forða fyri, at útbúnaðurin verður yvirlastaður.

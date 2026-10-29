@@ -1,0 +1,1 @@
+§ 4. Elektriskt tilfar skal verða framleitt á ein slíkan hátt, at tað, við rættari innlegging og viðlíkahaldi og við nýtslu í samsvari við endamálið við tí undir vanligum umstøðum, ikki er til vanda fyri persónar, húsdjór ella ogn.

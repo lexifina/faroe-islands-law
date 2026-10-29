@@ -1,0 +1,1 @@
+§ 34. Eigarin av útbúnaðinum ber allan kostnað av tí starvsemi við meira, sum nevnt er í §§ 26-33, heruppií dagpening og ferðaútreiðslur til limirnar í gerðarrættinum, sbr. § 30, eftir reglum landsstýrisins um samsýning til limir í nevndum, ráðum o.ø.

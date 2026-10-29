@@ -1,0 +1,2 @@
+§ 22. Elnevndin kann upplýsa almenningin um vandan við elektriskum útbúnaði, elektriskum innleggingum og elektriskum tilfari, tá boð ella forboð eru givin eftir §§ 15 og 16, § 17, stk. 1, § 19 og § 20, stk. 1 og 2.
+Stk. 2. Við kunning eftir stk. 1 kann Elnevndin einans lata víðari upplýsingar, sum hava eyðkenni av handilsloynidómum, tá hetta verður mett neyðugt fyri at verja trygdina hjá brúkarunum.

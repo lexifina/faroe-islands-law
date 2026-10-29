@@ -1,0 +1,2 @@
+§ 6. Elnevndin kann í serligum førum geva fráviksloyvi frá krøvum í reglum, settar við heimild í § 5, stk. 1. Elnevndin kann áseta treytir fyri fráviksloyvinum.
+Stk. 2. Elnevndin kann í serligum førum, tá umstøðurnar gera tað neyðugt, seta serlig trygdarkrøv, sum víkja frá krøvum í reglum, ásettar sbrt. § 5, stk. 1, ella seta krøv um serligar merkingar ella vegleiðingar viðvíkjandi elektriskum útbúnaði, elektriskum innleggingum og elektriskum tilfari.

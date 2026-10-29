@@ -1,0 +1,2 @@
+§ 18. Elnevndin kann, uttan at rinda fyri tað, taka elektriskt tilfar út til nýtslu í eftirlitinum eftir § 13, stk. 1.
+Stk. 2. Elnevndin kann gera ella lata gera tekniska kanning av elektriskum tilfari, sum er tikið út eftir stk. 1. Elnevndin kann krevja, at kostnaðir av uttanhýsis kanningum verða endurrindaðir av tí, sum í sambandi við kanningina fær fráboðað boð ella forboð eftir § 19 og § 20, stk. 1 og 2.
