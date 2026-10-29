@@ -1,0 +1,2 @@
+§ 4. I mars mánaði roknar Vanlukkutryggingarráðið tað endaliga býti millum tryggingarfeløgini við støði í samlaðu endurgjaldsútreiðslunum í undanfarna álmanakkaári. Gjaldið verður býtt eftir reglunum í § 3, stk. 2.
+Stk. 2. Fráboðan um ávegis goldnar upphæddir, samlað útgoldið endurgjald, endaliga gjaldið og partin hjá einstaka tryggingarfelagnum, umframt áløgdu rentuupphæddina, sendir Vanlukkutrygginarráðið tryggingarfeløgunum áðrenn endan av mars mánaði. Gjaldið skal rindast seinast 14 dagar eftir dagfestingina á fráboðanini.

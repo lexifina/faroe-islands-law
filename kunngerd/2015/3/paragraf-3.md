@@ -1,0 +1,3 @@
+§ 3. Útgoldið endurgjald viðvíkjandi vanlukkutilburðum, sum eru fevndir av § 21 í lógini, verður býtt lutfalsliga millum tryggingarfeløg, sum tekna tryggingar móti arbeiðsskaðum í Føroyum.
+Stk. 2. Lutfalsligi parturin hjá tí einstaka tryggingarfelagnum verður í einum álmanakkaári uppgjørdur til eina upphædd, sum svarar til lutfalsliga partin av endurgjaldsútreiðslunum hjá viðkomandi tryggingarfelag í mun til samlaðu endurgjaldsútreiðslurnar í viðkomandi kalendaraári hjá øllum tryggingarfeløgum í Føroyum til mein og mistan vinnuførleika.
+Stk. 3. Í útrokningini av útreiðslunum eftir stk. 2 verður sæð burtur frá skaðatilburðum, sum ikki eru tryggingarskyldugir sambært § 11, stk. 2 í lógini.

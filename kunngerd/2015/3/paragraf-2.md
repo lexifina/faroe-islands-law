@@ -1,0 +1,1 @@
+§ 2. Ávegis goldið skaðaendurgjald sambært § 56, stk. 3 í lógini, verður fyri hvørt álmanakkaár býtt millum tryggingarfeløg, sum tekna arbeiðsskaðatryggingar í Føroyum, samsvarandi útrokningarháttinum í § 3, stk. 2.
