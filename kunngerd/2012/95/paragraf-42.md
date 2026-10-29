@@ -1,0 +1,7 @@
+## Kapittul 8
+## Revsing, gildiskoma v.m.
+## Revsireglur
+§ 42. Brot á treytir, ið eru ásettar sum liður í einum serflutningsloyvi ella góðkenning sambært hesi kunngerð, verða revsað við bót sambært § 58 a, stk. 1, nr. 3, í ferðslulógini.
+Stk. 2. Sambært § 58 a, stk. 1, nr. 4 í ferðslulógini verður tann revsaður við bót, ið ikki ger eftir banni ella boðum, ið givin eru sambært lógini ella sambært fyriskipanum, útgivnum sambært lógini.
+Stk. 3. Við bót verður tann revsaður, ið brýtur § 6, stk. 1, 1. og 2. pkt., § 8, stk. 1, 1. pkt., § 8, stk. 2 og stk. 6, § 11, stk. 1 og stk. 4, 1. pkt., § 11, stk. 6, § 12, stk. 2, 3. og 4. pkt., § 12, stk. 3, 5. pkt, § 12, stk. 4 og 5, § 14, § 18, 4. pkt., § 23, stk. 1 og 5-8, § 30, stk. 3, 4 og 6, §§ 31-32, § 34, § 35, stk. 2, § 36, stk. 1-2, § 36, stk. 5, § 37, stk. 1-4, § 38 ella § 39. Sama er galdandi fyri tann, sum ikki koyrir í samsvari við § 14, § 17, stk. 3-8, § 23, stk. 3 og 4, §§ 25-27, § 29, stk. 2, 1. pkt., §§ 35 - 36, ikki samankoblar í samsvari við § 30, stk. 1, ikki setir saman í samsvari við § 30, stk. 2, ikki nýtir royndarspjøldur í samsvari við § 30, stk. 5 ella setir til síðis krav um eyka fylgibilar sambært § 37, stk.5.
+Stk. 4. Er brotið framt av partafelag, lutafelag ella líknandi, landinum, kommunu ella kommunalum felagsskapi kann sektarábyrgdin sambært § 58 a, stk.8 í ferðslulógini áleggjast felagnum, landinum, kommununi ella kommunala felagsskapinum sum slíkt.

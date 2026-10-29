@@ -1,0 +1,2 @@
+## Loyvi til flytikrana
+§ 18. Løgreglan kan eftir samráðing við viðkomandi vega- ella brúgvamyndugleika loyva koyring við flytikrana. Viðvíkjandi koyring á nærri avmarkaðum øki verður víst til § 35. Barlastkubbar og onnur útgerð, ið hoyrir til ein flytikrana, kann verða flutt á einum bulvogni, ið verður drigin av flytikrananum ella á einum bulvognrað, hóast talan er um býtiligan farm. Tað er tó ein treyt, at bulvognraðið ikki er tyngri enn flytikranin.

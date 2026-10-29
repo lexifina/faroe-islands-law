@@ -1,0 +1,6 @@
+§ 27. Óbýtiligur farmur á viðfesti- og leguvognraði kann verða fluttur uttan loyvi, við einari longd tilsamans upp til 23,0 m, hóast óbýtiligi farmurin hevði kunnað verið fluttur við einum øðrum vognraði innan fyri galdandi reglur um longd í kunngerð um breidd, longd, hædd, vekt og ástrýst á akførum. Tað er ein fortreyt, at
+1) fyri tann ítøkiliga serflutningin er tað ein treyt, at vognraðið hevur hesa longdina,
+2) dragandi lastbilurin er bygdur upp sum autokrani, t.e. lastbilur, ið hevur krana, og er góðkendur til serliga nýtslu, ella er í mesta lagi 9,0 m langur og bygdur upp við stórum krana í minsta lagi 25 tm, og
+3) nýtsla av krananum er ein fortreyt fyri lessing ella lossing av farminum.
+Útgerð, ið skal nýtast saman við óbýtiliga farminum, kann verða tikin við, um so er, at útgerðin í mesta lagi er 10 % av vektini á óbýtiliga farminum. Meira farmur kann ikki verða tikin við, hóast ásetingarnar í § 23, stk. 2, stk. 3 ella stk. 4 eru loknar. Tá viðfesti- og leguvognurin er drigin út og er fermdur, kann koblingarlongdin fara upp um 12 m.
+Stk. 2. Undantikin teimum førum, sum nevnd eru í stk. 1, er ikki loyvt at nýta vognrað, sum er lastbilur og viðfestivognur, til serflutning, um farið verður út um ásetingarnar um størstu longd í kunngerð um breidd, longd, hædd, vekt og ástrýst á akførum.

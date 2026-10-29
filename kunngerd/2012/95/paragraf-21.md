@@ -1,0 +1,4 @@
+§ 21. Loyvið verður antin givið sum alment loyvi fyri eitt ávíst tíðarskeið upp á í mesta lagi fimm ár, loyvi til at koyra eitt ávíst strekki í ávíst tíðarskeið upp á í mesta lagi fimm ár, ella sum loyvi at nýta einaferð.
+Stk. 2. Við skjalprógvi fyri endurtakandi tørvi á serflutningi, kann løgreglan við støði í ítøkiligari meting geva alment loyvi til koyring við rúgvismiklum serflutningi, hvørs longd, breidd ella hædd ikki fer upp um ávíkavist 30,0 m, 3,65 m ella 4,10 m.
+Stk. 3. Alment loyvi til koyring kann verða givið til tungan serflutning, um flokkurin hjá akfarinum ella vognraðnum ikki fer upp um ávísar ásetingar hjá vegamynduleikanum.
+Stk. 4. Við skjalprógvi fyri endurtakandi tørvi á serflutningi eftir sama strekki, kann løgreglan í avmarkaðan mun við støði í einari ítøkiligari meting, geva loyvi til at koyra ávíst strekki við størri støddum enn teimum, ið eru nevndar í stk. 2, og størri tyngdarflokki enn ásett av vegamynduleikunum.
