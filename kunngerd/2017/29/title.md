@@ -1,0 +1,3 @@
+28. mars 2017 Nr. 29
+# Kunngerð um elektroniskar fráboðanir fyri fiskifør undir norskum og íslendskum flaggi í føroyskum sjógvi
+Við heimild í § 9, stk. 1, nr. 4, § 32, stk. 2, § 36, stk. 2, § 40, stk. 1, nr. 1 og § 40, stk. 2 og 3 í løgtingslóg nr. 28 frá 10. mars 1994 um vinnuligan fiskiskap, sum broytt við løgtingslóg nr. 58 frá 2. juni 1995, løgtingslóg nr. 50 frá 20. mai 1996, løgtingslóg nr. 133 frá 9. august 1997, løgtingslóg nr. 69 frá 18. august 1998, løgtingslóg nr. 58 frá 27. apríl 2001, løgtingslóg nr. 80 frá 8. mai 2003, løgtingslóg nr. 106 frá 17. august 2009 og løgtingslóg nr. 107 frá 3. november 2016, verður ásett:

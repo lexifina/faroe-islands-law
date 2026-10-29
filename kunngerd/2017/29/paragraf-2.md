@@ -1,0 +1,3 @@
+## Elektroniskar fráboðanir
+§ 2. Fiskifør og før, sambært § 1, skulu senda fráboðanir sambært §§ 4-10 í hesi kunngerð elektroniskt til Vørn umvegis fiskiveiðieftirlitsmyndugleikan í flagglandinum.
+Stk. 2. Áðrenn komið er í føroyskan sjógv, skal skipari á fiskifari, sambært § 1, tryggja sær, at farið er útgjørt við fjarskiftisútgerð og forriti til at senda fráboðanir, sambært hesi kunngerð, sjálvvirkandi, harundir, at Vørn kann móttaka elektronisku fráboðanirnar, og at farið móttekur váttan fyri móttøku frá Vørn umvegis flagglandið. Yvirlit yvir fráboðanir, fevndar av hesi kunngerð, er lýst í skjali 1.
