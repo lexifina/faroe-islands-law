@@ -1,0 +1,3 @@
+§ 15. Kommunustýrið skal um neyðugt fyri at fyribyrgja og basa ampum av burturkasti, geva boð um, hvussu burturkastið skal goymast, handfarast, v.m., harundir at burturkastið skal verða burturbeint innan nærri ásetta freist.
+Stk. 2. Um boð eftir stk. 1 ikki eru lýdd innan ásettu freistina, skal kommunustýrið beina burturkastið burtur fyri rokning hjá tí, ið hevur fingið boðini.
+Stk. 3. Um tað ikki ber til at ávísa hvør hevur ábyrgdina av burturkasti, sum liggur og rekst, ella á annan hátt ikki er tikið upp og burturbeint samsvarandi reglunum í hesi kunngerð, hevur kommunustýrið ábyrgdina av upptøkuni, og at beint verður fyri burturkastinum.

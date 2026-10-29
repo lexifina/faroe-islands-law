@@ -1,0 +1,1 @@
+§ 3. Kommunustýrið kann gera av, at innsavningarskipanin eftir § 2 ikki skal umfata húsarhaldsburturkast frá virkjum, stovnum, o.l., ella ikki skal umfata ávís sløg av húsarhaldsburturkasti. Kommunustýrið skal tá í staðin vísa á ein avhendingarmøguleika.

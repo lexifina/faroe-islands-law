@@ -1,0 +1,1 @@
+§ 6. Virkir, sum handfara ella burturbeina serliga dálkandi burturkast, skulu boða kommunustýrinum frá. Fráboðanin skal upplýsa um slag, innpakking og nøgd av burturkastinum, og skal gerast á fráboðanarkortið sambært nærri ávísing frá móttøkustøðini fyri serliga dálkandi burturkast.
