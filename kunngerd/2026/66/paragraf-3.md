@@ -1,0 +1,3 @@
+## Kvota og atgongd at fiska
+§ 3. Fiskifør undir føroyskum flaggi kunnu í 2026 fiska kongafisk í NEAFC-skipanarøkinum í ICES-økjunum I og II. Fiskiskapurin skal steðga, tá fráboðanir til NEAFC vísa, at fiskifør hjá sáttmálapørtunum, Noreg og Russland undantikið, samanlagt hava fiskað 4.082 tons í økinum.
+Stk. 2. Loyvi at fiska av kvotuni sambært stk. 1 verður latið eigarum av fiskiførum, sum í 2021, við fiskifari undir føroyskum flaggi, høvdu rætt til fiskiloyvi at fiska kongafisk í NEAFC-skipanarøkinum í ICES-økjunum I og II, ella teimum, sum hesin rættur seinni er fluttur til. Kvotan verður latin fiskiførunum sum felagskvota.
