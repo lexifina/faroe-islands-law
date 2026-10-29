@@ -1,0 +1,2 @@
+§ 2. Føroya Landsstýri kann í samráð við Toll- og Skattstovu Føroya geva loyvi til fríøki til almenna nýtslu í havnum, sum eru góðkendar av tollvaldinum, sum eftirlitshavnir, ella aðrastaðni, har serligur tørvur er á tí.
+Stk. 2. Sum fríøki er at skilja, góðkent øki ella høli í føroyska tolløkinum, sum er undir eftirliti av Toll- og Skattstovu Føroya, og hvat tolli og avgjøldum viðvíkur, er at meta sum verandi uttanfyri føroyska tolløki.

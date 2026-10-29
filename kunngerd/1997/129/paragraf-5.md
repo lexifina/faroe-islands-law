@@ -1,0 +1,4 @@
+§ 5. Vørur, sum toll- og avgjaldsfrítt verða fluttar á frígoymslu ella fríøki, skulu sum nærri tilskilað av Toll- og Skattstovu Føroya, fráboðast til skrásetingar, (sum tilgongd á frígoymsluni ella fríøki).
+Stk. 2. Í fráboðanini skulu standa tær upplýsingar, sum Toll- og Skattstova Føroya sigur neyðugar, fyri at hava eftirlit við roknskaparførðsluni hjá loyvishavaranum yvir frígoymslu ella fríøki.
+Stk. 3. Vørur, sum verða tiknar av frígoymslu ella fríøki, skulu fráboðast til tollgreiðslu eftir vanligum reglum í tolllógini um innflutning, ella skrásetast til útflutnings.
+Stk. 4. Vørur, sum verða latnar skipi ella flogfari toll- og avgjaldsfrítt sum proviantur, skulu takast av frígoymslu ella fríøki við einum av Toll- og Skattstovu Føroya góðkendum provianteringsloyvi og eftir reglum, sum ásettar eru í kunngerð um proviantering.

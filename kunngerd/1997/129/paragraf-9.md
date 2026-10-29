@@ -1,0 +1,1 @@
+§ 9. Brot á hesa kunngerð ella tær í loyvinum ásettu treytir, verða revsað eftir reglunum í kap. 10 í løgtingslóg nr. 121 frá 23. desember 1991 um toll við seinni broytingum, tá tað í nevnda kapitli er ásett revsing fyri brotið.

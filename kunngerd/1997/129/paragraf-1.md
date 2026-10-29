@@ -1,0 +1,2 @@
+§ 1. Eftir umsókn kann Toll- og Skattstova Føroya geva loyvi til at seta á stovn frígoymslur til almenna nýtslu á støðum, har serligur tørvur er á at leggja upp vørur úr útlandinum, uttan at tollur, mvg og punktgjald skal gjaldast fyri tær.
+Stk. 2. Sum frígoymsla er at skilja, serligt ávíst høli á føroyska tolløkinum, sum er undir eftirliti av Toll- og Skattstovu Føroya, og har vørugoymslan, hvat tolli og avgjøldum viðvíkur, er at meta sum verandi uttanfyri føroyska tolløkið.

@@ -1,0 +1,4 @@
+§ 7. Loyvishavarin av eini frígoymslu ella fríøki, ábyrgist fyri tolli og avgjøldum á vørum, sum undir eftirliti Toll- og Skattstovunar verða staðfestar ikki at verða á goymslu ella sum ikki eru tiknar av frígoymslu ella fríøki eftir reglunum um vørufrágongd, ella sum Toll- og Skattstova Føroya ikki heldur eru farnar fyri skeyti á frígoymslu ella fríøki.
+Stk. 2. Tollur og avgjøld á vørum jbr. stk. 1, verða ásett eftir teimum upphæddum, sum galda tann dagin eftirlitið varð á frígoymsluni ella fríøkinum.
+Stk. 3. Virðið á vøruni verður ásett eftir fakturavirðinum fyri vøruna, tá hon varð flutt á frígoymslu ella fríøki.
+Stk. 4. Um einki fakturavirði er, kann virðið ásetast eftir meting av Toll- og Skattstovu Føroya við atliti til hagtalsvirðið fyri somu vøru við sama vørunummari í toll- og vøruskránni jbr. reglurnar um virðisáseting í § 11 í tolllógini.
