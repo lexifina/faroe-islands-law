@@ -1,0 +1,1 @@
+§ 1. Við heimild í § 2 í heimastýrislógini, yvirtekur heimastýrið ikki yvirtikna partin av málsøkinum Telegraf- og Telefonmál í Føroyum, sum nevnt á lista A, pkt. 12, tó soleiðis at Telegraf- og Telefonmál millum Føroyar og umheimin verður verandi felagsmál.
