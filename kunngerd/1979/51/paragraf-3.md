@@ -1,0 +1,5 @@
+## Dagpeningur uttanlands v.m.
+§ 3. Persónur, sum annars eigur rætt til dagpening, eigur framhaldandi rætt til henda sambært § 2, 2. stk., nr. 1 í lógini, um viðkomandi er staddur á sjúkrahúsi uttanlands eftir ávísan av føroyskum sjúkrahúsi. Sama er um viðkomandi er staddur uttanlands í framhald av slíkari sjúkrahúsviðgerð har, og lækni mælir frá, at viðkomandi fer heim.
+2. stk. Um persónur, sum annars eigur rætt til dagpening, er staddur uttanlands, verður Almannastovuni heimilað at veita framhaldandi dagpening, um hon metir, at grundin fyri at vera uttanlands er haldgóð.
+3. stk. Um persónur hevur rætt til dagpening sambært lóggávuna í øðrum landi, hevur viðkomandi fyri sama tíðarskeið ikki rætt til dagpening sambært § 2, 2. stk., nr. 2 í lógini um dagpening.
+4. stk. Um dagpeningur sambært lóggávuna í øðrum landi heldur uppat, og viðkomandi tá hevur rætt til dagpening sambært lógina um dagpening, verður tíðin, har dagpeningur er fingin úr øðrum landi, íroknað sum tíð, har dagpeningur er rindaður, í tíðarskeiðinum, sum umrøtt er í §§ 11 og 12 í lógini.

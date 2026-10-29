@@ -1,0 +1,4 @@
+## Frávik frá 5-vikuskeiðinum
+§ 5. Almannastovuni verður heimilað at víkja frá 5-vikuskeiðinum í § 8, 1. stk., samanber 2. stk. í lógini og nýta longri ella styttri tíðarskeið, tá talan er um útróðrarmenn, samanber § 1, 4. stk. í lógini, og vánalig útróðrarlíkindi hava verið, men líkindi nú eru. Almannastovan kann treyta hetta av, at útróðrarlíkindi verða váttað av bygdaráð/býráð ella í serligum førum av øðrum.
+2. stk. Tað, sum ásett er í 1. stk. um útróðrarmenn, er somuleiðis galdandi fyri tey, ið starvast á flakavirkjum og øðrum virkjum, í tann mun, virkini eru beinleiðis ávirkað av útróðrarlíkindum.
+3. stk. Almannastovuni verður heimilað í øðrum førum enn teimum, sum nevnd eru í 1. og 2. stk. at rokna við øðrum lønartíðarskeiðum ásett er í § 8, 1. stk. í lógini, um tann, sum søkir um dagpening, kann setast javnt við teir bólkar, sum nevndir eru í 1. og 2. stk.
