@@ -1,0 +1,5 @@
+§ 36. Setan av lærara á Heilsuskúla Føroya er treytað av, at viðkomandi hevur í minsta lagi bachelorútbúgving innan almanna og heilsuøkið ella innan námsfrøðiliga økið, ella samsvarandi útbúgving, umframt í minsta lagi 2 ára viðkomandi arbeiðsroyndir innan sítt yrki.
+Stk. 2. Lærarar skulu innan 2 ár frá setanardegi taka námsfrøðiliga útbúgving fyri lærarar á miðnámsskúlum, yrkisskúlum, og vinnuskúlum.
+Stk. 3. Lærari, sum er settur í fast starv, áðrenn henda kunngerðin er komin í gildi, og sum ikki hevur í minsta lagi bachelorútbúgving á almannaøkinum og heilsuøkinum ella námsfrøðiliga økinum ella samsvarandi, skal taka ískoytisútbúgving, so fakligi førleikin verður á bachelorstøði.
+Stk. 4. Leiðarin fyri Heilsuskúla Føroya ger saman við viðkomandi lærara tíðarætlan fyri, nær møgulig ískoytisútbúgving skal vera lokin.
+Stk. 5. Í almennum lærugreinum á D-stigi skal lærari í avvarðandi lærugrein hava í minsta lagi lokið linjugreinalestur frá einum læraraskúla. Lærari, sum undirvísur á gymnasialum stigi, skal, fyri at verða settur í starv, hava neyðugu fakligu førleikarnar sambært galdandi ásetingum um fakligan førleika fyri ta lærugrein, hann skal undirvísa í.

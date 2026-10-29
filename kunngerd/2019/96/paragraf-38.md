@@ -1,0 +1,1 @@
+§ 38. Heilsuskúli Føroya kann í styttri tíðarskeið bjóða næmingi við avmarkaðum fakligum førleika fakligan stuðul. Avgerð um fakligan stuðul verður tikin í samráð við næmingin og við støði í einari ítøkiligari, fakligari meting av førleika næmingsins.

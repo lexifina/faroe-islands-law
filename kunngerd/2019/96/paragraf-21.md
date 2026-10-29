@@ -1,0 +1,1 @@
+§ 21. Námsætlanir fyri yrkislærugreinirnar, almennu lærugreinirnar og vallærugreinirnar eru at finna í námsskipan hjá Heilsuskúla Føroya. Málini fyri starvsligu eindirnar eru somuleiðis at finna í námsskipan hjá Heilsuskúla Føroya.

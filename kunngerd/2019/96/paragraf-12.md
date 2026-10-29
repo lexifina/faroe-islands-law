@@ -1,0 +1,1 @@
+§ 12. Leiðarin fyri Heilsuskúla Føroya kann í samráð við starvsvenjingarstaðið taka avgerð um, at skipað verður fyri eyka starvsvenjing, so næmingur, ið orsakað av fráveru av serligum, skjalprógvaðum orsøkum ikki hevur rokkið tímatalið í einari ella fleiri starvsvenjingareindum, fær kravda tímatalið.

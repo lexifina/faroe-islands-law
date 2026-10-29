@@ -1,0 +1,1 @@
+§ 13. Leiðarin fyri Heilsuskúla Føroya kann í heilt serligum føri og við støði í einari ítøkiligari meting loyva næmingi, ið av heilsuávum er burturstaddur frá undirvísingini, ella sum hevur verið fyri álvarsligum lívstilburði, at fara til próvtøku eftir vanligum treytum, hóast ásetingarnar í §§ 8-11.

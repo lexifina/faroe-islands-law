@@ -1,0 +1,4 @@
+§ 2. Undirvísingin verður í høvuðsheitinum skipað sum evnisundirvísing, ið skal geva næminginum heildarfatan av samanhangi millum lærugreinirnar og eina heildarfatan av yrkisfakligu krøvunum og menna persónligu førleikar næmingsins.
+Stk. 2. Evnisundirvísing tekur støði í verkligum spurdómum, sum fyri heilsuútbúgvingarnar er at finna innan almannaøki, kommunala økið og heilsuøkið og sum fyri námsfrøðihjálparaútbúgvingina er at finna innan dagstovnaøkið, forskúlaøkið og skúlaøkið, frítíðartilboð og innan almannaøkið.
+Stk. 3. Undirvísingin verður løgd til rættis sum toymisarbeiði, og allir lærarar skulu í samstarvi gera eina felags samskipaða undirvísingarætlan fyri hvørt skúlaskeið sær.
+Stk. 4. Kunningartøkni er kravdur táttur í allari undirvísing, og næmingurin skal duga at nýta kunningartøkni í fakligum eins og í yrkisfakligum høpi.

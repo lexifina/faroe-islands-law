@@ -1,0 +1,1 @@
+§ 6. Útbúgvingarbók og útbúgvingarætlan skulu tryggja, at einstaki næmingurin hevur yvirlit yvir útbúgvingargongd sína og yvir fakligu og persónligu menning sína í útbúgvingini. Útbúgvingarbókin er samstarvsamboð hjá næmingi, lærara og vegleiðara á starvsvenjingarstøðunum.

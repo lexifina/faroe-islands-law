@@ -1,0 +1,1 @@
+§ 42. Mentamálaráðið kann taka upp samráðingar við aðrar viðkomandi myndugleikar, so námsskipanirnar fyri heilsuútbúgvingarnar og námsfrøðiliga hjálparútbúgvingina sambært hesari kunngerð verða góðkendar, við atliti at autorisatión.

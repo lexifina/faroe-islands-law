@@ -1,0 +1,5 @@
+§ 31. Fyri at kunna fara í starvsvenjing skal næmingur í ástøðiliga útbúgvingarpartinum í talmeti hava fingið í minsta lagi 02 í øllum yrkislærugreinunum hvør sær, og í teimum almennu lærugreinunum skal talmetið verða 02 í miðal. Í heilsurøktaraútbúgvingini skal náttúrulæra vera staðin við í minsta lagi talmetinum 02.
+Stk. 2. Um næmingur fær avriksflutning í einari ella fleiri lærugreinum skal hann í minsta lagi hava 02 í miðal í øllum lærugreinum. Tó skulu yrkislærugreinir standast hvør sær.
+Stk. 3. Næmingur, sum ikki stendur ástøðiliga útbúgvingarpartin, kann bert taka ástøðiliga útbúgvingarpartin umaftur eina ferð.
+Stk. 4. Næmingur, sum hevur verið til próvtøku tvær ferðir sambært stk. 2, kann, um heilt serligar umstøður gera seg galdandi, skrivliga søkja leiðaran fyri Heilsuskúla Føroya um at fara til próvtøku eina triðu ferð.
+Stk. 5. Leiðarin fyri Heilsuskúla Føroya ger tilmæli í málinum og sendir Mentamálaráðnum umsókn næmingsins saman við tilmælinum. Mentamálaráðið tekur endaliga avgerð í málinum.
