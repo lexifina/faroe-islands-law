@@ -1,0 +1,3 @@
+§ 2. Ein viðgerðarstovnur hevur eina freist á í mesta lagi 12 mánaðir at fáa viðurskiftini í rættlag, so hann lýkur góðkenningarkrøvini.
+Stk. 2. Heilsutrygd kann í serligum førum geva undantaksloyvi til góðkenningarkrøvini, um viðgerðarstovnurin, áðrenn freistin er úti, ger eina avtalu við Heilsutrygd og vísur á eina sannførandi ætlan við lýsing av ítøkiligum mannagongdum og tíðarætlanum um, hvussu viðurskiftini kunnu koma í rættlag. Viðgerðarstovnurin skal tá regluliga kunna Heilsutrygd um gongdina fram til, at ábøturnar eru framdar.
+Stk. 3. Um álvarsligt brot er framt á góðkenningarkrøvini, kann Heilsutrygd tó taka góðkenningina aftur uttan ávaring.

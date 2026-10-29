@@ -1,0 +1,1 @@
+§ 1. Um ein viðgerðarstovnur ikki longur lýkur góðkenningarkrøvini, ella um átaluverd viðurskifti eru viðvíkjandi virkseminum, kann Heilsutrygd taka góðkenningina hjá viðgerðarstovninum aftur, sbr. §§ 4-11 í kunngerð nr. 75 frá 29. mai 2020 um góðkenning av stovnum, ið veita rúsviðgerð.

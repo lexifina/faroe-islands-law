@@ -1,0 +1,1 @@
+§ 3. Í teimum førum har átaluverd viðurskifti eru viðvíkjandi virkseminum á einum viðgerðarstovni, ger Heilsutrygd í hvørjum einstøkum føri eina meting av, hvussu langa freist viðgerðarstovnurin fær til at fáa viðurskiftini aftur í rættlag. Freistin kann tó ongantíð vera longri enn freistin nevnd í § 2, stk. 1.
