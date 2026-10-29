@@ -1,0 +1,1 @@
+§ 12. Er umsóknin um fosturtøku grundað á umstøður, sum nevndar eru í § 3, nr. 3, skal læknin kunna kvinnuna um møguleikarnar fyri at fáa meira kunning og ráðgeving hjá viðkomandi myndugleikum, felagsskapum og serlæknum.

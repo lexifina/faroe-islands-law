@@ -1,0 +1,1 @@
+§ 2. Hóast freistin sambært § 1 er farin, kann ein kvinna fáa fosturtøku eftir 12. viku í viðgongutíðini uttan loyvi, um lív og heilsa hjá kvinnuni er í vanda, ella um inntrivið er neyðugt fyri at forða fyri, at likamliga og sálarliga heilsan viknar munandi, og vandin fyri hesum er læknaliga grundaður.
