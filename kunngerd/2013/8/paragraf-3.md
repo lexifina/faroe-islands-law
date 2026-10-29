@@ -1,0 +1,1 @@
+§ 3. Leiðari útbúgvingarstovnsins hevur mótvegis Mentamálaráðnum ábyrgd av, at allar próvtøkur á stovninum fara fram sambært reglunum í hesi kunngerð, sambært ásetingum frá Mentamálaráðnum og sambært innanhýsis mannagongdum hjá útbúgvingarstovninum sjálvum sbrt. § 6, stk. 4.

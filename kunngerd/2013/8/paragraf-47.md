@@ -1,0 +1,3 @@
+§ 47. Leiðari útbúgvingarstovnsins avger, um kærumálið skal verða tikið upp, ella um tað verður víst aftur, tí málið er eyðsýnt ógrundað. Afturvísing av kæru skal vera skrivlig og grundgivin.
+Stk. 2. Tekur leiðari útbúgvingarstovnsins avgerð um, at kæran skal verða tikin upp, leggur hann alt fyri eitt kæruna fyri próvhoyrara og próvdómara við umbøn um, at teir áðrenn 7 dagar – í summarpróvtøkuskeiðnum tó í seinasta lagi seinasta skúladag, lata honum eina fakliga meting.
+Stk. 3. Leiðari útbúgvingarstovnsins leggur fakligu metingarnar fyri kæraran, sum fær høvi at gera møguligar viðmerkingar áðrenn 7 dagar.

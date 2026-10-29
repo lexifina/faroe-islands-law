@@ -1,0 +1,4 @@
+§ 10. Næmingur, sum fylgir einari samlaðari undirvísingargongd, kann í mesta lagi fara til somu próvtøku á sama stigi tvær ferðir, tó ikki í sama próvtøkuskeiði.
+Stk. 2. So leingi, einki samlað prógv er útskrivað, kann næmingur, sum til próvtøku hevur fingið 00 ella minni, innskrivað seg til endurpróvtøku í somu lærugrein á sama stigi í næsta vanliga próvtøkuskeiði.
+Stk. 3. Næmingur, sum nýtir høvi at fara til endurpróvtøku sbrt. stk. 1 og 2, skal nýta sama próvtøkugrundarlag sum til fyrru próvtøkuna. Próvtalið frá endurpróvtøkuni er tað, sum skal við á endaliga prógvið.
+Stk. 4. Innskriving til endurpróvtøku sbrt. stk. 1 og 2 fer fram í seinasta lagi 15. mars. Er bæði skrivlig og munnlig próvtøka í einari lærugrein, kann næmingurin skriva seg inn til endurpróvtøku í ávikavist tí munnligu og tí skrivligu próvtøkuni hvør sær.

@@ -1,0 +1,1 @@
+§ 5. Leiðari útbúgvingarstovnsins skal skipa so fyri, at grundarlagið undir teimum munnligu próvtøkunum sbrt. §§ 78 og 79 í undirvísingarkunngerðini, er tøkt í seinasta lagi 14 dagar, áðrenn munnligu próvtøkurnar verða kunngjørdar.

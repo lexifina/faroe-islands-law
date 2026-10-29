@@ -1,0 +1,2 @@
+§ 23. Próvdómari og próvhoyrari kunnu starvast á sama útbúgvingarstovni, men skulu ikki hava høvuðsstarv á somu útbúgvingarbreyt á sama stovni. Fyri próvdómara og próvhoyrara eru ásetingarnar um gegni og tagnarskyldu í løgtingslóg um fyrisiting galdandi. Próvdómari og próvhoyrari kunnu ikki døma hjá hvørjum øðrum í sama próvtøkutíðarskeiði. Próvdómari kann ikki próvdøma næming, hann sjálvur undirvísir í aðrari lærugrein.
+Stk. 2. Mentamálaráðið tekur í hvørjum einstøkum føri avgerð um, hvørjir próvdómarar og hvørjir próvhoyrarar kunnu krøkjast saman í sambandi við próvtøkuna.

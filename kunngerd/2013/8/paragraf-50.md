@@ -1,0 +1,5 @@
+§ 50. Tað er bert próvtakarin sjálvur, sum kann taka í móti tilboði um umdøming ella endurpróvtøku. Sama er galdandi fyri próvtakara undir 18 ár. Tað skal hann gera áðrenn 7 dagar eftir, at hann hevur fingið tilboðið. Endurpróvtøka ella umdøming skal setast í verk so skjótt til ber, og Mentamálaráðið útvegar nýggjar próvdómarar. Talið av nýggjum próvdómarum, umdómarum, skal altíð vera tað sama, sum talið av teimum, sum dømdu í fyrstu atløgu.
+Stk. 2. Er talan er um umdøming, skulu umdómararnir hava alla forsøguna at vita: uppgávuna, uppgávusvarið, kæruna, fakligu metingarnar hjá upprunadómarunum, viðmerkingar kærarans til fakligu metingarnar, avgerðirnar hjá leiðara útbúgvingarstovnsins og hjá Mentamálaráðnum.
+Stk. 3. Umdómararnir skulu áseta endaliga próvtalið.
+Stk. 4. Fyri umdómara eru ásetingarnar um gegni og tagnarskyldu í løgtingslóg um fyrisiting galdandi.
+Stk. 5. Er prógv útskrivað, verður tað kallað aftur og, um próvtalið verður broytt, skrivað út av nýggjum, so skjótt endalig avgerð fyriliggur.

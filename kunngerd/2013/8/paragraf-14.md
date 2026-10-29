@@ -1,0 +1,3 @@
+§ 14. Útbúgvingarstovnurin skal skipa so fyri, at próvtakarin hevur hóskandi arbeiðsumstøður undir próvtøkuni, og at próvtøkurnar kunnu verða hildnar ótarnaðar. Próvtøkuumstøðurnar verða skipaðar soleiðis, at tað er ómøguligt hjá próvtakara at samskifta óætlað.
+Stk. 2. Próvtakarin kann nýta hjálparmiðlar og telduútgerð til próvtøkuna. Reglurnar í námsætlanunum fyri lærugreinarnar og umstøðurnar annars kunnu tó avmarka nýtsluna.
+Stk. 3. Útbúgvingarstovnurin ger ítøkiligar mannagongdir um verklig viðurskifti í sambandi við próvtøkuumstøðurnar og í sambandi við nýtslu av hjálparmiðlum til próvtøkuna, sbr. § 6.

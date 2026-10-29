@@ -1,0 +1,1 @@
+§ 17. Útbúgvingarstovnurin kann gera av at bjóða próvtakara við niðursettum sálarligum ella likamligum virkisføri ella við øðrum serligum trupulleikum serligar próvtøkuumstøður, sum javnseta hann við aðrar próvtakarar. Í slíkum føri má próvtøkustigið ikki verða lækkað og serligu royndarumstøðurnar skulu lýsast skrivliga fyri próvdómara og próvhoyrara.
