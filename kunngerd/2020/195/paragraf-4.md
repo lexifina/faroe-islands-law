@@ -1,0 +1,2 @@
+§ 4. Er talan um at flyta persón úr einum bútilboði hjá landinum til eitt kommunalt bútilboð ella øvugt skal greið avtala millum myndugleikarnar vera tøk, áðrenn tilmæli verður lagt fyri tvingsilsnevndina sambært § 13, stk. 4 í løgtingslógini.
+Stk. 2. Umframt at myndugleikarnir skulu vera samdir um flytingina, skal avtalan sambært stk. 1 greitt lýsa, hvat slag av bútilboði, ið viðkomandi skal flyta í og nær og á hvønn hátt flytingin fer fram.
