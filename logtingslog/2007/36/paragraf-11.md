@@ -1,0 +1,1 @@
+§ 11. [^5] Vistarhaldsstudningur kann veitast umsøkjara, ið er undir 18 ár og noyðist at flyta nærri útbúgvingarstaðnum og hevur skjalprógvaðar útreiðslur av hesum. Vistarhaldsstudningurin er kr. 2.405.

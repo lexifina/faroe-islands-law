@@ -1,0 +1,3 @@
+§ 13. [^5] [^9] [^3] [^1] [^2] Studningur til skúlagjald kann veitast umsøkjara, ið er fyltur 18 ár, og sum fer undir hægri lestur uttan fyri Norðurlond. Studni rindar studning til skúlagjaldið sambært rokning frá útbúgvingarstaðnum. Studningurin til skúlagjaldið er í mesta lagi kr. 100.000 um árið. Møguligur studningur til skúlagjaldið frá SU ella øðrum lestrarstuðulsstovni verður roknaður sum partur av nevndu upphædd.
+Stk. 2. [^3] [^2] Studni kann veita lesandi lán til írestandi skúlagjald, tó í mesta lagi kr. 100.000 um árið.
+Stk. 3. [^3] Í serstøkum førum sbrt. § 5, stk. 1, nr. 2 kann Studni veita skúlagjald í Norðurlondum eftir reglunum í hesi grein.

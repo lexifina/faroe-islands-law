@@ -1,0 +1,1 @@
+§ 6 c. [^2] Landsstýrismaðurin ásetur reglur um, at næmingur, sum tekur lestrarfyrireikandi gymnasiala miðnámsútbúgving, sum er skipað sum liður í norðurlendskum samstarvi, og sum partvís er staðsett uttan fyri Føroyar, verður javnsettur við næming, sum tekur miðnámsútbúgving í Føroyum.

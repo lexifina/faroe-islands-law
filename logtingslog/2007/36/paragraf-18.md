@@ -1,0 +1,6 @@
+§ 18. [^1] Umsøkjarar á miðnámsútbúgvingum, pørtum á miðnámsútbúgvingum, vinnuførleikagevandi útbúgvingum ella á útbúgvingum á framhaldsdeildarstigi fáa í mesta lagi lestrarstuðul upp til eitt ár, eftir at ásetta lestrartíðin er lokin, tó ongantíð longri enn tvífaldað ásettu útbúgvingartíðina. Studni kann fyri lesandi á serliga skipaðum miðnámi leingja lestrartíðina í samráð við avvarðandi lærustovn við einum ári.
+Stk. 2. [^3] [^1] Umsøkjarar á hægri útbúgvingum fáa í mesta lagi lestrarstuðul upp til eitt ár eftir, at ásetta lestrartíðin er lokin. Íroknaður er eisini stuðulin frá Statens Uddannelsesstøtte til útbúgvingar av sama slagi. Stuðul verður í mesta lagi latin í 6 ár til hægri útbúgvingar, íroknað stuðulin frá Statens Uddannelsesstøtte.
+Stk. 3. Undantak frá teimum 6 árunum í stk. 2. kann tó gerast um ásetta lestrartíðin er longri enn 5 ár fyri eina útbúgving.
+Stk. 4. [^3] Studni kann gera undantak frá regluni um áramál í stk. 1 og 2, um lestrartíðin er vorðin longd vegna ráðsarbeiði, sjúku, barnsburð, ættleiðing, vísindaligt arbeiði o.a.
+Stk. 5. [^3] Studni kann leingja stuðulstíðina í stk. 2 við tveimum árum, um tann lesandi ikki hevur miðnámsútbúgving.
+Stk. 6. [^3] Tá talan er um hægri útbúgvingar, har ásetta lestrartíðin er 2 ár ella styttri, veitir Studni bara stuðul til skúlagjald sbrt. § 13 til ásettu lestrartíðina.

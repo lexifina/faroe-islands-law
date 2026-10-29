@@ -1,0 +1,4 @@
+§ 3. Lesandi er lestrarvirkin, um hann ikki er meira enn eitt ár afturúr í lesnaðinum í mun til ásettu lestrartíðina. Harafturat skal tann lesandi møta til frálæruna, lata inn kravdar uppgávur og fara til próvtøkurnar eftir teimum reglum, sum eru galdandi á útbúgvingarstovninum.
+Stk. 2. Frávik í ásetingini um lestravirkni verður gjørt í sambandi við barnsburð og ættleiðing.
+Stk. 3. [^2] Útbúgvingarstovnurin hevur eftirlit við, um tann lesandi er lestrarvirkin, og í seinasta lagi 6 mánaðir eftir, at tann lesandi er farin undir útbúgvingina, og hvørt hálvár eftir hetta, skal útbúgvingarstovnurin boða Studna frá, um tann lesandi er lestrarvirkin sambært stk. 1, 2. pkt.
+Stk. 4. [^2] Studni kann krevja stuðul rindaðan aftur, um tann lesandi hevur givið skeivar ella villleiðandi upplýsingar, ella hevur tagt burtur týðandi upplýsingar ella ikki lýkur treytirnar fyri stuðli annars.

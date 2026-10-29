@@ -1,0 +1,3 @@
+§ 8. Lestrarlán til livikostnað kann veitast umsøkjara, ið er fyltur 18 ár. Lánsupphæddin kann í mesta lagi vera kr. 2.287 um mánaðin.
+Stk. 2. [^3] Endalán kann veitast umsøkjara, ið eftir vanligu reglunum í § 18, stk. 2 hevur fingið tann stuðul, sum honum er heimilað at fáa frá Studna. Lánsupphæddin er í mesta lagi tann mánaðarliga hægra studningsupphæddin og lánsupphæddin tilsamans. Endalán fæst í upp til 11 mánaðir.
+Stk. 3. Treytin fyri at fáa endalán er, at tann lesandi tekur eina hægri útbúgving, er lestrarvirkin, og at avvarðandi lærustovnur kann vátta, at tann lesandi er førur fyri at gera útbúgvingina lidna innan eitt lestrarár.

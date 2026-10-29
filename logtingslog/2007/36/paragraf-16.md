@@ -1,0 +1,1 @@
+§ 16. Landsstýrismanninum verður heimilað at áseta nærri reglur um lestrarstuðlarnar, stuðulstíðarskeið og stuðulsupphæddir, um treytir, undantøk, um hvussu ofta stuðulin verður veittur, umsitingarligar mannagongdir og leiðreglur í sambandi við útrokningar, skjalprógv, freistir, v.m. fevnt av §§ 6 - 15.
