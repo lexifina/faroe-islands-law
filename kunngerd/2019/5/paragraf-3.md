@@ -1,0 +1,5 @@
+## Atgongd til at bjóða upp á rættindi á uppboði
+§ 3. Rættindi at veiða kunnu bjóðast persóni ella felag, sum lýkur treytirnar í § 5, stk. 1 og §§ 6, 7 og 9 í løgtingslógini.
+Stk. 2. [^1] Landsstýrismaðurin skal lýsa við uppboðssøluni í minsta lagi 5 vikur, áðrenn uppboðssølan verður hildin, ella boð skulu latast inn, sbr. tó § 16, stk. 2 og § 16 a, stk. 5. Lýst verður alment á heimasíðuni hjá Fiskimálaráðnum.
+Stk. 3. Persónur ella felag, ið ætlar at bjóða upp á rættindi á uppboðssølu, skal yvir fyri Vørn lata skjalprógv inn í seinasta lagi 3 vikur, áðrenn uppboðssøla verður hildin, ella boð skulu latast inn, at viðkomandi persónur ella felag lýkur treytirnar í § 5, stk. 1 og §§ 6, 7 og 9 í løgtingslógini. Uppboðssøluhaldarin kann krevja inn allar neyðugar upplýsingar og skjøl frá nevndu persónum ella feløgum.
+Stk. 4. Góðkenning, sambært § 5, stk. 1 í løgtingslógini, verður latin teimum, sum reka ella hava ætlan um at reka virksemi innan fiskivinnu. Vørn tekur avgerð um góðkenning sambært § 5, stk. 1 í løgtingslógini.

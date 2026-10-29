@@ -1,0 +1,4 @@
+§ 16 c. [^1] 20.000 tons av norðhavssild verða boðin út á opnari uppboðssølu sum eitt ára rættindi, har prísásetingin er sambært § 12, stk. 4, nr. 1. Hesi kunnu fiskast í føroyskum sjógvi og NEAFC-sjógvi.
+Stk. 2. [^2] 21.574 tons av norðhavssild verða boðin út á afturlatnari uppboðssølu sum eitt ára rættindi, har prísásetingin er sambært § 12, stk. 4, nr. 1. Hesi kunnu fiskast í føroyskum sjógvi og NEAFC-sjógvi.
+Stk. 3. 585 tons av norðhavssild verða boðin út á afturlatnari uppboðssølu sum trý ára rættindi, har prísásetingin er sambært § 12, stk. 4, nr. 2. Hesi kunnu fiskast í føroyskum sjógvi og NEAFC-sjógvi.
+Stk. 4. 1.170 tons av norðhavssild verða boðin út á afturlatnari uppboðssølu sum átta ára rættindi, har prísásetingin er sambært § 12, stk. 4, nr. 2. Hesi kunnu fiskast í føroyskum sjógvi og NEAFC-sjógvi.

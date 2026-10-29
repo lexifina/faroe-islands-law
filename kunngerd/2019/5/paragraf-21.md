@@ -1,0 +1,1 @@
+§ 21. Tá sølan í opnari og afturlatnari uppboðssølu er liðug, almannakunngera landsstýrismaðurin og uppboðssøluhaldarin tær upphæddir á vinnandi boðunum og navnið á teimum, ið hava vunnið uppboðssøluna.
