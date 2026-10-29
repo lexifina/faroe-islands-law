@@ -1,0 +1,1 @@
+§ 31. Á fiskiskipum við eini longd (L) á 24 metrar ella longri, skulu øll sjófólk, sum ikki hava kamar við egnum reinførishentleikum, í minsta lagi hava atgongd til eitt baðikar ella brúsu, eitt vesi og eitt hondvask, ið er ætlað til í mesta lagi 4 persónar.

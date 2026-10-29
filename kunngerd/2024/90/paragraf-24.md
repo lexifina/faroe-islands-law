@@ -1,0 +1,1 @@
+§ 24. Messurnar skulu hava eina hóskandi stødd, hentleikar, vera hóskandi møblerað og vera útgjørd, við atliti til arbeiðið á fiskiskipum, og til hvussu nógv sjófólk til eina og hvørja tíð fara at brúka tær.

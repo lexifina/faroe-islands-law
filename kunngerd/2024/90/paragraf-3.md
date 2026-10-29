@@ -1,0 +1,3 @@
+## Frávik o.a.
+§ 3. Sjóvinnustýrið kann, aftaná málið hevur verið til ummælis hjá viðkomandi feløgum fyri reiðarar og sjófólk, loyva frávikum fyri fiskiskip, hvørs vanligu túrar eru styttri enn 24 tímar, og har sjófólkið ikki býr umborð, tá ið skipið liggur í havn. Frávikið er treytað av, at sjófólkini hava hóskandi umstøður til hvíld, kost og reinførislig endamál.
+Stk. 2. Sjóvinnustýrið kann, aftaná málið hevur verið til ummælis hjá viðkomandi feløgum fyri reiðarar og sjófólk, loyva undantøkum frá ásetingunum í hesi kunngerð til at taka fyrilit til áhugamál hjá sjófólkum við ymiskum sermerktum átrúnaðarligum og samfelagsligum siðvenjum. Frávikið er treytað av, at slík undantøk ikki hava verri kor við sær enn tey, sum kunngerðin ásetur.
