@@ -1,0 +1,1 @@
+§ 2. [^1] Reglurnar í lóg nr. 85 frá 30. mars 1935 um inddrivelse af skatter og afgifter til det offentlige m.m. og midlertidige bestemmelser nr. 26 frá 24. september 1945 um inddrivelse af personlig landsskatt verða eisini galdandi fyri teir í § 1 nevndu pantifútar.

@@ -1,0 +1,1 @@
+[^1]: Broytt við løgtingslóg nr. 91 frá 15. november 1999. § 2 í hesi løgtingslóg er soljóðandi: ” Henda løgtingslóg kemur í gildi dagin eftir, at hon er kunngjørd. Samstundis fer danski teksturin í løgtingslóg nr. 28 frá 29. apríl 1964 um panting fyri skatt úr gildi.”
