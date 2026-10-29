@@ -1,0 +1,5 @@
+§ 8. P/F Lív lívs- og pensiónstryggingarfelag skal hava ein ábyrgdarhavandi tryggingarfrøðing í starvi.
+Stk. 2. Tann ábyrgdarhavandi tryggingarfrøðingurin skal ansa eftir, at felagið heldur sítt tøkniliga grundarlag til tess at røkja tær neyðugu tryggingartøkniligu uppgávurnar, herundir útrokningar og kanningar. Tryggingarfrøðingurin skal í hesum sambandi gjøgnumganga tað tryggingartøkniliga innihaldið í virksemi og tilfari felagsins.
+Stk. 3. Tann ábyrgdarhavandi tryggingarfrøðingurin skal beinanvegin boða Tryggingareftirlitinum frá einum og hvørjum broti á tey í stk. 2 nevndu viðurskifti. Tryggingarfrøðingurin hevur rætt til at krevja allar upplýsingar frá stjórnini, sum eru neyðugar fyri at útinna starvið. Tryggingareftirlitið kann krevja tær upplýsingar frá tryggingarfrøðinginum, sum eru neyðugar til metingar av fíggjarligu støðu felagsins.
+Stk. 4. Ábyrgdarhavandi tryggingarfrøðingurin skal senda Tryggingareftirlitinum árliga frágreiðing.
+Stk. 5. Landsstýrismaðurin kann áseta neyvari reglur um tey í stk. 1-4 nevndu viðurskifti, undir hesum um tey krøv, ið ein persónur skal lúka fyri at kunna verða settur í starv sum ábyrgdarhavandi tryggingarfrøðingur.
