@@ -1,0 +1,1 @@
+§ 2. Landsstýrismanninum er heimilað uttan viðurlag at avhenda til felagið allar forkanningar og annað tilfar, ið Landsverkfrøðingsstovnurin hevur framleitt í sambandi við verkætlanina um fast samband um Leirvíksfjørð. Slík avhending hevur ikki skattligar avleiðingar við sær fyri felagið.
