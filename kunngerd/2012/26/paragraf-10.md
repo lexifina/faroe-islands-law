@@ -1,0 +1,3 @@
+§ 10. Ein og hvør veljari kann kæra um fólkaatkvøðuna. Kærurnar, sum skulu vera skrivligar, skulu stílast til viðkomandi bygda(r)ráð/býráð, og skulu vera bygda(r)ráðnum/býráðnum í hendi í seinasta lagi 8 dagar aftaná, at atkvøðugreiðslan er gjørd endaliga upp.
+Stk. 2. Tey mótmæli, ið framsett eru í samsvari við frammanfyri standandi reglur, verða gjørd av bygda(r)ráðnum/býráðnum á fundi, ið hildin skal verða í seinasta lagi 10 dagar eftir, at freistin er farin. Áðrenn bygda(r)ráðið/býráðið tekur avgerð sína, verður ummæli valnevndarinnar um málið at fáa.
+Stk. 3. Tær avgerðir, sum bygda(r)ráðið/býráðið hevur tikið viðvíkjandi kærum um fólkaatkvøðuna kunnu, áðrenn 14 dagar eru lidnir, eftir at avgerðin er tikin, verða skotnar inn fyri landsstýrismannin.
