@@ -1,0 +1,1 @@
+§ 6. Jarðfest fornminni á havbotni frá fjøru og út til 24 fjórðingar frá grundlinjunum eru friðað og skulu varðveitast sambært løgtingslóg nr. 19 frá 16. september 1948 um friðan av fornminnum og bygningum.
