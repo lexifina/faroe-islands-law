@@ -1,0 +1,1 @@
+§ 6. Framrúturin skal vera av lamineraðum glasi, meðan aðrir rútar skulu vera av lamineraðum ella herdum glasi ella av brotpettatryggjaðum klárum plasttilfari. Til at halda framrútin reinan skulu uttan vera sjálvvirkandi rútastrúkarar og rútavaskarar.

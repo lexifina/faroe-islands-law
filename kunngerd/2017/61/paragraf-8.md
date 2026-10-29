@@ -1,0 +1,3 @@
+§ 8. Persónbilur til í mesta lagi nýggju persónar og vørubilur, hvørs loyvda heildarvekt ikki fer upp um 3.000 kg, skal hava mekaniska tjóvarítrygging.
+Stk. 2. Persónbilur til í mesta lagi nýggju persónar og vørubilur skal hava stoytdoyvara við øll hjól. Lastbilur skal hava stoytdoyvara við framhjólini.
+Stk. 3. Lokaður vøru- ella lastbilur skal vera avskildraður millum førararúmið og vørurúmið. Ongin persónur kann vera millum forsetrið og avskildringina ella í lokaða vørurúminum. Lastbilur við heildarvekt omanfyri 8.000 kg, kann tó hava eina eyka seturrekkju aftan fyri førarasetrið, um bilurin er tilgjørdur til tess.

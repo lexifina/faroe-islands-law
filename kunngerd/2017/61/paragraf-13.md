@@ -1,0 +1,1 @@
+§ 13. Lastbilur við floksgóðkendari heildarvekt uppá 3.500 kg ella meira skal í høgru síðu umframt tað kravda síðuspeglið hava eitt víðvinkulspegl, nærøkisspegl og frontspegl, um lastbilurin hevur frambygt førarahús. Nærøkisspeglið kann tó ikki verða sett í bilin, um ikki tað kann verða fest í minsta lagi 2 metrar yvir vegnum.

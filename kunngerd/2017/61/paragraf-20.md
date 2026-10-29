@@ -1,0 +1,1 @@
+§ 20. Traktorur, sum arbeiðsamboð eru fest á, skal lúka tær treytir, ið eru nærri ásettar um ásetan av støðuljósum, bakljósum og reyðum endurskinum, ið venda aftureftir, uttan so, at traktorurin verður frámerktur við gulari frámerkislykt, ið er týðiliga sjónlig frá øllum síðum, og harumframt endurskinum, ið lúka treytirnar um ásetan av kravdum endurskinum.

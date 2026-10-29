@@ -1,0 +1,1 @@
+§ 52. Skrásetingarskyldugt viðfestiamboð skal lúka treytirnar í 8. kapitli, tó skal húsvognur hava stoytdoyvara í fjaðringsskipanini. Eitt skrásetingarskyldug viðfestiamboð til motorsúkklu, skal lúka treytirnar í 9. kapitli.

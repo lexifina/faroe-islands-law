@@ -1,0 +1,1 @@
+§ 36. Tá førarin fer frá einum tvíhjólaðum prutli, skal prutlið vera útgjørt við eini skipan til tjóvarítrygging, ið er sett saman av lási og ketu, gjørð ella líknandi við eini styrki, ið svarar til herða tilfar, ið er í minsta lagi 9 mm tjúkt.

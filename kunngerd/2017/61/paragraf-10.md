@@ -1,0 +1,1 @@
+§ 10. Støðulyktirnar, baklyktirnar, nummarplátulyktirnar, frámerkislyktirnar og møguligu gulu síðufrámerkislyktirnar á einum bili skulu ikki kunna verða sløktar, tá ið nær- ella fjarljóslyktirnar ella tokuframlyktirnar eru tendraðar.

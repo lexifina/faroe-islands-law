@@ -1,0 +1,1 @@
+§ 37. Eitt stórt prutl er eitt prutl við eini konstruktivt ásettari ferð sum er meira enn 30 km/t og í mesta lagi 45 km/t, ella eitt trýhjólað prutl, tó ikki avlamisprutl, við eini konstruktivt ásettari ferð, sum í mesta lagi er 30 km/t.
