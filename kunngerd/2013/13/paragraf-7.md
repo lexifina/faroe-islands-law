@@ -1,0 +1,1 @@
+§ 7. Um persónur økir um bústaðarútreiðslur sínar við at flyta til annan dýrari bústað uttan rímiliga orsøk, verða bert upprunaligu bústaðarútreiðslurnar tiknar við í útrokningini av ískoytisupphæddini.
