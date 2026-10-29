@@ -1,0 +1,1 @@
+§ 1. Kunngerðin ásetur royndartøku og greiningarhættir til alment eftirlit við innihaldinum av dioxinum, dioxinlíknandi PCB evnum, blýggi, cadmium, kyksilvuri, ikki-lívrunnum tini, 3-MCPD og benzo(a) pyren í matvørum.
