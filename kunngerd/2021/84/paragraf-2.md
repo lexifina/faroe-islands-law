@@ -1,0 +1,1 @@
+§ 2. Í uppskoti sbrt. § 1 skal verða grundgivið fyri, hví viðkomandi persónur skal veljast í ráðið. Grundgevingin skal umfata eina lýsing av fakligum førleikum, viðkomandi royndum og persónligu eginleikunum hjá viðkomandi.
