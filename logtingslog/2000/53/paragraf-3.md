@@ -1,0 +1,2 @@
+§ 3. [^1] Verður loyvi latið einstaklingi ella einstaklingum í felag, skulu hesir hava bústað í Føroyum. Kravið um bústað í Føroyum er tó ikki galdandi fyri persónar, ið eru fevndir av Hoyvíkssáttmálanum, og hava bústað innan umveldisvídd sáttmálans.
+Stk. 2. [^1] Verður loyvi latið felag, skal felagið vera partafelag, smápartafelag ella lutafelag. Felagið skal vera skrásett í Føroyum ella aðrastaðni innan umveldisvídd Hoyvíkssáttmálans.

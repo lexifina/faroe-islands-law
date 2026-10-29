@@ -1,0 +1,1 @@
+[^1]: Broytt við løgtingslóg nr. 55 frá 16. mai 2006, har § 10 er soljóðandi: “Henda løgtingslóg fær gildi á gildisdegi Sáttmálans frá 31. august 2005 millum Stjórn Íslands, øðrumegin, og Stjórn Danmarkar og Føroya Landsstýri, hinumegin.”
