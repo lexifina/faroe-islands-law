@@ -1,0 +1,1 @@
+§ 8. [^1] Lærarar á øðrum undirvísingarstovnum v.m. kunnu eftir nærri meginreglum, sum Landsstýrismaðurin ásetir, taka á seg ta í hesum tátti nevndu undirvísing. Skylduga undirvísingartímatalið læraranna á viðkomandi stovni kann verða niðurskorið samsvarandi.

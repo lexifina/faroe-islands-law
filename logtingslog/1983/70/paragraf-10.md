@@ -1,0 +1,1 @@
+§ 10. [^1] Teir næmingar, sum fáa undirvísing í samsvarandi lærugreinum í fólkaskúlanum ella á øðrum undirvísingarstovnum, kunnu bert luttaka í serstakari frítíðarundirvísing eftir hesum tátti við loyvi frá Landsstýrismanninum.

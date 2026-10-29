@@ -1,0 +1,1 @@
+§ 16. [^1] Eftir teimum av Landsstýrismanninum ásettu reglum skulu kommunurnar á hvørjum ári senda inn ætlan um ta frítíðarundirvísing v.m., ið kommunan ætlar at fremja í komandi skúlaári eftir reglunum í hesari lóg.
