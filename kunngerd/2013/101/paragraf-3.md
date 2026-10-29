@@ -1,0 +1,1 @@
+§ 3. Eftir fyriskipan biskups skal sóknarprestur tey fyrstu fimm árini í føstum starvi taka lut í 4 serskeiðum. Hetta kann til dømis vera á kirkjuligum eftirútbúgvingarskeiðum í Føroyum, ella á kirkjuligum útbúgvingar- og eftirútbúgvingarskeiðum í øðrum londum.
