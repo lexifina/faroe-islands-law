@@ -1,0 +1,1 @@
+§ 12. Í próvtøkukunngerðini er ásett við hvørji vekt próvtøl telja í útrokningini av endaliga próvtøkuúrslitinum. Eitt vektað miðaltal verður roknað út soleiðis: Einstøku metini og próvtølini verða faldað við tilhoyrandi vekt og síðani løgd saman sum samløga 1. Síðan verða vektirnar lagdar saman sum samløga 2. Vektaða miðaltalið er so samløga 1 býtt við samløgu 2.

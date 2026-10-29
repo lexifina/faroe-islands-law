@@ -1,0 +1,1 @@
+§ 9. Um givin verða lutapróvtøl fyri ymisk lutavrik verður endaliga próvtalið ásett sum hækkað ella lækkað miðaltal til tað tal í próvtalsstiganum, ið er næst við. Liggur miðaltalið mitt ímillum tvey próvtøl í stiganum, verður hækkað. Lutapróvtøl kunnu sbrt. reglunum í próvtøkukunngerðini telja við ymiskari vekt, tá ið endaligt próvtal verður ásett.
