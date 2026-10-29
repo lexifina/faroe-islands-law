@@ -1,0 +1,2 @@
+§ 29. Skip, sum eru í sigling tann dag lógin fær gildi, og hvørs manning ikki er ásett í lógini, skal hava manning samsvarandi teimum manningarreglum og manningarásetingum, sum higartil hava verið galdandi, til nýggj manning er ásett.
+Stk. 2. Førir manningarásetingin, sum nevnd er í stk. 1, við sær minni krøv, skal minkingin av manningini teir fyrstu 6 mánaðirnar frá ásetingini bert fara fram við nátúrligari frágongd ella við komu í føroyska havn. Donsk ella Grønlendsk havn verða bert mettar sum føroysk havn um so er, at sjómaðurin hevur bústað í Danmark ella Grønlandi.

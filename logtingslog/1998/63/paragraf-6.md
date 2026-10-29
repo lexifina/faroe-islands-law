@@ -1,0 +1,2 @@
+§ 6. Radiopassarar á skipum, sum sambært galdandi fyriskipanum skulu hava radiotelefonútgerð til nýtslu í altjóða maritimu trygdarskipanini (GMDSS), skulu hava føroysk vinnubrøv sum skipsradiopassarar við STCW-átekning.
+Stk. 2. [^1] Á skipum skrásettum í Føroysku Altjóða Skipaskránni (FAS), verða ikki kravd føroysk sjóvinnubrøv, men gild sjóvinnubrøv við STCW-átekning frá Sjóvinnustýrinum til tænastu sum skipsradiopassarar.

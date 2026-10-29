@@ -1,0 +1,1 @@
+§ 6 a. [^2] Skipselektrikarar, ið skulu gera tænastu umborð á føroyskum handilsskipum eftir 31. desember 2016, skulu hava galdandi sjóvinnubræv ella førleikaprógv sum skipselektrikari við STCW-átekning.

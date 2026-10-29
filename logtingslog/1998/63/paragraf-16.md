@@ -1,0 +1,1 @@
+§ 16. Tann rættur til at føra skip, sum fylgir við vinnubrøvum fellur burtur, tá ið tann, sum hevur brævið, missir heimarætt. Landsstýrismaðurin í sjóvinnumálum kann tó, tá ið serliga ber til, veita undantøk frá hesari reglu. Fær avvarðandi aftur heimarætt, skal rætturin at føra skip somuleiðis verða roknaður sum afturfingin, smb. tó § 12, stk. 3.

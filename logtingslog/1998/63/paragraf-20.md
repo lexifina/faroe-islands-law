@@ -1,0 +1,1 @@
+§ 20. Landsstýrismaðurin í sjóvinnumálum kann, eftir samráð við reiðara- og sjómannafeløgini, broyta tey í hesi lóg ásettu tonsamørk til onnur mørk, sum sett eru í aðrari málieind og broyta tey í hesi lóg ásettu mørk fyri framtøkumegi.

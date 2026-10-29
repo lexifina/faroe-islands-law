@@ -1,0 +1,2 @@
+§ 15. [^1] Sjóvinnubræv, sum er afturtikið, verður latið Sjóvinnustýrinum.
+Stk. 2. Landsstýrismaðurin í sjóvinnumálum kann til eina og hvørja tíð geva tikið sjóvinnubræv aftur, tá umstøðurnar, sum vóru orsøk til afturtøkuna, ikki longur vera hildnar at vera til staðar. Verður umsókn um at fáa brævið aftur noktað, kann umsøkjarin krevja spurningin lagdan fyri dómstólarnar. Um málið áður hevur verið lagt fyri dómstólarnar, kann hetta tó ikki verða fyrr enn í minsta lagi 1 ár eftir, at frátøkan seinast var staðfest við dómi. § 14, stk. 2 og 3 verða nýtt tilsvarandi.

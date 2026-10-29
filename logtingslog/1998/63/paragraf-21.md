@@ -1,0 +1,2 @@
+§ 21. [^1] Sjóvinnustýrið kann, ansandi bindandi altjóða samtyktum og § 4, stk. 4, í serligum førum og í avmarkaðum tíðarskeiði økja ella minka um manningartalið sambært manningarskjalinum.
+Stk. 2. [^1] Sjóvinnustýrið kann í serligum førum og ansandi bindandi altjóða samtyktum, loyva, at persónur verður havdur í starvi, tó at hann hevur ikki slíkt vinnubræv, sum krevst í starvinum, men bert fyri einstaka ferð ella ávíst tíðarbil, sum ikki skal vera longri enn 6 mánaðir.

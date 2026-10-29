@@ -1,0 +1,2 @@
+§ 28. Sjóvinnubrøv, útgivin áðrenn lógin fekk gildi, geva ánarum teirra somu rættindi sum teir høvdu frammanundan. Sjóvinnubrøv, sum geva rættindi til tænastu sum dekksyvirmaður, maskinyvirmaður ella radiopassari við handilsskipum eru tó bert gild til tann 1. februar 2002.
+Stk. 2. Fyri skip, ið eru minni enn 24 m til longdar, og sum bert eru uppmáld sambært áður galdandi málireglum, verður tað á skipsins málibrævi ásetta bruttoregistartonsatal (BRT), rundað niðureftir uttan brottøl, nýtt í staðin fyri tað í hesi lóg ásetta bruttotonsatal (BT).
