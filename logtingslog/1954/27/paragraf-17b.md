@@ -1,0 +1,1 @@
+§ 17 b. [^1] [^14] Landsstýrismaðurin stílar fyri, at kanningar og vísindaligar teljingar av grágás og brandgás verða framdar. Landsstýrismaðurin kann eftir avtalu við viðkomandi landsstýrismann leggja uppgávurnar nevndar í 1. pkt. til ein annan myndugleika undir avvarðandi landsstýrismanni at umsita.

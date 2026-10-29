@@ -1,0 +1,1 @@
+§ 26. Henda lóg kemur í gildi beinan vegin, og samstundis fer lóg nr. 101 frá 4. apríl 1928, broytt við lóg nr. 108 frá 15. marts 1939, kunngerð nr. 35 frá 20. marts 1942 og kunngerð nr. 25 frá 24. september 1945 úr gildi.

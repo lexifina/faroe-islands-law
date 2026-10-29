@@ -1,0 +1,1 @@
+§ 8. [^1] Teir uppnevndu sýnismennirnir skulu skila til í sýninum, um tað í krevjingini tilskilaða lendi, alt sum tað er, ella nakað av tí, eigur at friðast, og um markini, um so er, at tey eru ikki tilskilaði í løgtingslógini, harinnanfyri skjóting o.a. eigur at vera forboðin. Sýnið skal fara fram eftir 3 daga fyrivarni til krevjarin ella um fleiri eru, til ein teirra.
