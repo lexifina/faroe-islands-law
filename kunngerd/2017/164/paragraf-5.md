@@ -1,0 +1,5 @@
+§ 5. [^5] Fiskifar, sambært § 4, skal hava avreitt í minsta lagi fyri í miðal kr. 350.000 fyri hvønn tilmeldaðan persón seinastu 12 mánaðirnar frammanundan, og í minsta lagi fyri í miðal kr. 25.000 fyri hvønn tilmeldaðan persón seinastu 3 mánaðirnar frammanundan.
+Stk. 2. Er talan um nýtt fiskifar ella nýggjan eigara av fiskifari, ið ikki lýkur treytirnar í stk. 1, kann hetta far eftir 3 mánaðir koma undir skipanina, um avreiðingarvirðið í minsta lagi í miðal er kr. 60.000 fyri hvønn tilmeldaðan persón seinastu 3 mánaðirnar frammanundan. Henda regla er galdandi fyri einstaka fiskifarið í 12 mánaðir frá fyrstu tilmelding.
+Stk. 3. Avreiðingarvirðið, sambært stk. 1 og 2 kann varðveitast við eigaraskifti.
+Stk. 4. Eru treytirnar í stk. 1 og 2 ikki loknar vegna serligar umstøður, kann frávik gerast 2 ferðir í einum álmanakkaári. Umsókn um frávik verður viðgjørt við serligum atliti at meginregluni um, at sannlíkindi eru fyri, at fiskifarið hevði komið undir skipanina, um tað hevði verið í vinnu.
+Stk. 5. Frávik, sambært stk. 4, verður bert loyvt, um skrivlig umsókn saman við neyðugum próvtilfari fyriliggur, samanber § 8, stk. 3.
