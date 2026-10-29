@@ -1,0 +1,3 @@
+§ 3. Tann, ið ætlar at byrja virki sum nevnt í § 2, skal velja eitt slíkt stað at útinna hetta, at vandin fyri dálking verður avmarkaður so væl sum til ber.
+2. stk. Tá staðið skal veljast, skal ansast eftir, hvussu økið er háttað íroknað verandi og ætlaðar komandi nýtslur, eisini við atliti til hóskandi burturtøku av spillvatni og øðrum burturkasti.
+3. stk. Tann, ið útinnir ella ætlar at byrja virki sum umrøtt í § 2, skal fremja tær til fyribyrgingar og forðingar av dálkingini neyðugu atgerðir og leggja til rættis rakstur virkisins á ein slíkan hátt, at virkið í minst møguligan mun elvir dálking.

@@ -1,0 +1,1 @@
+§ 30. Saman við umsókn um góðkenning sambært §§ 26-28 skulu verða hjálagdar neyðugar ætlanir, tekningar og frágreiðingar, ið gera ætlanina skilliga, umframt ein tilskilan av slagnum og nøgdini av ætlaðu ella verandi dálkingini. Tilskilast skal, hvørjar atgerðir verða framdar við tí endamáli at minka um hesa dálking.

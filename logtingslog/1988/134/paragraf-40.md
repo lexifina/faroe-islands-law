@@ -1,0 +1,2 @@
+§ 40. [^1] Tann, ið ábyrgdina hevur av viðurskiftum ella útbúnaðum, ið elva kunnu dálking, skal eftir umbøn frá landsstýrismanninum lata allar upplýsingar, her uppi í viðvíkjandi fíggjarligum og roknskaparligum viðurskiftum, ið týdning hava fyri metingina av dálkingini og fyri møguligum bøtandi atgerðum.
+2. stk. [^1] Landsstýrismaðurin kann áleggja avvarðandi at fremja kanningar ella at lata royndir av tilfari v.m., ið nýtt ella viðgjørt verður av avvarðandi, og av møguligum burturkastevnum.

@@ -1,0 +1,1 @@
+§ 28. [^1] Landsstýrismaðurin kann krevja av einstøkum fyritøkum, virkjum ella útbúnaðum, ið ikki eru nevnd í fylgiskjalinum, at tey innan eina nærri ásetta freist søkja um góðkenning sambært §§26-27, tá ið mett verður, at serligur tørvur er á tí.

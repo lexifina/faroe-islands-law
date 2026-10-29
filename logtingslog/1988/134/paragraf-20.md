@@ -1,0 +1,2 @@
+§ 20. [^1] Hevur ein kommuna ikki innan ta tíðaráseting, ið er ásett í eini ætlan sum nevnt í § 18, gjørt ella skipað fyri gerð av einum verki, ið er upptikið í ætlanina, kann landsstýrismaðurin áleggja kommununi at gera verkið ella at fáa hetta gjørt innan eina ásetta freist.
+2. stk. [^1] Fer kommunan út um eina freist, ið ásett er sambært 1. stk., kann landsstýrismaðurin fáa verkið gjørt fyri kommununnar rokning.

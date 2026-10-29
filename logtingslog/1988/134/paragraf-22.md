@@ -1,0 +1,2 @@
+§ 22. Útreiðslurnar við gerð, rakstri og viðlíkahaldi av almennum og felags privatum spillvatnreinsiverkum, her uppi í útreiðslurnar til felags leiðingar, avskerandi leiðingar, reinsiverk, ognartøkur og nýtsluavmarkingar, verða at rinda og býta sambært reglur, ið kommunan ásetir, samanber tó § 23.
+2. stk. Í reglum sambært 1. stk. kann kommunan áseta avgjøld fyri tøming og burturtøku av evju og spillvatni frá húsatangum og samlitangum til hússpillvatn.

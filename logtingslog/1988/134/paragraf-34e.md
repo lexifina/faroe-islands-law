@@ -1,0 +1,1 @@
+§ 34 e. Í sambandi við forboð móti sølu ella nýtslu eftir § 34a kann landsstýrismaðurin áleggja framleiðara ella innflytara fyri egnu rokning at afturkalla evnið, framleiðsluna ella vøruna frá sølufólki ella brúkara.

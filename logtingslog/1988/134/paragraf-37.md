@@ -1,0 +1,4 @@
+§ 37. Um boð ella forboð verða ikki lýdd innan ásettu freist, kann myndugleikin, ið hevur eftirlitið sambært § 36 (eftirlitsmyndugleikin), lata atgerðina verða framda fyri rokning tess, ið ábyrgdina hevur. Útreiðslur verða bornar av avvarðandi ogn.
+2. stk. Tá ið atgerðir eru bráðneyðugar til tess at forða álvarsamari dálking ella spjaðing av dálkingini fremur eftirlitsmyndugleikin tað, ið neyðugt er uttan boð og fyri rokning tess, ið ábyrgdina hevur. Ásetingin í 1. stk. 2. pkt. verður nýtt á sama hátt.
+3. stk. [^1] Løgreglan er eftirlitsmyndugleikanum til hjálpar við fremjingini við heimildum sambært 1. og 2. stk., tá ið vandi er fyri álvarsamari dálking. Landsstýrismaðurin kann áseta nærri reglur um hetta.
+4. stk. Ásetingarnar í 1.-3. stk. verða nýttar á sama hátt, tá eftirlitsmyndugleikarnir geva boð um, at ólóglig viðurskifti verða steðgað.

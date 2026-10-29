@@ -1,0 +1,1 @@
+§ 27. [^1] Landsstýrismaðurin ásetir reglur um, at verandi fyritøkur, virkir ella útbúnaðir av teimum sløgum, ið eru nevnd í fylgiskjalinum, innan nærri ásetta freist skulu søkja um góðkenning, uttan mun til, um tey verða víðkað ella broytt.

@@ -1,0 +1,2 @@
+§ 55. [^1] Landsstýrismaðurin kann taka avgerð um, at landsstýrismaðurin sum lið í landsplanleggingini skal fáa til vega fyribils kanningar og metingar av teimum umhvørvisligu avleiðingunum í sambandi við gerð av størri einstøkum virkjum. Landsstýrismaðurin kann taka avgerð um, at gerast skal ein meting av ymiskum støðumøguleikum fyri slík virkir.
+2. stk. Tann, ið søkir um at seta eitt virki á stovn sum nevnt í 1. stk., skal veita stuðul í sambandi við at kanningarnar og metingarnar verða framdar.

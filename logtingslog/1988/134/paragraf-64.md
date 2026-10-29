@@ -1,0 +1,2 @@
+§ 64. Áðrenn avgerð verður tikin um boð ella forboð, skal móttakarin hava skrivliga frásøgn og kunnast við, at hann hevur rættindi til málsinnlit og til at bera síni sjónarmið fram. Móttakarin eigur í hesum sambandi at fáa áheitan um at veita upplýsingar, ið kunnu lýsa kostnað, fyrimunir og vansar við avgerðini.
+2. stk. Frásøgn sum nevnd í 1. stk. kann verða frávikin, um stundislig avgerð er kravd, ella um frásøgn eyðsýnd kann ætlast at vera óneyðug.

@@ -1,0 +1,1 @@
+§ 19. Um uppskotið til eitt verk, ið sambært eini ætlan sum nevnt í § 18 skal fáast til vega av ognarunum, ikki kann ætlast at verða komið innan ta tíðaráseting, ið nevnd er í ætlanini, skal kommunan gera uppskotið og kann eftir hetta áleggja ognarunum at fremja verkið innan eina ávísa freist.

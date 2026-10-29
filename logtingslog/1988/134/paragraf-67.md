@@ -1,0 +1,4 @@
+§ 67. Ein kæra setur steðg fyri einum boði ella forboði til avgerð frá kærumyndugleikanum fyriliggur ella til kærumyndugleikin avger annað.
+2. stk. Tann myndugleiki, ið tekur avgerðina um boð ella forboð, kann kortini, tá serligar orsøkir eru fyri tí, samstundis við boðnum ella forboðnum avgera, at tað skal fylgjast uttan mun til kæru. Um henda avgerð verður kærd, skal boðið ella forboðið fylgjast, til kærumyndugleikin avger annað.
+3. stk. Byggi- og tilgerðararbeiði, ið neyðug eru til tess at gera nýtslu av einum loyvi ella góðkenning, kunnu ikki verða sett í verk innan kærufreistin eftir § 66 er farin. Verður góðkenning ella eitt loyvi kært, áðrenn kærufreistin er farin, kann byggi- og tilgerðararbeiði ikki setast í verk, áðrenn avgerð kærumyndugleikans er fingin ella kærumyndugleikin gevur loyvi til byrjan.
+4. stk. [^1] Landsstýrismaðurin kann áseta reglur um, at 3. stk. ikki er galdandi fyri ávís smærri sløg av byggi- og tilgerðararbeiðum.

@@ -1,0 +1,1 @@
+§ 46. [^1] Landsstýrismaðurin kann broyta treytirnar fyri einum virki ella loyvi við atliti til at bøta um eftirlit virkisins við egnari dálking (egið eftirlit) ella við atliti til at fáa til vega eitt betri hóskandi eftirlit. Ásetingar í boðum kunnu á sama hátt verða broyttar.

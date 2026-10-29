@@ -1,0 +1,2 @@
+§ 34 b. Landsstýrismaðurin kann áseta nærri reglur um, at til evnafrøðilig evni, framleiðslur ella vørur skal brúkaraleiðbeining fylgja við. Í hesum sambandi kunnu krøv verða sett til m.a. tilevning og innihald í brúkaraleiðbeiningini, herundir krav um, at leiðbeiningin skal verða góðkend av landsstýrismanninum ella tí, ið landsstýrismaðurin hevur heimilað til tess.
+Stk. 2. Í brúkaraleiðbeiningunum eftir stk. 1 kunnu verða ásettar bindandi reglur um nýtslu, varðveitslu og burturbeining av evninum, framleiðsluni ella vøruni.

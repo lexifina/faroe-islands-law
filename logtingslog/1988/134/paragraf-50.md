@@ -1,0 +1,1 @@
+§ 50. [^1] Landsstýrismaðurin kann eftir samráðing við kommunalu myndugleikarnar fremja eina kortlegging av luftdálkingini, her uppi í eina kortlegging av dálkingarkeldunum og eina ætlan um luftdygdina.

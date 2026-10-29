@@ -1,0 +1,1 @@
+§ 14. [^1] Landsstýrismaðurin ásetir nærri reglur viðvíkjandi viðgerðini av málum sambært §§ 12-13, heruppií viðvíkjandi at kalla inn ognarar og brúkarar, hvørs áhugamál metast at verða nomin, til fundar, áðrenn áseting av verndarøkjum sambært § 12.

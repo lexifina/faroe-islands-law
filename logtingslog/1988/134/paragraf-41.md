@@ -1,0 +1,2 @@
+§ 41. Tann, ið ábyrgdina hevur fyri viðurskiftum ella útbúnaðum, ið elva kunnu dálking, skal beinanvegin geva eftirlitsmyndugleikunum boð, føra rakstrartrupulleikar ella óhapp við sær týðandi dálking ella ber í sær vanda fyri slíkari.
+2. stk. Boð sambært 1. stk. elva onga avmarking í skyldu hansara, ið ábyrgdina hevur, at fáa avleiðingarnar av rakstrartupulleikanum ella óhappinum forðaðar ella fyribyrgdar á munagóðan hátt.

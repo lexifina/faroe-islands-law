@@ -1,0 +1,2 @@
+§ 2. Lógin fevnir um alt virki, haðani føst, flótandi ella luftvorðin evni, ristingar, geisling, ljós og óljóð kunnu elva dálking av luftini jørðini, áum, vøtnum ella føroyska sjóøkinum.
+2. stk. Lógin fevnir harumframt um virki, ið viðvíkur vandafullum tilgongdum umframt goymslu og flutning av evnum við vandamiklum eginleikum, so at rakstrartarn ella óhapp kunnu føra við sær hóttandi vanda fyri dálking sum nevnd í 1. stk.

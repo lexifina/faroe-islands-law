@@ -1,0 +1,1 @@
+§ 63. Í boðum og forboðum skal tað við avgerðina vera ásett ein freist at fylgja avgerðini. Í teimu førum, ið nevnd eru í § 60, 1. stk., har stundislig tiltøk eru kravd, kann verða avgjørt, at avgerðin skal fylgjast alt fyri eitt.

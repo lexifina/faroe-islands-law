@@ -1,0 +1,1 @@
+§ 8. [^1] Landsstýrismaðurin kann fyri at fyribyrgja dálking, har hetta hevur týdning fyri umhvørvisverndina, áseta reglur um bann ella avmarking fyri innflutningi, nýtslu ella sølu av ávísum evnum, um so er, at hesi kunnu ætlast at vera til skaða fyri umhvørvið.
