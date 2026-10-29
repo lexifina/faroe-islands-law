@@ -1,0 +1,1 @@
+§ 12. Gera heilt serlig viðurskifti seg galdandi, kann sjúkrahúsverkið bera uppihalds- og kostútreiðslurnar, so heilsustarvsfólk kunnu vera um sjúklingin í eitt tíðarskeið. Yvirlæknin tekur avgerð í slíkum málum.

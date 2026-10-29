@@ -1,0 +1,1 @@
+§ 10 a. [^2] [^1] Fylgjarar, fevndir av hesi kunngerð, rinda 150,00 kr. um samdøgrið hvør fyri uppihald á sjúklingahotelli o.l., har matur er íroknaður uppihaldinum, tó í mesta lagi 1.500,00 kr. um mánaðin.

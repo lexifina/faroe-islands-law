@@ -1,0 +1,4 @@
+## Ferðaútreiðslur fyri fylgjarar
+§ 7. [^1] Tá ið fyrisitingin innan sjúkrahúsverkið metir, at sjúklingur, vegna lívshóttandi sjúku, ella vegna likamligt, sálarligt ella sosialt ófullføri, ikki er førur fyri at ferðast ella uppihalda sær einsamallur uttanlands, kann sjúkrahúsverkið bera ferðaútreiðslur fyri ein fylgjara til og frá viðgerðarstað.
+Stk. 2. [^1] Tá ið avgerð verður tikin um fylgjara, metir fyrisitingin innan sjúkrahúsverkið, um tað er neyðugt at hava fylgjara alla viðgerðartíðina. Fyrisitingin kann í hesum sambandi taka avgerð um, bert at bera ferða- og uppihaldsútreiðslur fyri fylgjara partar av viðgerðartíðini.
+Stk. 3. [^2] [^1] Treytin fyri at verða fylgjari hjá sjúklingi sambært hesi kunngerð er, at fylgjari er myndugur og er førur fyri at átaka sær uppgávuna sum fylgjari. Fylgjari skal ikki hava aðrar ábyrgdir, meðan viðkomandi er fylgjari hjá sjúklingi.

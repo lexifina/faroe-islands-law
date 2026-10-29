@@ -1,0 +1,1 @@
+§ 13. [^1] Velur ein sjúklingur ella fylgjari sjálvur eitt annað uppihaldsstað enn tað, sum sjúkrahúsverkið hevur ávíst viðkomandi, ber sjúklingurin ella fylgjarin sjálvur uppihalds- og kostútreiðslurnar, ið standast í hesum sambandi.

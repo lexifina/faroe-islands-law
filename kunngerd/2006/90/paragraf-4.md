@@ -1,0 +1,4 @@
+§ 4. Tá ein yvirlækni ávísir sjúklingi til viðgerðar uttanlands, skipar sjúkrahúsverkið fyri ferðini og ber útreiðslurnar av henni.
+Stk. 2. Ferðaútreiðslurnar verða goldnar sjúklinginum báðar vegir millum fráfaringarstað hjá viðkomandi í Føroyum og til viðgerðarstaðið uttanlands, ella til tað uppihaldsstað, sum sjúkrahúsverkið hevur ávíst sjúklinginum til.
+Stk. 3. Velur ein sjúklingur sjálvur eitt annað uppihaldsstað, enn tað sum sjúkrahúsverkið hevur ávíst viðkomandi, ber sjúklingurin sjálvur ferðaútreiðslurnar millum atkomustaðið í landinum, har viðgerðin fer fram, og sjálvvalda uppihaldsstaðið.
+Stk. 4. Velur ein sjúklingur sjálvur eitt annað uppihaldsstað enn tað, sum sjúkrahúsverkið hevur ávíst viðkomandi til, ber sjúklingurin sjálvur ferðaútreiðslurnar millum sjálvvalda uppihaldsstaðið og viðgerðarstaðið.
