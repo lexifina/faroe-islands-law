@@ -1,0 +1,3 @@
+21. november 2025 Nr. 182
+# Kunngerð um áseting og javning av almannaveitingum fyri 2026
+Við heimild í § 6 í løgtingslóg nr. 107 frá 22. desember 1999 um áseting av almannaveitingum, sum broytt við løgtingslóg nr. 4 frá 25. januar 2001, løgtingslóg nr. 113 frá 11. desember 2007, løgtingslóg nr. 139 frá 6. oktober 2011 og løgtingslóg nr. 118 frá 9. desember 2024, § 12, stk. 5 í løgtingslóg nr. 63 frá 15. mai 2012 um arbeiðsfremjandi tiltøk, sum broytt við løgtingslóg nr. 142 frá 20. desember 2012 og § 15, stk. 3 og § 47, stk. 4 í løgtingslóg nr. 72 frá 25. mai 2020 um almannatrygd og tænastur, sum broytt við løgtingslóg nr. 45 frá 27. mars 2025, verður ásett:
