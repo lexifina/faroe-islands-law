@@ -1,0 +1,1 @@
+§ 29. [^1] [^18] Í tíðarskeiðinum 2010 – 2013 verður 35%-skatturin, ið er nevndur í §§ 14, stk. 2, 15, stk. 1 og 16, stk. 1 broyttur soleiðis, at hann í 2010 er 39%, í 2011 er skatturin 38%, í 2012 er skatturin 37% og í 2013 er skatturin 36%.

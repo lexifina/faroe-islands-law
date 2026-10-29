@@ -1,0 +1,4 @@
+§ 16. Renta, sum føroyskir peningastovnar og postgiro geva likamligum persónum og deyðsbúgvum av innistandandi peningi, herav ábyrgdarpeningi í føroyskum sparikassum, er fevnd av hesi grein. Skatturin áliggur kontuhavaranum, men verður av peningastovni ella postgiro, kontuhavarans vegna, rindaður við 35% burtur av tí tilskrivaðu rentuni.
+Stk. 2. [^5] Peningastovnar og postgiro skulu í seinasta lagi tann 15. í mánaðinum aftaná rentustilskriving avrokna rentuskattin av innistandandi peningi, herundir ábyrgdarpeningi í føroyskum sparikassum, til TAKS.
+Stk. 3. [^13] [^14] Er skatturin eftir stk. 2 ikki goldin, tá freistin er úti, skulu 0,7% roknast í rentu fyri hvønn byrjaðan mánað frá gjalddegnum at rokna. Sama er galdandi fyri skuldskrivaða rentu.
+Stk. 4. Renta kann ikki dragast frá skattskyldugu inntøkuni eftir skattalógini.

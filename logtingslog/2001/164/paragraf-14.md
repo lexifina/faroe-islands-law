@@ -1,0 +1,7 @@
+## Kapittul 5
+## Almennar ásetingar
+## Uppgerð v.m.
+§ 14. [^1] Ein uppgerð verður gjørd, har vinningur og tap eftir §§ 4, 6, 7, 8 ,9, og 10 verða løgd saman.
+Stk. 2. [^10] [^1] [^5] Vísir uppgerðin ein vinning, lata likamligir persónar og deyðsbúgv ein skatt upp á 35%. Feløg og grunnar v.m. lata skatt upp á 18%. Vísir inntøkuuppgerðin eftir skattalógini hall, kunnu feløg og grunnar o.o. taka vinning eftir hesi grein við í uppgerðina av skattskyldugu inntøkuni eftir skattalógini. Hetta er tó bert galdandi fyri so stóran part av vinninginum, sum dekkar hall, harundir hall frá eldri inntøkuárum, sum felagið kann føra fram til frádrátt í seinni inntøkuárum.
+Stk. 3. [^12] Vísir skattauppgerðin hall, kann hetta verða drigið frá í uppgerðini eftir hesi grein fylgjandi árini. Hall kann bert flytast fram til frádrátt eitt seinni inntøkuár, í tann mun tað ikki er rúm fyri tí í møguligum nettovinningi eitt fyrri ár.
+Stk. 4. [^1] [^2] [^7] Hall hjá einum felagi, fevnt av § 1, stk. 1, nr. 8 í skattalógini, fellur burtur, um ikki minst 50% av partapeninginum o.a. ella atkvøðuvirðinum í felagi, fevnt av vinnufelagalógini, eru á somu hondum við byrjan av tí inntøkuári, hallið ætlandi verður flutt til, sum tey vóru við endan av tí inntøkuári, tá hallið varð staðfest. Hallið í 1. pkt. fellur tó ikki burtur um felagið, tá skiftið í eigaraviðurskiftunum fór fram, hevði vinnuligt virksemi av týdningi við búskaparligum váða.

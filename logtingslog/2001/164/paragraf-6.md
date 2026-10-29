@@ -1,0 +1,8 @@
+## Fíggjarkrøv og skuld
+§ 6. Vinningur ella tap sambært § 1, nr. 2 og 3 skulu roknast við í uppgerðina av skattskyldugu inntøkuni eftir § 14, tá vinningurin ella tapið eru ásannað (realisatiónsprinsippið).
+Stk. 2. Vinningur ella tap av krøvum verða gjørd upp sum munurin millum úveganarupphædd og avhendingarupphædd.
+Stk. 3. Vinningur ella tap av skuld verða gjørd upp sum munurin millum virðið á skuldini, tá skuldin varð stovnað og virðið, tá skuldin verður innloyst ella frígivin. Verður skuldin innloyst við avdráttum, verður íroknaður skattskyldugu inntøkuna so stórur partur, sum svarar til lutfallið millum innloysingarvirðið við frádrátti av útveganarvirðinum og innloysingarvirðið.
+Stk. 4. [^1] Fyri likamligar persónar og deyðsbúgv skal vinningur bert roknast við í uppgerðina av skattskyldugu inntøkuni eftir § 14, um vinningurin er meir enn 1.000 kr. samanlagt um árið. Tap kann bert dragast frá í uppgerðini av skattskyldugu inntøkuni eftir § 14 av lánsbrøvum, skuldarbrøvum og pantibrøvum, ið eru skrásett á virðisbrævamarknaði.
+Stk. 5. Tap av skuldarum og tap av viðurlagsvinnu verða viðgjørd eftir reglunum í skattalógini.
+Stk. 6. [^1] Valutakursvinningur ella -tap av fíggjarkrøvum og skuld, ið hava samband við skattgjaldarans vinnuvirki, verða tikin við í skattskyldugu inntøkuna eftir skattalógini. Vinningurin ella tapið verða tikin við í skattskyldugu inntøkuna tað árið, vinningurin er staðfestur, og tapið er goldið.
+Stk. 7. [^7] Vinningur ella tap í sambandi við innloysing ella umlegging o.a. av realkreditláni í egnum bústaði, sbr. § 2, stk. 1 í løgtingslóg um stuðul til rentuútreiðslur av lánum, skal ikki roknast við í skattskyldugu inntøkuni eftir § 14.

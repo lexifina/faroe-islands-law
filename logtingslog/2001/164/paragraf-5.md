@@ -1,0 +1,4 @@
+§ 5. Verða tey í § 1, nr. 1 nevndu virðisbrøv avhendað til tað felagið v.m., ið hevur givið út virðisbrævið, skal avhendingarupphæddin roknast fyri vinningsbýti. Sama er galdandi fyri umbýtilig lánsbrøv og tekningsrættindi til tey í § 1, nr. 1 nevndu virðisbrøv.
+Stk. 2. [^5] TAKS kann loyva, at avhendingarupphæddin ikki verður viðgjørd eftir stk. 1.
+Stk. 3. [^5] Fer avhending nevnd í stk. 1. fram í tí kalendaraári, tá felagið, ið hevur givið virðisbrævið út, er endaliga avtikið, er stk. 1 ikki galdandi. Stk. 1 er heldur ikki galdandi, tá eitt børsskrásett felag keypir egin partabrøv á einum skipaðum marknaði, tá endamálið við afturkeypinum antin er at lækka partapeningin ella at nýta partabrøvini sum lið í lønargjaldi til starvsfólk.
+Stk. 4. Í teim í stk 2 og stk. 3 nevndu førum verða vinningur ella tap viðgjørd eftir somu reglum sum vinningur ella tap við avhendan av partabrøvum v.m. til onnur enn tey í stk. 1 nevndu feløg v.m., jbr § 4.

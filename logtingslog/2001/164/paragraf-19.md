@@ -1,0 +1,2 @@
+## Skattur goldin í øðrum landi
+§ 19. Skattur, sum er goldin øðrum landi av inntøku haðani, har tvískattasáttmáli ikki er gjørdur, annaðhvørt skatturin er beinleiðis álíknaður ella afturhildin, kann verða drigin frá í tí skatti, sum latin skal verða í Føroyum av hesari inntøku. Frádrigin kann tó ikki verða meira enn tann skattur, sum lutfalsliga fellur á ta í øðrum landi skattaðu inntøkuna, sum eisini er skattað í Føroyum.

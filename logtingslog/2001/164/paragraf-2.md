@@ -1,0 +1,1 @@
+§ 2. [^5] Skattskylda eftir hesi løgtingslóg áliggur øllum teimum persónum, feløgum, stovnum, deyðsbúgvum og grunnum v.m., sum, í tí løtu tey hava ásannað vinning ella tap, fáa útlutað vinningsbýti ella hava rentuinntøku, eru undir fullari ella avmarkaðari skattskyldu í Føroyum.

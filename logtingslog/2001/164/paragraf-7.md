@@ -1,0 +1,2 @@
+§ 7.[^9] Vinningur ella tap við eftirgeving, fyrning, samanrenning, fyrilokan av skuld og orsakað av endurskipan og sjálvbodnari skuldarsemju verða roknað við í uppgerðina av skattskyldugu inntøkuni eftir § 14 í tann mun, skuldin verður niðurskrivað niður um kursvirðið á kravinum fyri kravánaranum, tá skuldin varð eftirgivin v.m.
+Stk. 2. Reglan í stk. 1 er ikki galdandi, um talan er um gávu, arvaforskot ella arv frá einum av teimum í skattalógini § 29, nr. 3 nevndu persónum.
