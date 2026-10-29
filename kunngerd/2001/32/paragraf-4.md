@@ -1,0 +1,6 @@
+## Kapitul 3
+## Fráboðan av upplýsingum
+§ 4. Áðrenn eitt skip fer úr havn, eigur fyristøðufelagið hjá skipinum at geva Vaktar- og Bjargingartænastuni frágreiðing um tær upplýsingar, ið verða kravdar eftir listanum í fylgiskjali I.
+Stk. 2. Fyristøðufelagið hjá skipi, sum kemur úr einari havn uttanfyri europeiska samveldið og sum er á veg til eina føroyska havn ella skipalegu á føroyskum sjóøki, skal fyri at sleppa til hesa havn ella skipalegu geva Vaktar- og Bjargingartænastuni fráboðan um tær upplýsingar, ið verða kravdar eftir listanum í fylgiskjali I. Hendan fráboðan skal gevast Vaktar- og Bjargingtænastuni, tá farið verður úr fermingarhavnini.
+Stk. 3. Skip, sum sigla í farleið, ið er styttri enn ein tíma, eru undantikin ásetingunum í stk. 1 og 2. Fyristøðufeløg hjá hesum skipum skulu til hvørja tíð hava tær upplýsingar, ið verða kravdar eftir fylgiskjali I, tøkar til myndugleikarnar.
+Stk. 4. Fyri skip, ið sigla í farleið, sum er longri enn ein tíma, kann landsstýrismaðurin, um siglingartíðin bert fer eitt sindur út um ein tíma, gera undantak frá stk. 1. Fyristøðufeløg á hesum skipum skulu til eina og hvørja tíð kunna geva myndugleikunum tær upplýsingar, sum krevjast eftir fylgiskjali I.

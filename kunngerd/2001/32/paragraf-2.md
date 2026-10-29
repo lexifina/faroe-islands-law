@@ -1,0 +1,1 @@
+§ 2. Kunngerðin fevnir ikki um herskip og onnur skip, sum ein statur eigur ella nýtir, meðan skipið verður nýtt til tænastur, sum ikki eru handilsligar. Harafturat fevnir kunngerðin ikki um brennievnisgoymslur, goymslurúm og útgerð til nýtslu umborð á skipum.
