@@ -1,0 +1,1 @@
+§ 3. Løgreglan kann krevja, at ein persónur ger útandingarroynd á øðrum staði, enn komið er fram á hann sbr. § 16 a, stk. 1, 2. pkt. í løgtingslógarkunngerð nr. 14 frá 2. mars 1988 um ferðslu, sum seinast broytt við løgtingslóg nr. 49 frá 11. mai 2009

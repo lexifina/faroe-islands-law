@@ -1,0 +1,1 @@
+§ 5. Førarin ella reiðfólkið kann krevja, at blóðroynd verður tikin, tá úrslitið av útandingarroyndini liggur beint oman fyri 0,10 mg alkohol pr. litur luft, 0,25 mg alkohol pr. litur luft, 0,60 mg alkohol pr. litur luft ella 1,00 mg alkohol pr. litur luft.
