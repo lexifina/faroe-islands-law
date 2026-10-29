@@ -1,0 +1,1 @@
+§ 2. Upplýsandi tilfar, sum fylgir við eini vøru, ella tilfar, so sum faldarar og bløð, sum brúkarin persónliga fær frá tí vinnurekandi, eftir at brúkarin sjálvur hevur vent sær til tann vinnurekandi, kemur ikki undir hugtakið lýsing sambært marknaðarføringslógini.
