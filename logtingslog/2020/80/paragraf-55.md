@@ -1,0 +1,4 @@
+§ 55. Dátuábyrgdarin og dátuviðgerin skulu tryggja, at dátuverndarfólkið rættstundis verður tikið við upp á ráð í øllum spurningum um vernd av persónupplýsingum.
+Stk. 2. Dátuábyrgdarin og dátuviðgerin skulu stuðla dátuverndarfólkinum, í tann mun tað er neyðugt, fyri at hesin kann útinna uppgávurnar sbrt. § 58 og varðveita sín sakkunnleika, umframt at veita atgongd til persónupplýsingar og viðgerðir.
+Stk. 3. Dátuábyrgdarin og dátuviðgerin skulu tryggja, at dátuverndarfólkið ikki fær kravboð um, hvussu starvið skal røkjast. Dátuverndarfólkið kann ikki sigast upp ella aðramáta verða fyri agatiltøkum vegna uppgávur sínar sum dátuverndarfólk.
+Stk. 4. Dátuverndarfólkið kann hava aðrar uppgávur og skyldur. Dátuábyrgdarin ella dátuviðgerin tryggja, at slíkar uppgávur og skyldur ikki hava við sær áhugamálsstríð.

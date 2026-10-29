@@ -1,0 +1,1 @@
+§ 80. Tann, sum rekur ella fæst við rættarkunningarskipanir, sbrt. § 19, og privatir dátuviðgerar, sum goyma persónupplýsingar, kunnu við dómi fyri revsiverd viðurskifti frádømast rættin hesum viðvíkjandi, um nærliggjandi vandi er fyri misbrúki. § 79, stk. 3 og 4 í revsilógini eru galdandi.

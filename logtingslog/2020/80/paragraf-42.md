@@ -1,0 +1,2 @@
+§ 42. Ein dátuviðgeri hevur ikki loyvi at nýta annan dátuviðgera uttan ítøkiligt ella alment loyvi frá dátuábyrgdaranum. Hevur dátuviðgerin alment loyvi, skal hann boða dátuábyrgdaranum frá ætlaðari broyting av dátuviðgera, so at dátuábyrgdarin kann mótmæla.
+Stk. 2. Um ein dátuviðgeri nýtir ein annan dátuviðgera í sambandi við viðgerð fyri dátuábyrgdaran, skal hesin dátuviðgeri halda somu dátuverndarskyldur sum tær, sum eru í avtaluni millum dátuábyrgdaran og dátuviðgeran.

@@ -1,0 +1,4 @@
+§ 70. Dátueftirlitið kann geva dátuábyrgdara ella dátuviðgera ávaring um, at ætlað viðgerð sannlíkt er í ósamsvar við løgtingslógina og kann geva dátuábyrgdara ella dátuviðgera átalu, um viðgerð hevur verið í ósamsvari við løgtingslógina.
+Stk. 2. Dátueftirlitið kann krevja, at dátuábyrgdari ella dátuviðgeri steðgar viðgerð, og at viðkomandi rættar, strikar ella viðgerðaravmarkar ávísar upplýsingar, sum eru fevndar av tílíkari viðgerð.
+Stk. 3. Dátueftirlitið kann geva dátuábyrgdara ella dátuviðgera kravboð um at fáa viðgerð o.a. í samsvar við løgtingslógina innan eina nærri ásetta freist.
+Stk. 4. Dátueftirlitið kann geva dátuábyrgdara ella dátuviðgera kravboð um at fremja tøknilig og bygnaðarlig, herundir fysisk, trygdartiltøk, so at bert viðgerð fer fram, sum hevur heimild í løgtingslógini, og so at persónupplýsingar ikki ólógliga forkomast, missast ella skerjast, og at tær ikki koma óviðkomandi til kunnleika ella verða misnýttar.

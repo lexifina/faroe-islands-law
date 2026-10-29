@@ -1,0 +1,2 @@
+§ 11. Viðgerð av persónupplýsingum um húðarlit, ættarslag ella etniskan uppruna, politiska, átrúnaðarliga ella heimspekiliga sannføring ella yrkisfelagsligt tilknýti eins og viðgerð av ílegudátum, biometriskum dátum við tí endamáli eintýtt at eyðmerkja ein persón, heilsuupplýsingum, upplýsingum um kynslig viðurskifti, revsiverd viðurskifti ella upplýsingar um munandi sosialar trupulleikar og onnur heilt privat viðurskifti er bannað.
+Stk. 2. Viðgerð av persónupplýsingum sbrt. stk. 1 er loyvd um heimild er fyri hesum í §§ 12-14 ella 18-19.

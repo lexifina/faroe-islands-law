@@ -1,0 +1,1 @@
+§ 73. [^1] Dátueftirlitið kann almannakunngera síni úttalilsi og avgerðir. Í avgerðum, sum Dátueftirlitið almannakunnger, skulu einstaklingar ikki verða nevndir við sínum navni. § 36 er galdandi í mun til almannakunngeringina.

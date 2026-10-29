@@ -1,0 +1,2 @@
+§ 32. Av orsøkum, sum viðvíkja serligu støðuni hjá viðkomandi, kann skrásetti mótmæla viðgerð av sínum persónupplýsingum, sum er grundað á § 8, stk. 1, nr. 5 ella 6.
+Stk. 2. Dátuábyrgdarin hevur eftir mótmæli ikki loyvi at viðgera persónupplýsingarnar, uttan so at dátuábyrgdarin kann vísa á týðandi heimilaðar orsakir til viðgerðina, sum ganga fram um áhugamálini hjá skrásetta, ella um viðgerðin er neyðug fyri, at rættarkrøv kunnu sannast, gerast galdandi ella verjast.

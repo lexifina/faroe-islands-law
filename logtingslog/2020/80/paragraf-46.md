@@ -1,0 +1,9 @@
+§ 46. Dátuábyrgdarin og dátuviðgerin skulu seta í verk hóskandi tøknilig og bygnaðarlig tiltøk, sum tryggja eitt trygdarstøði, sum hóskar til váðarnar, sum standast av viðgerðini. Dátuábyrgdarin og dátuviðgerin skulu í hesum sambandi hava fyrilit fyri verandi tøkniliga støði, verksetanarkostnaði og slagi av viðgerð, vavi, samanhangi og endamáli, umframt sannlíku váðunum og álvarum fyri rættindi hjá einstaklingum. Hesi tiltøk kunnu fevna um:
+1) dulnevning ella bronglan av persónupplýsingum,
+2) at tryggja áhaldandi trúnað, integritet, atkomu og haldføri frá viðgerðarskipanum og viðgerðartænastum,
+3) føri til rættstundis at fáa í rættlag atkomu og atgongd til persónupplýsingar eftir fysiskan ella tøkniligan tilburð, og
+4) mannagongd til regluliga royndarkanning, meting og eftirmeting av virkisføri í sambandi við tøkniligu og bygnaðarligu tiltøkini, sum tryggja viðgerðartrygd.
+Stk. 2. Í metingini av, um trygdarstøðið er hóskandi, skulu serlig atlit takast til teir váðar, sum standast av viðgerðini, herundir serliga møguleikanum fyri, at persónupplýsingar av tilvild ella ólógliga verða burturbeindar, burturmistar, broyttar ella minka í virði ella at óviðkomandi fáa kunnleika til persónupplýsingar, sum eru sendar, goymdar ella á annan hátt viðgjørdar, misbrúka tær ella annars ólógliga viðgera tær.
+Stk. 3. Dátuábyrgdarin og dátuviðgerin skulu taka stig til at tryggja, at ein og hvør, sum fremur arbeiði fyri dátuábyrgdaran ella dátuviðgeran, og sum fær innlit í persónupplýsingar, bert viðger hesar eftir boðum frá dátuábyrgdaranum, um ikki viðgerð er kravd sbrt. lóg.
+Stk. 4. Landsstýrismaðurin kann, í samráð við avvarðandi landsstýrismann, áseta nærri reglur um, at persónupplýsingar, sum verða viðgjørdar í ávísum kt-skipanum fyri almennu fyrisitingina, heilt ella lutvíst skulu goymast í Føroyum.
+Fráboðan til Dátueftirlitið um brot á persóndátutrygdina
