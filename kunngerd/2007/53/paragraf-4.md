@@ -1,0 +1,1 @@
+§ 4. Djóraeigari, sum hevur fingið djór avlívað eftir boðum frá Heilsufrøðiligu starvsstovuni, sbr. § 1, kann gera peningaliga tapið upp, sbr. §§ 2 og 3, og senda Heilsufrøðiligu starvsstovuni uppgerðina.

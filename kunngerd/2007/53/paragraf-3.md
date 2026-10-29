@@ -1,0 +1,1 @@
+§ 3. Hava djór verið avbyrgd eftir boðum frá Heilsufrøðiligu starvsstovuni vegna illgruna um smittandi sjúku, og vísir tað seg, at smittandi sjúka ikki var til staðar, skal tað almenna bert rinda eigaranum endurgjald fyri munandi óbøtandi framleiðslutap, sum hesin hevur liðið í sambandi við, at djórini vórðu avbyrgd.
