@@ -1,0 +1,1 @@
+§ 11. Fíggjarligu viðurskiftini hjá sjúklinginum og onnur persónlig viðurskifti, sum ikki viðvíkja innlegging, uppihaldi og viðgerð á psykiatriskari deild, eru ikki partur av uppgávunum hjá sjúklingaráðgevanum.

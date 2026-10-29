@@ -1,0 +1,2 @@
+§ 12. Sjúklingaráðgevin skal skjótast gjørligt aftan á tilnevningina vitja sjúklingin og alla tíðina hava samband við hann. Fyrsta vitjanin skal vera innan 24 tímar aftan á tilnevningina. So leingi tvingsilsinntrivið stendur við, skal vitjan vera minst eina ferð um vikuna og annars eftir tørvi.
+Stk. 2. Sjúklingaráðgevin hevur rætt til frítt og ótarnað, persónligt, skrivligt og telefoniskt samband við sjúklingin.
