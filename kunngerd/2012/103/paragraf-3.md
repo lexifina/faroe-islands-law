@@ -1,0 +1,1 @@
+§ 3. Brúkaraumboðið kann, eftir vanligu reglunum í rættargangslógini, ganga inn í borgarlig rættarmál, undir hesum eisini rættarmál, sum viðvíkja borgararættarligum brúkaraverndarlógum, um hetta fer fram sum liður í almenna eftirlitinum við marknaðarføringslógini.
