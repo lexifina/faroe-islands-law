@@ -1,0 +1,3 @@
+§ 5. Um Fjarskiftiseftirlitið yvirtekur umsitingina orsakað av reglum, ásettar við heimild í § 3, stk. 2, nr. 4, afturtøku av loyvinum sambært § 22, stk. 1, ella tí umsitari letur loyvið inn aftur, eru § 6, stk. 1 og 2, § 7, § 10, stk. 5 og § 18 ikki galdandi fyri umsitingina hjá Fjarskiftiseftirlitinum.
+Stk. 2. Um Fjarskiftiseftirlitið fyribils yvirtekur umsitingina sambært § 3, stk. 2, nr. 4 ella § 22, stk. 2 krevur Fjarskiftiseftirlitið gjald frá skrásettum fyri útreiðslurnar av umsitingini eftir somu reglum og meginreglum sum umsitari.
+Stk. 3. Landsstýrismaðurin kann áseta nærri reglur um gjald sambært stk. 2.

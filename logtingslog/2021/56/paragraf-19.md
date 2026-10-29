@@ -1,0 +1,2 @@
+§ 19. Umsitarar, sum hava fingið loyvi sambært § 3, stk. 1 ella § 4, stk. 2 í hesi løgtingslóg, bera útreiðslurnar hjá Fjarskiftiseftirlitinum av uppgávum sambært løgtingslógini.
+Stk. 2. Eru fleiri umsitarar, verða útreiðslur Fjarskiftiseftirlitsins sambært stk. 1 býttar millum umsitararnar, í mun til teirra marknaðarpart álmanakkaárið frammanundan, av nettosøluni, ið er treytað av loyvinum sambært § 3, stk. 1.

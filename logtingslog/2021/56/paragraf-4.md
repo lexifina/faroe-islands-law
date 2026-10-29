@@ -1,0 +1,3 @@
+§ 4. Um avgerð verður tikin um at bjóða út eftir § 3, stk. 1, ásetur Fjarskiftiseftirlitið nærri reglur um fremjan av útboðnum. Reglurnar kunnu fevna um útboðstilfar, fyritreytir fyri luttøku í útboðnum, endurgjald og revsing fyri brot á reglur fyri útboðnum, heruppií burturvísing frá útboðnum, o.a. Eisini kann Fjarskiftiseftirlitið áseta, at luttakararnir bera útreiðslurnar av, at útboðið verður fyrireikað.
+Stk. 2. Fjarskiftiseftirlitið útnevnir vinnaran av útboðnum, og gevur út loyvi til at umsita økisnavnið, sum útboðið fevnir um.
+Stk. 3. Fjarskiftiseftirlitið ásetur loyvistreytirnar samsvarandi tí givna tilboðnum.
