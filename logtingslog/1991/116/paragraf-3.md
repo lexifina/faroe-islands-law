@@ -1,0 +1,1 @@
+§ 3. Landsstýrinum verður landskassans vegna heimilað at taka lán til eina samlaða upphædd svarandi til 370 mió. kr. til samlaða gjaldsførishall landskassans í 1991 og 1992 umframt neyðugt tiltaksgjaldføri.
