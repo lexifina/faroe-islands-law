@@ -1,0 +1,2 @@
+§ 5. Kommunurnar í heilsuøkinum senda í felag uppskot til landsstýrisfólkið um antin at byggja hølir, umbyggja ella útbyggja verandi hølir ella leiga hølir, undir hesum uppskot til at innrætta og staðseta hølir.
+Stk. 2. Metir landsstýrisfólkið, at tørvur er á at útvega hølir til heilsutænastur í nærumhvørvinum sambært hesi løgtingslóg ella víðka um verandi hølir, kann landsstýrisfólkið heita á kommunurnar í heilsuøkinum um at senda sær uppskot um bygging, umbygging ella útbygging ella uppskot um leigumál.
