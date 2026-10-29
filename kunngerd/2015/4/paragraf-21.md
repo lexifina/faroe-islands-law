@@ -1,0 +1,2 @@
+§ 21. Verður skaði fráboðaður á pappíri ella øðrum varandi miðli, skal tryggingarfelagið, um tað fult ella lutvíst sýtir at veita tryggingarfulnað, boða frá hesum á pappíri ella øðrum varandi miðli, uttan so, at tað greitt skilst av umstøðunum, at sýting kann verða fráboðað á annan hátt.
+Stk. 2. Verður skaði fráboðaður á annan hátt, hevur fráboðarin eftir umbøn rætt til at fáa sýtingina á pappíri ella øðrum varandi miðli. Kundin skal verða kunnaður um henda rætt.

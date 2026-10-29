@@ -1,0 +1,1 @@
+§ 2. Tá ið eitt tryggingarfelag ger avtalu við onnur fíggjarfeløg um at selja og ráðgeva um sínar vørur, skal tryggingarfelagið tryggja sær, at greitt arbeiðsbýti er millum felagið og avtalupartin, og at avtaluparturin heldur reglurnar í hesi kunngerð.

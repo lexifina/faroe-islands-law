@@ -1,0 +1,3 @@
+§ 10. Eitt tryggingarfelag skal kunna nóg væl um egnar vørur og tænastur, eitt nú um mun á prísi og treytum á øðrum líknandi vørum, sum kunnu nøkta tørvin hjá kundanum.
+Stk. 2. Um skipaður munur er á, hvussu tryggingarfelagið ásetir rentu, gjald ella aðra samsýning fyri eina ávísa tænastu til kundar, skal felagið upplýsa kundan um hetta, áðrenn avtala verður gjørd um tænastuna. Uppá fyrispurning frá kundanum skal verða upplýst, hvørji viðurskifti hjá kundanum kunnu vera avgerandi fyri, hvussu hann verður bólkaður, tá ið skipaður prísmunur er.
+Stk. 3. Eitt tryggingarfelag skal, við støði í sínum almenna marknaðarkunnleika, kunna kundan um viðkomandi vørusløg á marknaðinum. Kunningin skal tó ikki fevna um upplýsingar um vørur ella ítøkiligar prísir hjá kappingarneytum.

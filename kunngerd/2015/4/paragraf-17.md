@@ -1,0 +1,2 @@
+§ 17. Tá ið kundin skiftir tryggingarfelag, skal nýggja tryggingarfelagið upplýsa fyri kundanum allar týðandi avmarkingar í fulnaðinum í mun til ta fyrru tryggingina og skal eftir umbøn ráðgeva kundanum um ítøkiligar fulnaðir.
+Stk. 2. Áðrenn ein persónstrygging verður flutt, skal tað nýggja tryggingarfelagið tryggja sær, at kundin hevur fingið upplýst, undir hvørjum treytum tryggingin tekur við í tí nýggja felagnum.

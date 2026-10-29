@@ -1,0 +1,1 @@
+§ 19. Í sambandi við tekning av eini skaðatrygging skal tryggingarfelagið á pappíri ella øðrum varandi miðli kunna um møguligar týðandi avmarkingar í mun til tað, sum kundin rímiliga kann vænta, at tryggingin fevnir um.

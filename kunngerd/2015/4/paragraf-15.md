@@ -1,0 +1,1 @@
+§ 15. Góðtekur eitt tryggingarfelag ikki beinanvegin eina tryggingarumbøn, skal felagið upplýsa kundan um, hvør hansara rættarstøða er í tíðarskeiðnum fram til, at tryggingarfelagið boðar frá, um tryggingin tekur við og í so fall undir hvørjum treytum.
