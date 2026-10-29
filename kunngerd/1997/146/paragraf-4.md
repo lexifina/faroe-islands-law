@@ -1,0 +1,1 @@
+§ 4. Nevndin letur landsstýrismanninum í fiskivinnumálum ummæli av umsóknini, herundir serliga eina meting av, um fiskifarið ikki í verandi støðu hevur rakstrarmøguleikar at rinda skuldina, og um fiskifarið við umlegging verður mett at fara at klára seg í framtíðini.
