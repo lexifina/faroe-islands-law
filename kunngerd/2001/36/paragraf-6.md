@@ -1,0 +1,1 @@
+§ 6. [^1] Umhvørvisstovan kann til hvørja tíð broyta ella taka aftur eina góðkenning sambært hesi kunngerð, um kunngerðin ella treytir settar sambært hesi kunngerð ikki verða hildnar, ella um skeivar ella villleiðandi upplýsingar eru givnar í eini umsókn um góðkenning, ella um umstøðurnar broytast munandi.
