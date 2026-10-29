@@ -1,0 +1,1 @@
+§ 5. Skúlin skal í samstarvi við Sernámsdepilinum lata Undirvísingar- og Mentamálastýrinum skrivliga frágreiðing um samlaðu støðu næmingsins einaferð um árið. Frágreiðing skal eisini latast eftir umbøn hjá Undirvísingar- og Mentamálastýrinum.
