@@ -1,0 +1,2 @@
+§ 2. Flytingar sambært § 1 verða skrásettar á standardkontu 71, um talan er um flyting til mótpartin, og á standardkontu 76, um talan er um flyting frá mótpartinum.
+Stk. 2. Um mótparturin er ein kommuna o.tíl., ið Fíggjarmálaráðið hevur frítikið at innrapportera roknskaparupplýsingar sbrt. § 10 í kunngerð um roknskaparverk kommunanna o.tíl., verða tílíkar flytingar skrásettar á standardkontu 54, um talan er um flyting til mótpartin, og á standardkontu 63, um talan er um flyting frá mótpartinum.

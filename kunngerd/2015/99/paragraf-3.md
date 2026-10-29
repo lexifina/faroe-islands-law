@@ -1,0 +1,1 @@
+§ 3. Bruttogjaldsstreymar sambært § 1 kunnu skrásetast og avgreiðast í kommunalu avrokningini hjá Fíggjarmálaráðnum. Hetta kann fara fram við skrivligari áheitan til Gjaldstovuna ella við beinleiðis skráseting í elektroniska skipan, ið er góðkend av Fíggjarmálaráðnum. Einki gjald verður tó avgreitt sambært hesum stykki, uttan at gjaldandi partur hevur váttað gjaldið.
