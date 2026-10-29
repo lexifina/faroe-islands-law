@@ -1,0 +1,2 @@
+§ 2. Vitamin- og mineralsløg, sum í Danmark eftir bekendtgørelse nr. 370 af 14. mai 2009 om lægemidlers fritagelse for apoteksforbehold sbr. bekendtgørelse nr. 752 af 1. juli 2008 om vitamin- og mineralpræparater, eru undantikin einarætti apotekanna, eru eisini undantikin reglunum í løgtingslógini um apoteksverkið og heilivág.
+Stk. 2. Skrásetingarráðið kann, fyri Føroya viðkomandi, gera av, at vitamin- og mineralsløg antin verður løgd afturat ella tikin av teimum sløgum, sum nevnd eru í stk. 1.

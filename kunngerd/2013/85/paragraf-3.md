@@ -1,0 +1,2 @@
+§ 3. Homøopatiskur heilivágur, sum í Danmark eftir bekendtgørelse nr. 370 af 14. mai 2009 om lægemidlers fritagelse for apoteksforbehold sbr. bekendtgørelse nr. 1232 af 12. december 2005 om homøopatiske lægemidler m.v. er undantikin einarætti apotekanna, er eisini undantikin reglunum í løgtingslógini um apoteksverkið og heilivág.
+Stk. 2. Skrásetingarráðið kann, fyri Føroya viðkomandi, gera av, at heilivágur verður lagdur afturat ella tikin av teimum sløgum av heilivági, sum nevnd eru í stk. 1.
