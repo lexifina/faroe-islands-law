@@ -1,0 +1,4 @@
+§ 2. Í hesi lóg er at skilja:
+1) Tubbaksvøra: Vøra, ið inniheldur evni úr tubbaksplantuni, eisini genetiskt umskapað tubbak, og sum er ætlað at roykja, tyggja, snúsa ella súgva, tó ikki apoteksvøra við nikotininnihaldi, um vøran er ætlað at hjálpa fólki at leggja av at roykja.
+2) Innandura: Innan í bygningum og hølum á sjógvi og á landi, loftførum hjá flogfeløgum, sum eru heimahoyrandi í Føroyum, bussum, hýruvognum, føroyskt skrásettum skipum og bátum. Við bygningar og høli er innandura at skilja við bygningsverk, ið eru innilokað. Á skipum og bátum er innandura at skilja við rúm á førum, ið eru innilokað.
+3) Almenn arbeiðspláss: Løgtingið og tess stovnar; stjórnarráð, herundir stovnar og landsfyritøkur undir teimum; kommunur, kommunalir stovnar og interkommunalir stovnar og felagsskapir; sjálvsognarstovnar og grunnar, ið landið ella kommunur heilt ella partvíst antin eiga, reka og ella fíggja.

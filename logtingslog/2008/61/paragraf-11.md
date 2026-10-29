@@ -1,0 +1,2 @@
+§ 11. Tað er bert loyvt at flyta inn tubbaksvørur til Føroyar til vinnuligt endamál og selja slíkar vørur, um tær eru merktar við ávaringarteksti samsvarandi reglum, ið landsstýrismaðurin hevur ásett, um heilsuvandar, ið standast av tubbaksnýtslu og innihaldslýsing av tjøruevni, nikotini, kolsúrevni v.m.
+Stk. 2. Landsstýrismaðurin ásetir nærri reglur um hámarkið fyri tey í stk. 1 nevndu evni og um ávaringartekst um heilsuvandar við tubbaksnýtslu.
