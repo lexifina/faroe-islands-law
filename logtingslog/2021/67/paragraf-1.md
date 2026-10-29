@@ -1,0 +1,13 @@
+## Nýtsluøkið
+§ 1. Løgtingslógin fevnir um ferðavinnufyritøkur, sum í stuðulstíðarskeiðinum, sbr. § 2, stk. 2, hava havt eina afturgongd í umsetninginum upp á í minsta lagi 40%.
+Stk. 2. Ferðavinnufyritøkur eru fyritøkur, ið reka ferðavinnu sum høvuðsvirksemi á hesum virkisøkjum:
+1) Gistingarhús.
+2) Matstovur.
+3) Ferðaskrivstovur.
+4) Fyriskipaðar túrar.
+5) Flutning av ferðafólki.
+Stk. 3. Landsstýrismaðurin ásetur nærri reglur um, hvørji gistingarhús, matstovur, ferðaskrivstovur, fyriskipaðir túrar og flutningsvirksemi koma undir stuðulsskipanina.
+Stk. 4. Fylgjandi feløg, grunnar o.a. eru ikki fevnd av hesi løgtingslóg:
+1) Stovnar innan fyri almennu fyrisitingina hjá landinum ella kommununum.
+2) Vinnufeløg, grunnar o.a. hjá landi og kommunum, har landið ella kommunan eiga meirilutan ella velja meirilutan av nevndarlimunum.
+3) Feløg, grunnar o.a. við almannagagnligum ella vælgerandi endamáli.
