@@ -1,0 +1,1 @@
+§ 7. Virki, ið eru frítikin fyri at rinda avgjald, skulu ikki skrásetast hjá Toll- og Skattastovu Føroya. Tílík virki mugu ikki á faktura, avrokningarskjali v.m. tilskila avgjald ella á annan hátt tilskila, at fakturaupphæddin fevnir um avgjald.

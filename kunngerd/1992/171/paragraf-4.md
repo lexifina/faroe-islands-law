@@ -1,0 +1,1 @@
+§ 4. Felagsskapir eru frítiknir fyri at rinda avgjald av útgávu av felagsbløðum, fakbløðum o.t., tá ið tey ikki innihalda lýsingar og verða seld fyri ein prís, ið ikki fer upp um útreiðslurnar av framleiðingini.

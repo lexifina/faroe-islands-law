@@ -1,0 +1,1 @@
+§ 6. Eftir umsókn, ið skal sendast Toll- og Skattastovu Føroya, kunnu blind, ið selja vørur og avgjaldsskyldugar tænastur fyri minni enn kr. 100.000,- um árið, sleppa undan at rinda avgjald sambært løgtingslóg um meirvirðisgjald.
