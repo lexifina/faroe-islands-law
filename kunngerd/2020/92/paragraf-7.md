@@ -1,0 +1,2 @@
+§ 7. Tá ein skipsdagbók er fylt út, ella av aðrari orsøk ikki kann nýtast longur, skal skipsførarin syrgja fyri, at ein nýggj verður fingin til vega.
+Stk. 2. Allar skipsdagbøkur, undir hesum eisini kladdur og talgildar skrásetingar, skulu goymast í minsta lagi í 1 ár frá tí degi, tá seinasta skrásetingin varð framd. Um eitt sakarmál er í gongd, sum viðvíkir einari ferð hjá skipinum í tíðarskeiðinum, dagbókin fevnir um, skal dagbókin goymast, inntil málið er endaliga avgjørt.
