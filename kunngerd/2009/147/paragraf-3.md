@@ -1,0 +1,1 @@
+§ 3. Um ikki hægri revsing er ásett í aðrari lóggávu verður tann revsaður við bót, sum brýtur ásetingarnar í ES-fyriskipan nr. 1881/2006 frá 19. desember 2006 um ásetan av markvirðum fyri ávís dálkandi evni í matvørum.
