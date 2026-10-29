@@ -1,0 +1,1 @@
+§ 15 i. [^1] Landsstýrisfólkið kann í kunngerð áseta reglur um, hvussu prísir skulu roknast, meginreglur fyri gerð av prísskipanum, avsláttarskipanum og prísavtalum, prísáseting fyri íbinding og elveiting, tiltøkugjøld, útgreining av prísum í rokningum, viðskiftatreytir, ómaksgjøld, upplýsing um útlát av vakstrarhúsgassi og aðrar upplýsingarskyldur mótvegis kundum.

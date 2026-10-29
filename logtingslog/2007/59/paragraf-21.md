@@ -1,0 +1,1 @@
+§ 21. [^1] Um fortreytirnar fyri loyvi eftir § 4 ella § 15 a eru munandi broyttar, kunnu við 1 árs fyriboðan og eftir samráðingar við avvarðandi loyvishavara ásetast nýggjar treytir í einum loyvi. Tílíkar samráðingar kunnu í fyrsta lagi verða 5 ár eftir, at loyvi er veitt, um ikki heilt avgerandi atlit tala fyri, at treytirnar verða broyttar innan hesa freist.

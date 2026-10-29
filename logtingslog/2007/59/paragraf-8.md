@@ -1,0 +1,2 @@
+§ 8. Loyvishavari, ið ætlar at halda fram við virkseminum, eftir at loyvisskeiðið er farið, skal í minsta lagi 2 ár undan, at loyvið til framleiðslu rennur út, søkja um leinging av loyvinum.
+Stk. 2. Um loyvishavari ætlar at gevast við framleiðslu, kann landsstýrismaðurin í samráð við SEV, um serlig viðurskifti gera seg galdandi, taka avgerð um framhaldandi rakstur av verkinum móti fullum endurgjaldi.

@@ -1,0 +1,1 @@
+§ 6. [^1] Loyvi eftir § 4 verða latin við treytum, ið landsstýrismaðurin ásetir. Treytir kunnu setast við slag av orkukeldu, framleiðslurætt og -skyldu, tøkan framleiðslumátt, íbinding í elnetið, hvussu prísur skal roknast, gagnnýtslu av avlopsorku, upplýsingarskyldu mótvegis landsstýrismanninum og SEV, um uppseting og burturbeining av útbúnaði, tíðarfreistir o.a.

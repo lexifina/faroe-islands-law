@@ -1,0 +1,3 @@
+§ 22 b. [^1] Landsstýrisfólkið kann ognartaka lendi ella brúksrættindi á lendi í førum, har tað ikki er gjørligt at leiga ella keypa lendið og har mett verður, at tað er samfelagsliga neyðugt at fáa atgongd til lendið fyri at tryggja neyðugar útbyggingar á elorkuøkinum og fjarhitaøkinum.
+Stk. 2. Ognartøka sambært stk. 1 skal fara fram eftir reglunum í lóg om forpligtelse til jords afgivelse til offentlige veje, havne og landingssteder, samt til offentlige skoler på Færøerne.
+Stk. 3. Landsstýrisfólkið kann geva loyvishava, ið hevur loyvi sambært hesi lóg, tíðaravmarkaðan brúksrætt til ognartikið lendið.

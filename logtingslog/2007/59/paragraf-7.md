@@ -1,0 +1,2 @@
+§ 7. [^1] Feløg, sum hava loyvi at framleiða el, og sum eru íbundin elnetið, hava skyldu at fylgja boðum frá SEV, sbrt. § 11, stk 5 um broytingar í framleiðsluni, fyri at tryggja ein munadyggan rakstur og eina hóskandi veitingartrygd og el-góðsku.
+Stk. 2. [^1] Feløg, sum hava loyvi til framleiðslu av el, og sum eru íbundin elnetið, hava skyldu at boða SEV frá ætlaðum broytingum í framleiðsluni innan eina hóskandi freist, ið SEV ásetir.

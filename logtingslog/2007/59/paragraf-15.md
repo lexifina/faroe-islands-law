@@ -1,0 +1,1 @@
+§ 15. [^1] Góðkenning krevst frá landsstýrismanninum til at leggja háspenningslinjur til transmissjón av el. Í sambandi við góðkenning, kunnu treytir setast um verju av umhvørvi, lendisnýtslu og onnur viðurskifti, ið verða mett neyðug.

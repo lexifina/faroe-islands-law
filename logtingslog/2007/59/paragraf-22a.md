@@ -1,0 +1,6 @@
+## Kapittul 6 a [^1]
+## Útbúnaður og ognartøka
+§ 22 a. [^1] Elleiðingar og fjarhitaleiðingar kunnu verða leiddar yvir og undir gøtur, vegir og annað lendi. Eigarar og leigarar av slíkum lendi skulu í minsta lagi 12 vikur, áðrenn verklagsarbeiðið byrjar, hava beinleiðis fráboðan um ætlaða arbeiðið, hvussu leingi tað varir og hvørjir ampar kunnu væntast.
+Stk. 2. Eigarar og leigarar kunnu mótmæla, at leiðingar verða leiddar gjøgnum ognina. Mótmæli skulu latast orkumyndugleikanum í seinasta lagi 8 vikur aftaná móttøku av fráboðan. Metir orkumyndugleikin, at leiðingarnar elva til stóran fíggjarligan miss ella miklan ampa fyri avvarðandi ogn, kann orkumyndugleikin gera av, at leiðingarnar skulu førast aðra leið.
+Stk. 3. Avgerðir um útbyggingar á eløkinum og fjarhitaøkinum, sum hava við sær uppsetan av útbúnaði á lendi, vøtnum ella havbotni, vegagerð og tunnilsgerð, øktar vatngoymslur o.tíl., skulu fráboðast eigarum og leigarum av lendi og avvarðandi kommunum í minsta lagi 6 mánaðir áðrenn, at arbeiðið ætlandi skal byrja.
+Stk. 4. Lendið skal afturbøtast í góðan stand. Elvir arbeiðið at leggja leiðingar ella at uppseta útbúnað til skaða ella fíggjarligan miss, skal verklagseigarin rinda endurgjald sambært vanligum endurgjaldsreglum.
