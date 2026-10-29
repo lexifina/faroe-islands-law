@@ -1,0 +1,1 @@
+§ 1. Hydrogenperoxid sterkari enn 20%, sum verður nýtt til viðgerð í sambandi við aling á sjónum, kemur undir reglurnar í løgtingslógini, og kann bert útflýggjast frá apoteki og bert seljast við resept frá djóralækna.
