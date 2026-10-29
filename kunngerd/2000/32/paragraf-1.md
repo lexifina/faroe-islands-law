@@ -1,0 +1,1 @@
+§ 1. Persónur, sum hevur havt arbeiði og a-inntøku í Danmark, og hevur verið limur í donskum arbeiðsloysiskassa, kann írokna skjalprógvaða arbeiðsloysistryggjaða a-inntøku og skjalprógvað tryggingar- og arbeiðstíðarskeið í Danmark til tess at lúka treytirnar um útgjald av arbeiðsloysisstuðli í lógini.
