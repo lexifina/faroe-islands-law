@@ -1,0 +1,2 @@
+## Avreiðingar
+§ 6. Tey í Føroyum, sum keypa fisk ella fiskavøru í fyrsta liði, skulu senda Fiskiveiðieftirlitinum upplýsingar um avreiðingina, herundir um prís fyri veiðina, sambært krøvum frá Fiskiveiðieftirlitinum. Upplýsingarnar skulu sendast elektroniskt í tí sniði og eftir teimum krøvum, sum Fiskiveiðieftirlitið ásetir og skulu sendast í seinasta lagi eina viku eftir, at fiskurin ella fiskavøran er keypt.

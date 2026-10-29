@@ -1,0 +1,3 @@
+§ 2. Allur fiskur og øll fiskavøra skal, tá landað verður til móttøku á landi í Føroyum, ella á føroysku landleiðunum, um eina innvigingarskipan, sum er góðkend av Fiskiveiðieftirlitinum. Í minsta lagi 10% av landaðu nøgdini, av hvørjum fiskaslagi sær, skal vigast.
+Stk. 2. Tá landað verður uttanlands, skal allur fiskur og øll fiskavøra frá fiski, veidd av fiskiførum undir føroyskum flaggi, um eina innvigingarskipan, sum er góðkend av Fiskiveiðieftirlitinum.
+Stk. 3. Skiparin ella bátsformaðurin á fiskifarinum hevur ábyrgd av, at fiskurin og fiskavøran verður landað um eina innvigingarskipan, sum er góðkend av Fiskiveiðieftirlitinum.
