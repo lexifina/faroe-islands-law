@@ -1,0 +1,1 @@
+§ 5 c. [^3] Avgerðir eftir hesi løgtingslóg, sum eru tiknar av Umhvørvisstovuni, kunnu kærast til Føroya Kærustovn innan 4 vikur eftir, at kærarin hevur fingið fráboðan um avgerðina. Kæran skal vera skrivlig og grundgivin.

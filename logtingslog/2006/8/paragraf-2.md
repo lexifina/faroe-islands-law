@@ -1,0 +1,1 @@
+§ 2. Við makaskifti av fastari ogn skal einki avgjald rindast til landskassan, um ognirnar ganga líka upp hvør móti aðrari. Verður peningur rindaður umframt, skal tinglýsingaravgjald rindast av hesi upphædd.

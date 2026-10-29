@@ -1,0 +1,1 @@
+§ 3 b.[^4] [^1] Fyri tinglýsing av ognarfyrivarni í motorakførum, húsvognum, lendisakførum, leguvognum og viðfestivognum sbrt. § 42 b í løgtingslóg um tinglýsing er avgjaldið 1% av upphæddini, ognarfyrivarnið skal tryggja.
