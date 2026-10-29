@@ -1,0 +1,8 @@
+§ 5. Tryggingin skal hava verið í gildi samanhangandi í minsta lagi í 1 ár, áðrenn hin sjálvstøðugi vinnurekandi hevur rætt til útgjald.
+Stk. 2. [^3] Útrokningargrundarlagið hjá sjálvstøðugum vinnurekandi er inntøkan frá persónligum arbeiði sum sjálvstøðugur vinnurekandi fyri síðst lokna roknskaparár áðrenn fráveruna. Útrokningargrundarlagið kann tó í mesta lagi vera 12 ferðir hámarksupphæddina fyri mánaðarliga barsilspeninginum sbrt. § 13, stk. 1 og 3 í løgtingslógini.
+Stk. 3. Inntøkan, nevnd í stk. 2, er skattskylduga inntøkan sambært sjálvuppgávuni og skattaroknskapinum. Afturat inntøkuni verða lagdar upphæddir, ið annars mugu metast vera vunnar av vinnuvirkinum, og frátrektar verða upphæddir, ið mugu metast høvuðsvinnuni hjá virkinum óviðkomandi.
+Stk. 4. Útgjaldið pr. dag er útrokningargrundarlagið býtt við øllum døgum í árinum. Útgoldið verður fyri allar dagar, viðkomandi nýtir rættin at vera burtur frá arbeiði vegna barnsburð.
+Stk. 5. Barsilspeningur verður roknaður og útgoldin afturút fyri ein mánað í senn.
+Stk. 6. Barsilspeningur verður, eftir vanligu reglunum í skattalógini um útgjald av A-inntøkum, ávístur eftir hvønn mánaða við tí freist, Barsilsskipanin hevur fyri neyðini til at avgreiða útgjaldið.
+Stk. 7. Um tann skattskylduga inntøkan er mett av skattamyndugleikunum, kann skattskylduga inntøkan ikki nýtast sum útrokningargrundarlag. Í slíkum førum ásetur Barsilsskipanin eitt fyribils útrokningargrundarlag, til skattskylduga inntøkan sambært stk. 2 er staðfest av skattamyndugleikunum.
+Stk. 8. Barsilsskipanin kann krevja, at upplýsingarnar í hesi grein skulu váttast av ríkisgóðkendum ella skrásettum grannskoðara.
