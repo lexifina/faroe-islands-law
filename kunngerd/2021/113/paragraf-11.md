@@ -1,0 +1,1 @@
+§ 11. Skiparin ella ánarin av skipinum heftir fyri tolli og avgjøldum á vørum, herundir restfarmi og provianti, sum verður innskipað, uppskipað ella brúkt í tolløkinum í stríð við reglurnar í hesi kunngerð ella í kunngerð um proviantering av skipum og flogførum til nýtslu umborð ella til sølu til ferðafólki.

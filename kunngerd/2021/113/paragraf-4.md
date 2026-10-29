@@ -1,0 +1,4 @@
+§ 4. Skip, ið eru stødd inni á tolløkinum, eru undir eftirliti tollvaldsins.
+Stk. 2. Sambært løgtingslógini skulu skip, ið tollvaldið ætlar at kanna, og sum sigla í føroyskum tolløki, leggja at føroyskari bryggju, tá ið tollvaldið krevur tað. Tollvaldið kann áseta, hvørja bryggju skipið skal leggja at. Skip í skaðaleysari gjøgnumsigling eru undantikin skylduni at leggja at bryggju.
+Stk. 3. Skiparin hevur skyldu til at geva allar upplýsingar um skip og farm o.a., ið eru neyðugar, fyri at eftirlitið kann verða framt, og at leggja fram øll skipsskjøl og farmaskjøl o.a., ið staðfesta upplýsingarnar, og at vísa á og lata upp ella avdúka allar inngongdir til lastina, rúm og goymslur.
+Stk. 4. Tollvaldið hevur rætt til alla staðni í skipinum at gera tær kanningar, tað metir eru neyðugar, fyri at eftirlitið kann verða framt. Skipari og manning hava skyldu til at vera beinasamir og vera tollvaldinum til handa undir kanningini.

@@ -1,0 +1,4 @@
+§ 5. Tá skip er statt í tolløkinum, kann tollvaldið krevja, at ótollaðar vørur verða lagdar undir tollstongsul. Ber ikki til at seta fullgóðan tollstongsul, kann tollvakt verða sett við skipið fyri kostnað hjá skipinum.
+Stk. 2. Skip í tolløkinum mugu ikki føra við sær ótollaðan proviant o.a., uttan so at tey eru byrjað eina ferð, sum hevur endaligan atkomustað uttanfyri tolløkið, ella uttan so, at tað er skip, ið hevur tikið umborð ótollaðan proviant o.a. í samsvari við provianteringsregluna, ið er galdandi fyri hesi skip.
+Stk. 3. Eingin tollur verður tikin av provianti og øðrum skipsvistum, sum fremmand ríkisskip og skip, ið koma til tolløkið við farmi ella ferðafólki, hava inni til nýtslu umborð, meðan tey eru stødd í tolløkinum.
+Stk. 4. Fremmand ríkisskip eru undantikin tolleftirliti við komu, men eru annars undir vanligum tolleftirliti.

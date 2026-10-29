@@ -1,0 +1,1 @@
+§ 19. Flogskiparin ella ánarin á flogfari heftir fyri tolli og avgjøldum á vørum, herundir restfarmi og provianti o.a., sum verður innskipað, uppskipað ella brúkt í tolløkinum í stríð við reglurnar í hesi kunngerð ella kunngerð um proviantering av skipum og flogførum til nýtslu umborð ella til sølu til ferðafólki.

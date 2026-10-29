@@ -1,0 +1,3 @@
+§ 23. Tollvaldið hevur rætt til at eftirkanna persónar, sum ferðast til ella frá tolløkinum, sum eru ella hava verið umborð á skipum ella flogførum, ella sum ferðast fram við strondum, í havnum, á flogvøllum ella atløguplássum.
+Stk. 2. Eftirkanning skal fara fram so varliga sum gjørligt, og ikki longur enn endamálið krevur tað.
+Stk. 3. Eftirkanning, ið ikki bert fevnir um uttanáklæðini, má bert fara fram, um rímilig orsøk er til at halda, at viðkomandi ólógliga hevur vørur uppi á sær o.a. Tann, sum eftirkannaður verður, kann krevja sær vitni at vera hjá undir eftirkanningini. Til eftirkanningina krevst, at tann, ið kannar ella er hjástaddur, skal verða av sama kyni, sum tann, ið kannaður verður.

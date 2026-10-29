@@ -1,0 +1,2 @@
+§ 13. Tollvaldið kann sum treyt fyri at góðkenna ein flogvøll sum tollfloghavn krevja, at tað uttan kostnað fyri tollvaldið eru hølir við neyðugari útgerð til taks, har tolleftirlitið kann gera ferðafólkaeftirlit o.a., og at neyðugar girðingar verða settar upp.
+Stk. 2. Tollvaldið hevur í eini tollfloghavn óhindraða atgongd allastaðni á plássum, í bygningum, hangarum, verkstøðum o.a. Tollvaldið ásetur tær reglur, ið eru neyðugar, fyri at tolleftirlitið kann verða framt.
