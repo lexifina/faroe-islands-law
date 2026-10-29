@@ -1,0 +1,1 @@
+§ 1. Stovnspeningurin, sum hann er og verður, verður at seta í landskassalán ella lán, landið veðheldur fyri, tó so at peningurin, ið verður at nýta eftir endamálsgreinini, verður at seta í banka ella sparikassa.
