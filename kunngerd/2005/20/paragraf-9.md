@@ -1,0 +1,2 @@
+§ 9. Áðrenn farið verður undir koppseting fyri ILA, skal eigarin gera eina mannagongd fyri, hvussu tryggjast kann, at ILA-koppsettur fiskur og sentinel fiskur verða hildnir fráskildir undir aling og flutningi eftir koppseting.
+Stk. 2. Mannagongdin fyri, hvussu ILA-koppsettur fiskur og sentinel fiskur verða hildnir atskildir undir aling og flutningi, skal verða góðkend av Heilsufrøðiligu starvsstovuni.

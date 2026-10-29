@@ -1,0 +1,2 @@
+§ 21. Verður latent ILA staðfest, sbr. § 3, stk. 10, í alieindum við ILA-koppsettum fiski ella sentinel fiski, skal fiskurin burturbeinast ella slátrast skjótast gjørligt, og farast skal fram eftir ásetingunum í kunngerð um niðurberjing og eftirlit við ILA (Infectious salmon anaemia, ISA), sbr. tó stk. 2.
+Stk. 2. Eftir eina váðameting kann Heilsufrøðiliga starvsstovan útseta freistina fyri burturbeining ella slátring av ILA-koppsettum fiskaeindum frá viðkomandi alibrúki, til fiskurin hevur nátt kommersiella handilsvekt.

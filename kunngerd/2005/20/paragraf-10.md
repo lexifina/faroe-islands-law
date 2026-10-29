@@ -1,0 +1,1 @@
+§ 10. Upplýsingar um koppsetingartíðspunkt, navn á koppingarevni og batch nummar, tal á koppsettum fiski, dagligt felli og møgulig onnur viðurskifti, sum hava týdning fyri heilsustøðuna hjá fiski í einkulta alibrúkinum, skulu skrásetast í rakstrardagbókina, sbr. kunngerð um sjúkufyribyrgjandi rakstur av alibrúkum.

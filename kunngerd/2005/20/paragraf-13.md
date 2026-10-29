@@ -1,0 +1,1 @@
+§ 13. 1 Verður ILA-koppsettur kommersiellur fiskur fluttur til aling í kari ella tanga við sjógvi á alistøð ella lívfiskastøð á landi, ger Heilsufrøðiliga starvsstovan í hvørjum einkultum føri av, hvussu nógvur ILA-koppsettur fiskur og sentinel fiskur skal vera, og hvussu teir skulu verða settir í alieindina.

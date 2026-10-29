@@ -1,0 +1,1 @@
+§ 2. Afturat ásetingunum í hesi kunngerð eru alibrúk við fiski, sum er koppsettur móti ILA, eisini fevnd av ásetingunum í kunngerð um niðurberjing og eftirlit við ILA (Infectious salmon anaemia, ISA), tá annað ikki er tilskilað í hesi kunngerð.

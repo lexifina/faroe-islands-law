@@ -1,0 +1,2 @@
+§ 20. Verður kliniskt ella subkliniskt ILA staðfest sbr. § 3, stk. 8-9 í alieind við sentinel fiski, skal fiskurin beinast burtur ella slátrast skjótast gjørligt, og farast skal beinanvegin fram eftir ásetingunum í kunngerð um niðurberjing og eftirlit við ILA (Infectious salmon anaemia, ISA), sbr. tó stk. 2.
+Stk. 2. Eftir eina váðameting kann Heilsufrøðiliga starvsstovan útseta freistina fyri burturbeining ella slátri av ILA-koppsettum fiskaeindum frá viðkomandi alibrúki, til fiskurin hevur nátt kommersiella handilsvekt.
