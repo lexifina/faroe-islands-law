@@ -1,0 +1,3 @@
+§ 43. Fyri 1. oktober á hvørjum ári leggur landsstýrið fyri løgtingið uppskot um løgtingsfíggjarlóg fyri komandi álmanakkaár.
+Stk. 2. Eingin útreiðsla má verða goldin, uttan at heimild er fyri henni í teirri fíggjarlóg, ella aðrari játtanarlóg, ið er í gildi, tá ið ávíst verður. Tó kann í tíðarskeiðinum fram til 1. apríl, eftir at fíggjarárið er endað, verða ávístur peningur av farnu fíggjarlógini fyri útreiðslur, ið havdar eru í farna fíggjarári.
+Stk. 3. Um útlit eru til, at uppskot til fíggjarlóg ikki er liðugt viðgjørt fyri fíggjarársbyrjan, leggur landsstýrið fram uppskot um eina bráðfeingis játtanarlóg.

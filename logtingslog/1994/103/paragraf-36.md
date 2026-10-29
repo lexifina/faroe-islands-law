@@ -1,0 +1,1 @@
+§ 36. [^1] Løgmaður ger av, hvørt av landsstýrisfólkunum er varaløgmaður og røkir heimildir løgmans, meðan hann hevur forfall. Er einki ásett, verða hesar heimildir røktar av tí landsstýrisfólki, sum longst hevur sitið í embæti. Hava tvey landsstýrisfólk sitið líka leingi, tekur tað eldra við heimildunum.

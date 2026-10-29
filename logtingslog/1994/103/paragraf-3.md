@@ -1,0 +1,1 @@
+§ 3. [^2] Valrætt til løgtingið hevur hvør, ið fylt hevur 18 ár, hevur danskan heimarætt og er heimahoyrandi í Føroyum, uttan so er, at hann er undir verjumáli og hevur fingið rættarliga myndugleikan frátiknan eftir verjumálslógini § 6.

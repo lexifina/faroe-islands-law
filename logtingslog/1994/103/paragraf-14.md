@@ -1,0 +1,1 @@
+§ 14. [^1] Løgmaður, landsstýrisfólk og ríkisumboðsmaður hava embætis vegna, uttan atkvøðurætt, atgongd at løgtinginum, og hava rætt til á fundum at krevja at koma til orðanna, men skulu annars halda tingskipanina.

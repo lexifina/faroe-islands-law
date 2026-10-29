@@ -1,0 +1,1 @@
+§ 30. [^1] Um tað við atkvøðugreiðslu á løgtingi, har ið meira enn helmingur av øllum tingfólkum atkvøður fyri, verður samtykt, at løgtingið ikki longur hevur álit á løgmanni, skal løgmaður biðja løgtingsformannin loysa seg úr embæti.

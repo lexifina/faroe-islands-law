@@ -1,0 +1,4 @@
+§ 38. [^1] Løgtingið setur eina tríggja manna nevnd av løgtingsfólkum at hava eftirlit við, at starv landsstýrisins verður útint á lógligan hátt.
+Stk. 2. [^1] Hevur nevndin illgruna um, at óregluliga hevur verið atborið, kann hon krevja, at løgtingsformaðurin setur ein kanningarstjóra, sum ikki hevur dómsmyndugleika. Hann skal, eftir at hann hevur kannað málið, gera eina frágreiðing til løgtingið, hvørt fyrisitingin í ávísum máli er útint á lógligan hátt. Tveir fimtingar av løgtingsfólkunum kunnu skrivliga seta fram sama krav.
+Stk. 3. Kanningarstjórin skal hava løgfrøðiligt embætisprógv og skal ikki verða starvsettur í fyrisiting landsstýrisins, á stovni undir landsstýrinum, hjá dómsvaldinum ella fyrr hava viðgjørt málið.
+Stk. 4. [^1] Kanningarstjórin hevur rætt til at krevja skrivligar ella munnligar upplýsingar frá einskildum borgarum eins og frá almennum embætisfólkum.

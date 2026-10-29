@@ -1,0 +1,1 @@
+§ 8. [^1] Tá ið góðkent er, at løgtingsfólk er valt, skal tað leggja frá sær øll álitisstørv í nevndum, ráðum o.t., sum eru undir eftirliti landsstýrisins ella, sum landsstýrið hevur skipað tað í, tó undantikin beinleiðis fólkavald umboð.

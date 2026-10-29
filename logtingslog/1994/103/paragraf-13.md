@@ -1,0 +1,1 @@
+§ 13. [^1] Løgtingsformaðurin boðar til løgtingsfundar og kunnger samstundis dagsskrá. Formaðurin hevur skyldu til at boða til fundar uttan óneyðuga dvøl, um so er, at í minsta lagi tveir fimtingar av tingfólkum ella løgmaður skrivliga biðja um tingfund við dagsskrá.

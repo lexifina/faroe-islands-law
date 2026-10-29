@@ -1,0 +1,1 @@
+§ 26. Løgtingslógaruppskot, ið løgtingið hevur samtykt, fær lógargildi, tá ið tað seinast 30 dagar eftir endaligu samtyktina er staðfest av løgmanni og kunngjørt sambært kunngerðarreglum ásettum í løgtingslóg.

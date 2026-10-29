@@ -1,0 +1,1 @@
+§ 19. [^1] Løgtingið kann skipa nevndir av tingfólkum at kanna alment umvarðandi mál. Nevndirnar hava rætt at krevja skrivligar ella munnligar upplýsingar frá einskildum borgarum eins væl og frá almennum embætisfólkum.

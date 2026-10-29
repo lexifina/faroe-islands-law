@@ -1,0 +1,5 @@
+§ 28. [^1] Tá ið løgmaður skal verða tilnevndur, boðar løgtingsformaðurin forfólkunum fyri flokkunum, ið umboðaðir eru á løgtingi, hvørjum sær til samráðs.
+Stk. 2. Innan 10 yrkadagar eftir at fráfarandi løgmaður hevur biðið um at verða loystur úr embæti, leggur løgtingsformaður uppskot um løgmansevni fyri løgtingið. Um løgtingsval verður, ella løgmaður doyr, gongur freistin ávikavist frá tí degi, fyrsti tingfundur var eftir valið, ella frá tí degi, ið løgmaður doyði.
+Stk. 3. [^1] Løgtingið skal í seinasta lagi 4. yrkadagin eftir, uttan nevndarviðgerð, greiða atkvøðu um uppskotið. Atkvøður meiri enn helmingur av øllum tingfólkum ímóti uppskotinum, er tað fallið. Annars er tað samtykt.
+Stk. 4. Havnar løgtingið uppskoti frá løgtingsformanninum um løgmansevni, boðar formaðurin aftur til samráðs sambært stk. 1 og setur innan 4 yrkadagar eftir at uppskot hansara var havnað framaftur uppskot um løgmansevni, sum løgtingið sama dag greiðir atkvøðu um eftir reglunum í stk. 3.
+Stk. 5. Um so er, at løgtingið fýra ferðir hevur felt uppskot løgtingsformansins um løgmann, skrivar starvandi løgmaður út nýval til løgtingið.

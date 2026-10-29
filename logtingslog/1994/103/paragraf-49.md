@@ -1,0 +1,1 @@
+§ 49. Landsstýrið ummælir tey uppskot til kongligar fyriskipanir, sum ikki seta ríkislóg í gildi í Føroyum. Hetta geldur somuleiðis fyri allar kunngerðir, sum ráðharri sendir heimastýrinum við atliti at gildisseting í Føroyum.

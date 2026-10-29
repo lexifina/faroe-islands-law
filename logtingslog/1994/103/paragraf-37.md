@@ -1,0 +1,1 @@
+§ 37. [^1] Løgmaður og landsstýrisfólk hava rættarliga ábyrgd av fyrisitingini av teim málsøkjum, sum løgd eru til teirra. Mál viðvíkjandi hesi rættarligu ábyrgd verða dømd av nevningatingi. Greiniligari reglur um hesa ábyrgd verða at áseta við løgtingslóg.

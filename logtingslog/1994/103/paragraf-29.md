@@ -1,0 +1,2 @@
+§ 29. [^1] Loyst skulu verða úr embæti løgmaður ella landsstýrisfólk, ið biðja um tað. Løgtingsformaðurin loysir løgmann úr embæti, og løgmaður loysir landsstýrisfólk úr embæti.
+Stk. 2. [^1] Løgmaður kann eisini í øðrum førum loysa úr embæti landsstýrisfólk og skal loysa landsstýrisfólk úr embæti, um tað við atkvøðugreiðslu í løgtinginum, har ið meira enn helmingur av øllum løgtingsfólkum atkvøður fyri, verður samtykt, at løgtingið ikki longur hevur álit á landsstýrisfólki.

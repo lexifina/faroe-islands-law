@@ -1,0 +1,1 @@
+§ 34. § 1 í hesi løgtingslóg er ikki til hindurs fyri, at landsstýrið ella stovnur undir landsstýrinum í nærri ásettan mun, við løgtingslóg fær heimild til við kunngerð at áseta rættarreglur av almennum slagi. Ein tílík heimild kann ikki verða treytað av, at reglurnar, sum ásettar verða, skulu hava góðkenning frá umboðum løgtingsins.
