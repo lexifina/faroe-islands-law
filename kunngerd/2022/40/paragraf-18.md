@@ -1,0 +1,2 @@
+§ 18. Til frekvensnýtslu í áhugavarparatænastum og áhugavarparafylgisveinatænastum mugu einans kallitekn nýtast, ið Fjarskiftiseftirlitið hevur givið til áhugavarparan, ómannaða radiostøð ella løgfrøðiligan persón, sambært § 17.
+Stk. 2. Tann, sum hevur útlendskt kallitekn, og kann nýta radiofrekvensir í áhugavarparatænastum og áhugavarparafylgisveinatænastum sambært hesi kunngerð, og er í Føroyum í styttri tíðarskeið, skal nýta OY/ ella OW/ frammanfyri tað útlendska kallitekni.

@@ -1,0 +1,4 @@
+§ 17. Eftir umsókn útskrivar Fjarskiftiseftirlitið eitt persónligt kallitekn til persónar, ið hava fullgilt prógv, herundir kallitekn til ómannaða radiostøð, til nýtslu av radiofrekvensum í áhugavarparatænastum og áhugavarparafylgisveinatænastum. Kallitekni kann eisini verða útskrivað til ein løgfrøðiligan persón, um ein persónur við gildigum prógvi sambært § 14, hevur ábyrgd fyri nýtslu av radiofrekvensinum.
+Stk. 2. Treytirnar fyri at útskriva eitt kallitekn er, at nýtslan av radiofrekvensinum er knýtt til eina føroyska adressu, har frekvensnýtslan vanliga er.
+Stk. 3. Fjarskiftiseftirlitið útskrivar kallitekn til nýtslu fyri áhugavarparar við hesum kallitekn-serium: OY og OW.
+Stk. 4. Eitt kallitekn, sum áður hevur verið nýtt sum persónligt kallitekn, verður ikki leysgivið fyrr enn tað hevur verið ónýtt í 25 ár.

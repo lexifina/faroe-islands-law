@@ -1,0 +1,2 @@
+§ 11. Eftir umsókn útskrivar Fjarskiftiseftirlitið kallitekn og samleikanummur til ísetan og nýtslu av radiofrekvensum í ultraløttum flogførum, sveimdrekum, harímillum motordrivnum flogskíggjum.
+Stk. 2. Fjarskiftiseftirlitið kann taka aftur eitt kallitekn ella eitt samleikanummar, ið er útskrivað eftir stk. 1, um gjald av kallitekni ella samleikanummari ikki er goldið sambært kunngerð um frekvensgjøld og ómaksgjøld á radiosamskiftisøkinum.
