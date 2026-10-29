@@ -1,0 +1,2 @@
+## Kunning um serstakar uppgávur
+§ 2. Umframt kunning og leiðbeining, sum umtalað er í § 1, skulu øll nýmynstraði sjófólk áðrenn tænastan byrjar, verða gjølla upplýst um teirra serligu uppávur við atliti at tí starvi, ið tey skulu hava umborð, herundir um útgerð, innleggingar og tilbúgvingarætlanir og um serlig viðurskifti, ið hava týdning fyri bæði teirra vanligu uppgávur og teirra uppgávur í einari neyðstøðu.

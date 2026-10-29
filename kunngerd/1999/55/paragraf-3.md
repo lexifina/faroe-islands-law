@@ -1,0 +1,4 @@
+## Reiðaraábyrgd í samband við kunning um serligar uppgávur
+§ 3. Reiðarin skal veita skipara á einum og hvørjum handilsskipi, undantikið farmaskipum undir 500 bruttotons í strandasigling, skrivliga leiðbeining um tær mannagongdir, sum skulu fylgjast av skipara og manning skipsins fyri at lúka treytirnar í § 2 um kunning av øllum nýmynstraðum viðvíkjandi teirra serstøku uppgávum. Hesar mannagongdir skulu millum annað tryggja:
+1) at eitt og hvørt nýmynstrað sjófólk fær tillutað neyðuga tíð til at kunna seg um ta serligu útgerð, ið avvarðandi skal passa og við tær serligu mannagongdir og skipanir viðvíkjandi vaktarhaldi, trygd, umhvørvisvernd og fyriskipanum í neyðstøðum, ið krevjast til at avvarðandi nøktandi kann útinna sínar tillutaðu uppgávur, og
+2) at ein av manningini verður tilnevndur at hava serliga ábyrgd av, at tann nýmynstraði fær neyðugar upplýsingar á einum máli, ið viðkomandi skilir.
