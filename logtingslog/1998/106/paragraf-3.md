@@ -1,0 +1,2 @@
+§ 3. Landsstýrismaðurin kann áseta treytir fyri góðkenningina. Yrkisskúlarnir verða skipaðir sum sjálvsognarstovnar, hvørs viðtøkur skulu góðkennast av landsstýrismanninum. Landsstýrismaðurin kann áseta gjøllari reglur um karmar og innihaldið í viðtøkunum.
+Stk. 2. Landsstýrismaðurin kann taka aftur góðkenning av yrkisskúla, um so er, at tørvur ikki er á skúlanum. Somuleiðis kann ein góðkenning takast aftur, um skúli ikki heldur galdandi reglur ella givin boð.
