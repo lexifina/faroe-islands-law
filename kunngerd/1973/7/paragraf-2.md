@@ -1,0 +1,1 @@
+§ 2. Tá fráboðan er viðgjørd og góðkend, sigur líkningarráðið avvarðandi skattgjaldara frá, hvussu nógv loyvt er at nýta av íløgugrunni til forskotsavskriving uppá útvegað rakstrargagn. Samstundis fær gjaldstovnan boð um peningshæddina, sum útgjaldast skal av bundnari konto, eins og kommunala líkningarvaldið fær boð um avgerðina.
