@@ -1,0 +1,1 @@
+§ 4. Reglurnar í 9. kapitli í løgtingslóg um tænastumannaeftirlønir viðvíkjandi samskipan við pensjónir eftir sosialu pensjónslóggávuni verða nýttar samsvarandi fyri eftirlønir, sum koma undir hesa lóg.

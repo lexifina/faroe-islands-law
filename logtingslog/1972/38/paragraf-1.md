@@ -1,0 +1,1 @@
+§ 1. Henda lóg er galdandi fyri eftirlønir eftir løgtingslóg nr. 1 frá 25. februar 1953 við seinni broytingum um eftirløn og eftirsitiløn til persónar, hvørs eftirlønarrættur stendst av tænastu, sum er endað áðrenn 1. juli 1971.
