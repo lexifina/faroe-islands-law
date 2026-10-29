@@ -1,0 +1,1 @@
+§ 20. Kirkjugrunnurin kann eftir umsókn frá kirkjuráði í kirkjusókn, sum hevur færri enn 1000 kirkjufólk, heilt ella lutvíst veita studning til at byggja, umbyggja ella taka niður kirkju, bønhús, guðstænastuhøli ella bygning til kirkjubrúk.

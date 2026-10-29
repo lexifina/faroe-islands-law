@@ -1,0 +1,1 @@
+§ 15. Landsstýrismaðurin ásetir í kunngerð neyvari reglur um landskirkjuskatt og um staðbundnan kirkjuskatt. Somuleiðis kann landsstýrismaðurin áseta, hvussu økið, har staðbundin kirkjuskattur kann verða kravdur, verður ásett og eyðmerkt og onnur viðurskifti í sambandi við innkrevjingina og útgjaldið.

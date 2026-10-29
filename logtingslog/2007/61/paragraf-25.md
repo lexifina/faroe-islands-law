@@ -1,0 +1,1 @@
+§ 25. Landsstýrismaðurin ásetir í kunngerð reglur um Kirkjugrunnin. Ásett verður, hvussu stiftsstjórnin stjórnar Kirkjugrunninum, og hvussu virksemið hjá kirkjugrunninum skal verða skipað í mun til próstadømisráðini.
