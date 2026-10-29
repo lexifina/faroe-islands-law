@@ -1,0 +1,2 @@
+§ 18. Vøra, sum verður goymd á tollgoymslu, tollfríari vørugoymslu ella goymslu í fríøki, og sum eftir veterinert eftirlit - í hesum føri skjala- og samleikaeftirlit - verður søgd at vera í samsvar við ES-reglur, er nýtilig at fara í umfar.
+Stk. 2. Er orsøk til illgruna um vanda fyri fólk ella fæ, skal fysiskt eftirlit verða gjørt, um so er, at skjalaeftirlitið vísir, at vøran ikki lýkur ES-krøvini.

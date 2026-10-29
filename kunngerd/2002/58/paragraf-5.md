@@ -1,0 +1,2 @@
+§ 5. [^1] Skriftlig fráboðan um samhandil til Føroya skal verða send Heilsufrøðiligu Starvsstovuni frammanundan og vera henni í hendi í seinasta lagi 1 arbeiðsdag áðrenn væntaða komu. Talvan í fylgiskjali 1 skal verða nýtt. Fyri innflutning av hoyggi ella agni skal fylgiskjal 1a nýtast.
+Stk. 2. Eftir avtalu frammanundan við Heilsufrøðiligu Starvsstovuna, kann undantak verða givið frá tíðarfreistini, nevnd er í stk. 1.

@@ -1,0 +1,3 @@
+## Fráboðanarskylda o.a. hjá meklarum
+§ 25. Meklarar, flogfeløg, linjuagentar, flutningsfeløg, sendiboð (kurérselskaber) o.t. skulu senda marknaðareftirlitsstøðini yvirlit yvir allar flog- og skipslastir, sum koma til Føroya, og sum kunnu fevna um animalska vøru. Hetta er galdandi uttan mun til, um lastin ella partar av henni verður verandi umborð, verður umskipað, lossað, innflutt ella fer í gjøgnumferð. Fráboðanin, sum greitt skal vísa samleikan á flogfarinum ella skipinum, skal vera marknaeftirlitsstøðini í hendi í seinasta lagi 24 tímar áðrenn flogfarið ella skipið væntandi kemur.
+Stk. 2. Undantikið í føri har vøra nevnd í stk. 1 verður verandi umborð, skal fráboðan eisini gerast frammanundan sbr. § 13, stk. 1.

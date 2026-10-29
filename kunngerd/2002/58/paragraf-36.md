@@ -1,0 +1,3 @@
+§ 36. Verður tað í sambandi við eftirlit samsvarandi hesi kunngerð staðfest, at grovt ella afturvendandi brot á galdandi reglur fer fram, skerpar Heilsufrøðiliga Starvsstovan eftirlitið við øllum vørupartíum við sama uppruna. Serliga skulu 10 tær næstu vørusendingarnar við sama uppruna verða hildnar aftur á marknaeftirlitinum (BIP-inum) móti veðhaldi at dekka eftirlitsútreiðslur í sambandi við fysiskt eftirlit t.d. repræsentativar stakroyndir og starvstovukanningar.
+Stk. 2. Vísir ein nýggj roynd, at galdandi lóggáva ikki er hildin, skal farast við viðkomandi vørupartíi eftir reglunum í § 32, stk. 2.
+Stk. 3. Vísir eftirlitið, at farið er útum hámarksvirðið fyri restkoncentratiónir, verður eftirlit í tráð við stk. 1 framt.

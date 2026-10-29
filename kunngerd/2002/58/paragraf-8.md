@@ -1,0 +1,2 @@
+§ 8. Áðrenn úrdrátturin verður býttur upp ella seldur víðari, skal móttakarin syrgja fyri, at neyðugu skjølini eru til taks og annars eru í samsvar við galdandi reglur um samhandil fyri viðkomandi vøru.
+Stk. 2. Eru neyðugu skjølini ikki til taks, ella eru tey ófullfíggjað, skal móttakarin boða Heilsufrøðiligu Starvsstovuni frá hesum. Móttakarin skal halda vøruna burtur frá aðrari vøru, til Heilsufrøðiliga Starvsstovan hevur gjørt av, hvat gerast skal.

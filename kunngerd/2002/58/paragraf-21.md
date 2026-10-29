@@ -1,0 +1,5 @@
+§ 21. Vøra, sum hevur sín uppruna í triðjalandi, sum ikki er góðkend til útflutnings til ES, og vøra, sum ikki er fevnd av § 1, stk. 2, og sum ikki lýkur føroysk krøv, kann bert eftir skrivligt loyvi frá Heilsufrøðiligu Starvsstovuni, verða innflutt til Føroya frá triðjalandi við útflutningi til annað triðjaland í hyggju. Viðvíkjandi útflutninginum eru reglurnar í § 28 galdandi.
+Stk. 2. Eitt loyvi eftir stk. 1 er treytað av, at vøran ikki verður send aftur til Føroya ella ES.
+Stk. 3. Vøra fevnd av stk. 1 skal, uttan mun til § 12, stk. 1, bert leggjast undir skjala- og samleikaeftirlit á marknaeftirlitsstøðini. Er illgruni um vanda fyri fólka- ella dýraheilsu, kann fysiskt eftirlit tó eisini verða gjørt.
+Stk. 4. Flutningurin skal fara fram uttan handfaring av vøruni sbr. tó stk. 5 og undir tolleftirliti í einum flutningsfari ella ílati e.l., sum er eyðmerkt og hevur fingið innsigl av rætta myndugleika. Innsiglið skal brotna, um flutningsfarið ella ílatið e.l. verður latið upp.
+Stk. 5. Heilsufrøðiliga Starvsstovan kann geva loyvi til, at vøran verður umskipað á marknaeftirlitsstøðini.

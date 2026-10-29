@@ -1,0 +1,2 @@
+§ 9. Móttakarin skal goyma skjølini, sum skulu fylgja við vøruni, í minsta lagi 5 ár frá tí at hann fær tey um hendi sbr. tó stk. 2. Skjølini skulu verða víst Heilsufrøðiligu Starvsstovuni, um hetta verður kravt.
+Stk. 2. Er talan um gitnaðarevni, skulu skjølini tó verða goymd, so leingi gitnaðarevnið verður goymt. Skjølini skulu verða goymd í minsta lagi 2 ár eftir at seinasti skamtur av gitnaðarevninum verður tikin úr góðkendu goymsluni. Avrit av skjølunum skal vera til taks, har sum gitnaðarevnið verður, ella seinast varð, goymt.
