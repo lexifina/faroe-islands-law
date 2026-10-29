@@ -1,0 +1,6 @@
+## Skyldan at útvega barnaváttan
+§ 4. Um eitt starv ella ein uppgáva ber í sær beinleiðis og regluligt samband við børn undir 15 ár, ella um tann, ið settur verður, sum liður í starvinum ella uppgávuni, fær møguleika at koma í beinleiðis og regluligt samband við børn undir 15 ár, hevur arbeiðsgevari skyldu til at útvega sær eina barnaváttan sambært § 2, áðrenn viðkomandi verður settur í starv ella verður settur til uppgávuna, sbr. tó stk. 4.
+Stk. 2. Skyldan sambært stk. 1 fevnir harumframt um hjúnafelagar, sambúgvar, heimabúgvandi børn yvir 15 ár o.o., sum umvegis sítt fasta tilknýti til tann, ið setast skal í starv, fáa møguleika at koma í beinleiðis og regluligt samband við børn undir 15 ár.
+Stk. 3. Um arbeiðsgevari lýsir alment eftir umsøkjarum til starv sambært stk. 1, skal greitt tilskilast í starvslýsingini, at arbeiðsgevarin hevur skyldu til at útvega barnaváttan sambært § 2, áðrenn setanin verður framd.
+Stk. 4. Er tað av praktiskum orsøkum ikki gjørligt at útvega barnaváttan, áðrenn viðkomandi verður settur til ávísa uppgávu, ið ber í sær beinleiðis og regluligt samband við børn undir 15 ár, skal barnaváttanin verða fingin til vegar skjótast gjørligt og í seinasta lagi 4 vikur eftir, at viðkomandi er settur til uppgávuna.
+Stk. 5. Ásetingin í stk. 4 er ikki galdandi fyri starvssetanir.

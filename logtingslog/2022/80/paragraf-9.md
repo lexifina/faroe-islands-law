@@ -1,0 +1,1 @@
+§ 9. Vísir barnaváttanin, at viðkomandi persónur er dømdur fyri kynsligt brotsverk ella kynsligan harðskap, kann arbeiðsgevarin tó ikki seta viðkomandi í starv ella til ávísa uppgávu. Tó kunnu frávik gerast, tá talan er um brot á § 222, stk. 1 í revsilógini og talan er um linnandi umstøður.

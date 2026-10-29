@@ -1,0 +1,1 @@
+§ 7. Sýtir persónur fyri at geva samtykki til, at barnaváttan verður fingin til vegar, áðrenn viðkomandi verður settur í starv, ella verður settur til ávísa uppgávu, kann arbeiðsgevarin ikki seta viðkomandi í starv ella til ávísa uppgávu.

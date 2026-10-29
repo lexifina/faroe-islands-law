@@ -1,0 +1,1 @@
+§ 3. Ein arbeiðsgevari sambært hesi løgtingslóg er einhvør landsstovnur, kommunalur stovnur ella privatur løgfrøðiligur persónur, ið setur persón, sum er 15 ár ella eldri, í starv ella setur persón, sum er 15 ár ella eldri, til ávísa uppgávu, sama um hetta er lønt ella ólønt, ella um starvið ella uppgávan er varandi ella tíðaravmarkað.
