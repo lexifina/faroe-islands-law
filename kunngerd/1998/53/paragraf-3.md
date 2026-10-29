@@ -1,0 +1,2 @@
+§ 3. [^1] Í teimum førum, har tað er mest hóskandi, at tilboð verða givin børnum og ungum undir 18 ár um fyribyrgjandi og viðgerandi tannrøkt uttan fyri bústaðarkommununa (fólkayvirlitskommununa), kann ein onnur kommuna eftir avtalu veita ta av lógini umfataðu tannrøktina og frá bústaðarkommununi krevja endurgjald fyri tær hervið bundnu útreiðslur.
+Stk. 2. Um so er, at avtala verður gjørd ímillum 2 kommunur sambært stk. 1, kann krav ikki setast um at fáa ta eftir avtaluni umfataðu ókeypis fyribyrgjandi og viðgerandi tannrøktina í bústaðarkommununi.

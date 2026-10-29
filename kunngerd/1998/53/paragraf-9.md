@@ -1,0 +1,1 @@
+§ 9. Landsstýrismaðurin skal tryggja eina samskipan av almennu og privatu tannrøktini, soleiðis at tað m.a. verða gjørdar vælvirkandi skipanir ímillum barna- og ungdómstannrøktina og vaksnamannatannrøktina.

@@ -1,0 +1,2 @@
+§ 8. Í kommunum við almennum tannlæknastovum verður settur ein leiðari, sum er tannlækni og sum hevur ta dagligu ábyrgdina fyri kommunalu tannrøktini.
+Stk. 2. Áðrenn kommunustýrið setur ein leiðara í kommunalu tannrøktini, kann landslæknin geva ummæli av, hvør umsøkjari er fakliga best egnaður til starvið sum leiðari. Í hesum førum sendir kommunustýrið allar umsøknirnar til landslæknan til ummælis.
