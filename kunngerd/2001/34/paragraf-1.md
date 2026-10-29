@@ -1,0 +1,2 @@
+§ 1. Loyvishavarar, ið hava fingið loyvi til leiting eftir og framleiðslu av kolvetnum, skulu endurrinda útreiðslur myndugleikin hevur í sambandi við viðgerð av málum um loyvi og góðkenning v.m., og av eftirlitinum við at lógin og reglur og treytir settar sambært lógini, verða hildnar.
+Stk. 2. Loyvishavarar skulu endurrinda útreiðslur myndugleikin hevur av kanningum, ráðgevaraveitingum, heruppí tænastum frá øðrum myndugleikum, tænastuferðum v.m.
