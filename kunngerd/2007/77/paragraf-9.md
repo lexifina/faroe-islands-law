@@ -1,0 +1,1 @@
+§ 9. Embætisdjóralæknin kann seta í verk øll, ella einstøk, av teimum í §§ 7-8 nevndu tiltøkunum á gørðum, hvørs landafrøðiliga staðseting, ella samband við garð undir illgruna, gevur orsøk til illgruna um smittuspjaðing.
