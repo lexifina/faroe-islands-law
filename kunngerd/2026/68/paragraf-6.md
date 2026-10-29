@@ -1,0 +1,1 @@
+§ 6. Samlaða tíðin, persónur hevur vunnið sær rætt til at halda frí við arbeiðsloysisstuðli í innvinningarárinum, sum er frá 1. apríl til 31. mars, kann brúkast í komandi frítíðarári, sum er frá 2. mai til 1. mai.

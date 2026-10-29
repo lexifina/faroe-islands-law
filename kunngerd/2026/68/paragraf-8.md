@@ -1,0 +1,1 @@
+§ 8. Tá persónur fer úr Arbeiðsloysisskipanini og eigur rætt at halda frí við arbeiðsloysisstuðli til góðar, verður frítíðarsaldan læst, og hon verður tøk at brúka fylgjandi frítíðarár, um viðkomandi kemur aftur í Arbeiðsloysisskipanina.

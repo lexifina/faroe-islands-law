@@ -1,0 +1,1 @@
+§ 5. Samlaða dagatalið sambært § 3 verður umroknað til tímar og minuttir, soleiðis at persónur vinnur sær rætt til at halda frí við arbeiðsloysisstuðli í 5,928853754940711 minuttir fyri hvønn tíma, viðkomandi fær útgoldið arbeiðsloysisstuðul.
