@@ -1,0 +1,1 @@
+§ 4. Landsstýrismanninum er heimilað uttan viðurlag at avhenda til felagið tað verklagsarbeiði, allar forkanningar og annað tilfar, ið Landsverk hevur framleitt í sambandi við hesar verkætlanirnar og aðrar. Slík avhending hevur ikki skattligar avleiðingar við sær fyri felagið.
