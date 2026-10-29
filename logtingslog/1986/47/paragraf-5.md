@@ -1,0 +1,2 @@
+§ 5. Fær ánarin góðskrivað útistandandi skuld í felagnum í samband við umskipanina, skal áljóðandi virðið svara til tann partin av samsýningini, jbr. § 2, 1. stk., litra b, ið ikki verður veittur sum partabrøv.
+2. stk. Verða upphæddir, ið stava frá hækkan av útistandandi skuld í felagnum vegna prístalshækking ella líknandi, útgoldnar til ánaran av umskipaða vinnuvirkinum ella til hjúnafel-aga hansara, verða tær taldar við í uppgerðini av skattskyldugu inntøku móttakarans.

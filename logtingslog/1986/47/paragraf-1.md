@@ -1,0 +1,1 @@
+§ 1. Tá eitt persónliga rikið vinnuvirki verður umskipað til eitt partafelag, sum verður skrásett í Føroyum, hevur ánarin (ánararnir) rætt til at nýta reglurnar í hesari lóg í staðin fyri tær vanligu reglurnar í skattalóggávuni.
