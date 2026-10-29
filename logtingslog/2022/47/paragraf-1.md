@@ -1,0 +1,2 @@
+§ 1. Persónar, ið hava fingið fyribils uppihaldsloyvi í Føroyum sambært Anordning om ikrafttræden for Færøerne af lov om midlertidig opholdstilladelse til personer, der er fordrevet fra Ukraine, hava rætt til ókeypis viðgerð í Sjúkrahúsverkinum eftir somu treytum, sum eru galdandi fyri persónar, sum eru búsitandi í Føroyum. Hetta er galdandi frá tí degi, tey fáa fyribils uppihaldsloyvi í Føroyum.
+Stk. 2. Rætturin til ókeypis viðgerð í Sjúkrahúsverkinum, sambært hesi løgtingslóg, er galdandi, so leingi sum viðkomandi hevur fyribils uppihaldsloyvi í Føroyum.
