@@ -1,0 +1,3 @@
+## Nýtsla av loyvinum.
+§ 13. Førarin á einum hýruvogni, sum er leysur, skal beinan vegin koma áheitan um hýrukoyring á møti frá einum og hvørjum plássi í kommununi, um so er at veg- og veðurviðurskiftini loyva hesum. Er persónur ikki skikkaður at taka við, hevur førarin onga skyldu at koma áheitan um koyring á møti.
+2. stk. Koyringin skal fara fram uttan steðg og eftir tí skjótasta vegi til tað plássið, tann ferðandi ynskir at koma. Um tann ferðandi ynskir at koyra annan veg, skal hesin vegurin undir vanligum umstøðum fylgjast. So leingi túrurin varar, skal bilførarin taka onnur ferðandi ella viðføri uppí og seta onnur av, um tey ferðandi biðja um tað.

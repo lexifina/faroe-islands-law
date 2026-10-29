@@ -1,0 +1,2 @@
+§ 7. Hýruvognurin skal á fremru helvt á tekjuni hava lykt, sum skal lýsa, tá vognurin er leysur at leiga. Taklyktin má ikki lýsa aftureftir. Lyktin skal vísa grønt ljós uttan at blinda og skal hava áskriftina “Hýruvognur”, “Taxi”, ella støðarnavn og ljósflatan skal vera millum 75 og 260 cm2.
+2. stk. Innanfyri forrútin skal vera eitt týðuligt frámerki, tá vognurin er leysur at hýra. Skeltið skal kunna vísa grønt ljós frameftir í lyktatendringartíðini.

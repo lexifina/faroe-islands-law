@@ -1,0 +1,1 @@
+§ 9. Á sjónligum staði uttan á hýruvogninum skal standa navn á loyvishavara ella bilstøð og telefonnummar við bókstavum ella tølum, ið eru millum 35 og 60 mm høg, og sum skilliga víkja í liti frá litinum á akfarinum.

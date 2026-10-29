@@ -1,0 +1,1 @@
+§ 6. Loyvi til hýruvognskoyring kann bert gevast til koyring við akfari, sum er innrættað til í minsta lagi 4 persónar, førarin viðroknaður, og hevur minst 4 hurðar. Eingin hýruvognur má nýtast til fleiri persónar, enn hann er góðkendur til.
