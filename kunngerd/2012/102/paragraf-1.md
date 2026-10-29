@@ -1,0 +1,2 @@
+§ 1. Almennar og privatar fyritøkur, herundir kommunur, skulu endurrinda útreiðslur, sum Umhvørvisstovan hevur í sambandi við viðgerð av málum um loyvi og góðkenning o.a., og av eftirlitinum við, at ásetingarnar í hesum lógum verða hildnar, herundir treytir, ásettar í loyvum og góðkenningum.
+Stk. 2. Almennar og privatar fyritøkur, herundir kommunur, skulu endurrinda tær útreiðslur, ið Umhvørvisstovan hevur í tí einstaka málinum.

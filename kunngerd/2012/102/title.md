@@ -1,0 +1,3 @@
+22. oktober 2012 Nr. 102
+# Kunngerð um gjøld hjá Umhvørvisstovuni fyri umsiting og eftirlit sambært lóggávuni á umhvørvisøkinum
+Við heimild í § 35 a í løgtingslóg nr. 134 frá 29. oktober 1988 um umhvørvisvernd, sum seinast broytt við løgtingslóg nr. 128 frá 22. desember 2008, § 36, stk. 1 í løgtingslóg nr. 59 frá 17. mai 2005 um verju av havumhvørvinum, § 3, stk. 8 í løgtingslóg nr. 73 frá 10. mai 1994 um íløt til øl, mineralvatn og lidnar leskidrykkir, sum seinast broytt við løgtingslóg nr. 47 frá 15. mai 2007, og § 17, stk. 2 í løgtingslóg nr. 59 frá 7. juni 2007 um framleiðslu, flutning og veiting av ravmagni, verður ásett:
