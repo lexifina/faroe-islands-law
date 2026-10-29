@@ -1,0 +1,2 @@
+§ 9. Umsøkjarin skal leggja fram allar týðandi upplýsingar um rávøru-, framleiðslu-, marknaðar- og søluviðurskifti o.s.fr.. Umsøkjarin skal eisini lata tíðarætlan og útgreinda kostnaðar- og rakstrarætlan, sum skulu vera áteknaðar av skrásettum ella løggildum grannskoðara.
+Stk. 2. Umsøkjarin skal lata neyvar upplýsingar um fíggjarstøðu sína, sum skal vera áteknað av skrásettum ella løggildum grannskoðara.

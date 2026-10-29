@@ -1,0 +1,1 @@
+§ 12. Stuðul kann bert verða játtaður til tvær ella fleiri verkætlanir av sama slagi, um tað greitt kann ávísast, at tørvur og grundarlag eru fyri hesum, bæði tá tað ræður um rávøru, marknað o.a. Tað sama er galdandi fyri verkætlanir, sum longu eru royndar á øðrum virkjum.

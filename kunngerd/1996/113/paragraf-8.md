@@ -1,0 +1,1 @@
+§ 8. Stuðul kann eftir umsókn latast til verkætlanir, sum geva munabetri íkast til samfelagið. Verkætlanin skal bera í sær økt útflutningsvirði sammett við verandi framleiðslu, økt yvirskotsstig hjá virkinum, og at endurgjaldstíðin fyri íløgur og byrjunarkostnað annars í mesta lagi er 4 ár.

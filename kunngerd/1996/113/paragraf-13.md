@@ -1,0 +1,1 @@
+§ 13. Stuðul verður ikki játtaður til verkætlanir, sum eru settar í verk, áðrenn søkt verður um stuðul. Frávik kunnu gerast viðvíkjandi umsóknum, sum eru sendar inn, áðrenn henda kunngerð kom í gildi.
