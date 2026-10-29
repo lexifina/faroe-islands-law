@@ -1,0 +1,1 @@
+§ 3. Hevur viðkomandi listafólk fingið stuðul úr aðrari almennari stuðulsskipan, verður hesin stuðul mótroknaður stuðli sambært hesi løgtingslóg. Hetta er eisini galdandi fyri almennan stuðul í øðrum londum.
