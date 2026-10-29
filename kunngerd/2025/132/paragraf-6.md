@@ -1,0 +1,2 @@
+§ 6. Um Sjóvinnustýrið metir tryggingarnar ella trygdirnar vera nøktandi, verður loyvisbræv útgivið. Sjóvinnustýrið ásetir snið og innihald í loyvisbrævinum samsvarandi krøvunum í grein 4 a í Athens Convention relating to the Carriage of Passengers and their Luggage by Sea.
+Stk. 2. Sjóvinnustýrið kann útgeva loyvisbræv til eitt skip, sum landið eigur, uttan váttanir frá tryggingarveitarum ella trygdarveitarum, sbr. § 1, stk. 6, sum váttan um, at skipið er ogn hjá landinum, og er fevnt av ábyrgd nevnd í § 1.

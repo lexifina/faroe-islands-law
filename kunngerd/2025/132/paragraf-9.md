@@ -1,0 +1,1 @@
+§ 9. Í serligum førum kann Sjóvinnustýrið útskriva loyvisbræv til útlendskt skip, ið ikki hevur loyvisbræv sbrt. § 7, hóast skipið ikki kemur í føroyska havn ella annað lastingarstað ella lossingarstað í Føroyum ella í føroyskt sjóøki innanfyri 200 fjórðingar út grundlinjunum, ella ikki hevur virksemi í sjóøkinum. Ásetingarnar í §§ 2-6 verða nýttar samsvarandi.

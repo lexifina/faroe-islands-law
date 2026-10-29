@@ -1,0 +1,2 @@
+## Útlendsk skip og loyvisbrøv
+§ 7. Útlendsk skip, sum eru úr einum ES-landi ella EBS-landi ella úr einum landi, sum hevur tikið undir við Athens Convention relating to the Carriage of Passengers and their Luggage by Sea, kunnu hava loyvisbræv, ið málførur myndugleiki í tí landinum hevur givið út. Loyvisbrævið skal tó vera samsvarandi krøvunum í grein 4 a í Athens Convention relating to the Carriage of Passengers and their Luggage by Sea.

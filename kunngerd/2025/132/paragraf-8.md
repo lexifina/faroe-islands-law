@@ -1,0 +1,2 @@
+§ 8. Útlendsk skip, sum ikki hava eitt útlendskt loyvisbræv, sbrt. § 7, skulu senda Sjóvinnustýrinum umsókn um loyvisbræv. Ásetingarnar í §§ 4-6 verða nýttar samsvarandi.
+Stk. 2. Umsóknin skal verða send Sjóvinnustýrinum í seinasta lagi 14 dagar, áðrenn skipið kemur í føroyska havn ella annað lastingarstað ella lossingarstað í Føroyum ella í føroyskum sjóøki út á 200 fjórðingar úr grundlinjunum, ella áðrenn tað byrjar virksemi í føroyskum sjóøki.

@@ -1,0 +1,2 @@
+§ 11. Fyri skip, sum eru skrásett í øðrum landi, men eru leiguskrásett í Føroyum, kann Sjóvinnustýrið útskriva eitt loyvisbræv samsvarandi krøvunum í §§ 4-6.
+Stk. 2. Um skipið longu hevur galdandi loyvisbræv, skal eitt avrit av loyvisbrævinum sendast Sjóvinnustýrinum. Sjóvinnustýrið heitir á útgevandi myndugleikan í landinum, har skipið er skrásett, um at fáa kunning um møguligar broytingar viðvíkjandi gildi loyvisbrævsins.
