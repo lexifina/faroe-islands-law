@@ -1,0 +1,2 @@
+§ 18. Um skúlaleiðarin eftir samráð við lærarar metir, at atferðartrupulleikarnir hjá næmingi eru elvdir av fakligum, sosialum ella kensluligum orsøkum, skal skúlin venda sær til Sernámsdepilin/NSR-tænastuna ella/og teir almennu myndugleikarnar á staðnum fyri at fáa samstarv um, hvør hjálp kann verða veitt næminginum.
+Stk. 2. Áðrenn skúlin vendir sær til almennar myndugleikar, skulu foreldrini verða hoyrd um ætlanir skúlans.

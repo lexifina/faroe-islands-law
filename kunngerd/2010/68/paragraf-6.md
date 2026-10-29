@@ -1,0 +1,1 @@
+§ 6. Tá ið undirvíst verður í lærugreinum, har serligur vandi kann standast av umstøðunum, hevur skúlin skyldu til at vera serliga ansin. Hetta er galdandi, tá ið undirvíst verður í alis- og evnafrøði, náttúra og tøkni, træsmíð, heimkunnleika, fimleiki, ítrótti, svimjing o. ø.

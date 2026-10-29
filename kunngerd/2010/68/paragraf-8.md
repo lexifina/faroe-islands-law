@@ -1,0 +1,1 @@
+§ 8. Tá ið skúlin skipar fyri tiltøkum uttan fyri skúlans øki, hava lærarar skyldu til at hava umsjón við næmingunum. Umsjón skal vera við næmingum, sum fara útferðir, vitja virki, eru í setursskúla, eru á ítróttarferðum o.a.t.

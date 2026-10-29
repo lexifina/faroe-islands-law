@@ -1,0 +1,1 @@
+§ 13. Næmingur kann verða fluttur úr sínum flokki í annan flokk einstakar tímar ella restina av skúladegnum, um so er, at lærarin í samráð við skúlaleiðaran heldur, at hetta er neyðugt, fyri at undirvísingin kann fara fram í friði og náðum.
