@@ -1,0 +1,2 @@
+§ 3. Frá 1. oktober 1988 er lýsingin í Kunngerðablaðnum einasti bindandi kunngerðarhátturin av løgtingslógum v.m. eftir § 2, 1. stk. Verða tær í § 2, 2. stk. nevndu kunngerðir v.m. lýstar í kunngerðablaðnum, hevur lýsingin sama lóggildi sum lýsing av løgtingslógum v.m., hesin kunngerðarháttur er tó eingin treyt, um viðkomandi løgtingslóg sjálv ikki krevur hann.
+Stk. 2. [^1] Tá ið onki er tilskilað í løgtingslógini, kunngerðini o.a., kemur hon í gildi við byrjan av tí døgninum, sum kemur aftan á tað døgnið, tá hon er tikin upp í Kunngerðablaðið.
