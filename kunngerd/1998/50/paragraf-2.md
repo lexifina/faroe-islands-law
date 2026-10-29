@@ -1,0 +1,2 @@
+§ 2. Fyri at kunna selja sjóklæðir meirvirðisgjaldsfrítt, skal seljarin frá keyparanum hava avrit av dagførdum skrásetingarprógvi um, at keyparin er fiskifar, sum er meirvirðisgjaldsskrásett.
+Stk. 2. Er keyparin manning av fiskifari, skal viðkomandi lata seljaranum avrit av dagførdum skrásetingarprógvi um, at fiskifarið er meirvirðissgjaldskrásett, og skal hetta hava áskrift frá reiðarínum ella skiparanum um, at keyparin er manning á fiskifarinum. Á skrásetingarpróvnum skal eisini standa navn, bústaður og føðingardagur keyparans.
