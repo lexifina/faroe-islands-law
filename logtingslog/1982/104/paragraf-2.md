@@ -1,0 +1,1 @@
+§ 2. Sum hýruvognur er at skilja motorakfar, góðkent og innrættað til flutning av í mesta lagi 9 persónum, førarin viðroknaður, og sum ikki einans verður nýtt til sjúkraflutning ella vanliga rutukoyring, smbr. § 1 í løgtingslóg um fólka- og farmaflutning.
