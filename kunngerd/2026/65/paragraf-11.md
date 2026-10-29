@@ -1,0 +1,5 @@
+§ 11. Øll, sum flyta fólk, fæ ella farm til rottufría oyggj, skulu tryggja, at rotta ikki verður flutt við teimum út á rottufría oyggj.
+Stk. 2. Tann, sum rekur far, sum siglir ella flýgur til rottufría oyggj, skal hava regluligt eftirlit við, um rotta er umborð. Verður rotta ella tekin um rottu staðfest umborð, skal tað alt fyri eitt fráboðast Umhvørvisstovuni og kommununi, har lagt verður at.
+Stk. 3. Tann, sum eigur ella rekur undirsjóvartunnil til rottufría oyggj, skal áhaldandi fyribyrgja, at rotta kann fara ígjøgnum ella støðast í tunlinum og hava eftirlit við, um rotta er í tunlinum, og skulu rottufellur og rottueitur altíð vera í tunlinum. Í seinasta lagi 1. mars á hvørjum ári skal frágreiðing um eftirlitið árið fyri sendast Umhvørvisstovuni.
+Stk. 4. Øll, ið senda ella taka við sær vørur o.a. til rottufría oyggj, skulu tryggja sær, at vøran ikki er fongd við rottu, og at vøran er pakkað og goymd soleiðis, at rotta ikki kann sleppa framat.
+Stk. 5. Um vøra, sum skal til rottufría oyggj, verður sett á goymslu ávegis frá sendara til móttakara, skal tann, sum flytur vøruna, tryggja, at goymslan er rottutrygg. Vøran kann ikki standa á goymslu uttandura.

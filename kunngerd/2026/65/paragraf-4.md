@@ -1,0 +1,1 @@
+§ 4. Umhvørvisstovan skipar fyri skeiðum um at fyribyrgja og týna rottu, sum eru krav fyri at fáa løggilding og fyri at endurnýggja løggilding sambært § 3, stk. 1 og 3. Útreiðslurnar fyri skeið verða goldnar av luttakaranum sambært § 1, stk. 1, í kunngerð um gjøld hjá Umhvørvisstovuni fyri umsiting og eftirlit sambært lóggávuni á umhvørvisøkinum.

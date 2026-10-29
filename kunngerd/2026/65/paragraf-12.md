@@ -1,0 +1,2 @@
+§ 12. Kommunur, ið varða av rottufríum oyggjum, skulu í minsta lagi fýra ferðir um árið skipa fyri yvirvøku av rottu í oynni. Yvirvøkan skal gerast sambært vegleiðing frá Umhvørvisstovuni, og úrslitini latast Umhvørvisstovuni í seinasta lagi 1. mars á hvørjum ári.
+Stk. 2. Kommunur, ið varða av rottufríum oyggjum, skulu í seinasta lagi 1. juni 2027 hava eina tilbúgving fyri at týna rottu. Tilbúgvingarætlan skal gerast sambært vegleiðing frá Umhvørvisstovuni. Avrit av tilbúgvingarætlanini skal latast Umhvørvisstovuni til kunningar.
