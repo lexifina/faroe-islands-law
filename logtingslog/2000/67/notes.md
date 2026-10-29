@@ -1,0 +1,4 @@
+[^1]: Inngangurin til løgtingslógina varð strikaður við løgtingslóg nr. 45 frá 30. apríl 2018.
+[^2]: Broytt við løgtingslóg nr. 45 frá 30. apríl 2018.
+[^3]: Broytt við løgtingslóg nr. 152 frá 20. desember 2005, har § 2 ljóðar soleiðis: “Stk. 1. Henda løgtingslóg kemur í gildi 1. apríl 2006. Stk. 2. Ásetingin í § 6, stk. 4 verður galdandi frá 1. januar 2006, tó við tilvísing til ásetingina í § 17, stk. 2 í lóg um almenna forsorg viðvíkjandi børnum við serligum tørvi, ið hava ella fáa ansing í kommunalari ansingarskipan, inntil 31. mars 2006. Peningurin, ið Almannastovan leggur út fyri kommunurnar í tíðarskeiðnum 1. januar til 31. mars 2006, verður afturhildin umvegis Føroya Gjaldstovu.”
+[^4]: Broytt við løgtingslóg nr. 38 frá 9. mai 2006, har § 2 ljóðar soleiðis: “Henda løgtingslóg kemur í gildi dagin eftir, at hon er kunngjørd, og hevur virknað frá 1. januar 2006.”

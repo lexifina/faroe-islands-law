@@ -1,0 +1,4 @@
+§ 8. Til tess at røkja tað dagliga arbeiðið, setir kommunan ein leiðara fyri dagstovnin ella dagrøktarskipanina við námsfrøðiligari útbúgving. Leiðari fyri sjálvsognarstovn verður settur av nevndini fyri stovnin. Starvið skal lýsast leyst alment.
+Stk. 2. [^2] Í serligum førum kann kommunan í tíðaravmarkað skeið víkja frá kravinum um, at leiðarin skal hava námsfrøðiliga útbúgving. Landsstýrismaðurin kann í kunngerð áseta reglur, sum heimila kommununum í heilt serligum førum at geva varandi undantaksloyvi frá útbúgvingarkravinum.
+Stk. 3. Kommunan setir onnur fólk í starv eftir tilmæli frá leiðaranum. Størvini skulu lýsast leys alment.
+Stk 4. Starvsfólkabýtið á dagstovnum skal í minsta lagi verða 2/3 til námsfrøðingatímar og í mesta lagi 1/3 til hjálparfólkatímar. Í serligum førum kann landsstýrismaðurin víkja frá hesum kravi.
