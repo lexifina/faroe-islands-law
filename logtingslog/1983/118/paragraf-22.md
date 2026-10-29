@@ -1,0 +1,1 @@
+§ 22. Bygda(r)ráðini skulu í seinasta lagi 1. februar 1984 áseta kommunu- og kirkjuskattaprosentini og barnafrádráttin í kommunuskattinum, sum galdandi fyri inntøkuárið 1984. Um hesi tá ikki eru ásett, kann landsstýrið áseta tey.

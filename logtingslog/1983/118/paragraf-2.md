@@ -1,0 +1,2 @@
+§ 2. Deyðsbúgv hjá fólki, sum doyr fyri 1. apríl 1984, koma hvørki undir § 1, nr. 7 ella § 2, nr. 1 í samtíðarskattalógini, men verða viðgjørd eftir higartil galdandi reglum. Doyr ein persónur, sum hevur sitið í óskiftum búgvi, 1. apríl 1984 ella seinni, kemur búgvið undir skattskyldu eftir reglunum í samtíðarskattalógini.
+2. stk. Verður óskift búgv kravt skift fyri 1. apríl 1984, og eftirsitandi hjúnafelagi enn er á lívi, eru reglurnar í §§ 13-20 í samtíðarskattalógini ikki galdandi.

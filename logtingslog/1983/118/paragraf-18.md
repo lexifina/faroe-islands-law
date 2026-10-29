@@ -1,0 +1,1 @@
+§ 18. Persónur, sum hevur verið fyri tapi, sum sambært § 9, nr. 5) í løgtingslóg nr. 50 frá 2. juli 1963 kann verða drigið frá inntøkuni í 1983, avger sjálvur, um hetta tap ella partur av tí skal verða drigið frá inntøkuni í 1983 ella 1984. Um so er, at skattauppgerðin tá vísir hall, kann hetta verða drigið frá eftir reglunum í § 33, nr. 6) í samtíðarskattalógini.

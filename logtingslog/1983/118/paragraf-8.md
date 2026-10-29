@@ -1,0 +1,1 @@
+§ 8. Somu reglur, sum eru galdandi fyri uppgerð av skattskyldugari inntøku fyri skattaárið 1983/84, eru annars eisini galdandi, tá inntøkan fyri inntøkuárið 1983 skal gerast upp, bert broyttar við teimum fyriskipanum, sum henda lóg ásetir.

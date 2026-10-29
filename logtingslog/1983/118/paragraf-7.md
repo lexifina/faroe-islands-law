@@ -1,0 +1,5 @@
+## 4. kapittul.
+## Skattur av fluttari inntøku.
+§ 7. Allir persónligir skattgjaldarar verða fyri inntøkuárið 1983 settir í skatt av inntøku, sum er flutt til hetta árið, orsakað av broyting í mannagongdini við inntøkuuppgerðini í mun til 1982, tá skattskyldug inntøka fyri 1983 verður gjørd upp. Hetta er eisini galdandi viðvíkjandi fluttari inntøku, sum stendst av broyting av øðrum fyriskipanum, sum hava samband við roknskaparførsluna ella inntøkuuppgerðina, eitt nú minking av avskrivingum og broyting í uppgerðarháttinum av vørugoymsluni o.t.
+2. stk. Reglan í 1. stk. um skatting av fluttari inntøku er eisini galdandi fyri inntøku, sum er flutt til inntøkuárið 1983 við útgjalding av løn, tantieme o.l. frá feløgum v.m., sum eru undir partafelagsskatting, út um tað, sum higartil eftir partafelagsins viðurskiftum hevur verið vanligt.
+3. stk. Bert tann parturin av fluttari inntøku, sum er størri enn kr. 25.000 verður álagdur skatt til landskassa og kommunukassa við 50%. Skatturin verður býttur javnt millum landskassa og avvarðandi kommunu.

@@ -1,0 +1,1 @@
+§ 11. Kvinna, sum aftaná giftu er sett í skatt sambært § 20, 2. stk. í løgtingslóg nr. 50 frá 2. juli 1963 um landsskatt og kommunuskatt við seinni broytingum, verður framvegis undir hesi reglu, so leingi 2 ár ikki eru farin frá tí, hon varð sett í skatt eftir hesi reglu.

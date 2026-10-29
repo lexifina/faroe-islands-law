@@ -1,0 +1,2 @@
+§ 13. Er kona hins skattskylduga sett í skatt fyri seg eftir reglunum í § 17, 2. stk. í løgtingslóg nr. 50 frá 2. juli 1963 um landsskatt og kommunuskatt við seinni broytingum, verður inntøka hennara løgd afturat ásettu inntøku hansara, áðrenn javnmetingarinntøkan verður roknað.
+2. stk. Eru hjún gift í tíðarskeiðinum 1. januar til 31. mars 1984, verður inntøkan hjá konuni eisini løgd afturat inntøku mansins, áðrenn javnmetingarinntøkan verður roknað, jmt. tó § 11.

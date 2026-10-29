@@ -1,0 +1,3 @@
+## 7. kapittul.
+## Onnur fyrimæli.
+§ 20. Skattskyldugir persónar lata inn sjálvuppgávu og ognaruppgerð fyri inntøkuárið 1983, og skattskyldug inntøka verður gjørd upp eftir reglunum fyri skattaárið 1983/84. Skattskyldugir skulu eftir avgerð landsstýrisins geva teir upplýsingar, sum eru neyðugir fyri álíkningina av skatti av fluttari inntøku og meirinntøku. Reglurnar um hvørjir upplýsingar kunnu krevjast, tá sjálvuppgávan verður latin inn, eru annars eisini galdandi her. Álíkning av fluttari inntøku og meirinntøku verður gjørd sambært teimum reglum, sum eru galdandi fyri endaliga álíkning, herundir kæru til landsskattanevndina. Álíkning av fluttari inntøku verður gjørd í tí kommunu, har hin skattskyldugi skal setast í inntøkuskatt fyri inntøkuárið 1984.
