@@ -1,0 +1,1 @@
+§ 7. Um leigarin ikki longu er skrásettur sum reiðari í Føroysku Altjóða Skipaskrásetingini, verða neyðugar upplýsingar sambært kunngerð nr. 83 frá 19. mai 1992 um Føroyska Altjóða Skipaskrá, latnar skrásetingini.

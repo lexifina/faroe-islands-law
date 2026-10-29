@@ -1,0 +1,1 @@
+§ 4. Tá leiguavtalan, jvb. § 3, heldur uppat, fellur rætturin til at føra annað tjóðskaparflagg burtur. Eigarin skal innan 30 dagar eftir at leiguavtalan er hildin uppat fráboða hetta til Føroysku Altjóða Skipaskránna.

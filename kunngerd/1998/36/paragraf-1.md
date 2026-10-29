@@ -1,0 +1,3 @@
+§ 1. Skip sum eftir § 1 í løgtingslóg um Føroyska Altjóða Skipaskrá ikki er føroyskt, men sum verður útleigað til reiðara, sum eftir § 1 í løgtingslóg um Føroyska Altjóða Skipaskrá er føroyskur, kann av leigaranum fráboðast til skrásetingar í skipaskrásetingini. Skipið kann skrásetast fyri eitt tíðarskeið upp til 5 ár. Skipaskrásetingin kann eftir skrivligari umsókn frá leigaranum leingja hetta tíðarskeið við upp til einum ári í senn.
+Stk. 2. Veðrættindi ella onnur rættindi kunnu ikki skrásetast í skipi, ið er skrásett sambært stk. 1.
+Stk. 3 Leiguskráseting í føroysku skipaskrásetingini er treytað av, at váttan frá útlendska skrásetingarmyndugleikanum, um at skipið hevur rætt til at føra eitt annað tjóðskaparflagg í leigutíðini, er hjáløgd.

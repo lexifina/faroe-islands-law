@@ -1,0 +1,1 @@
+§ 8. Skipaskrásetingin letur gera serstakt blað fyri leiguskipið. Á blaðið verða skrivaðir kenningarbókstavirnir hjá skipinum, navn, heimstaður, mát, nýtsla, leiguavtalan umframt ein stutt endurtøka av upplýsingunum um leigaran.
