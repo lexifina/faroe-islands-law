@@ -1,0 +1,1 @@
+§ 2. Tey í § 1 nevndu fiskifør skulu geva upp veiði til Fiskiveiðieftirlitið í rundari vekt. Við umrokning av fiski til runda vekt, tá hesin er viðgjørdur, skulu teir í fylgiskjali 1 ásettu umrokningarfaktorar nýtast.
