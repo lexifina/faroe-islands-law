@@ -1,0 +1,1 @@
+§ 38. Til framleiðslu av dampi, til eldsløkking og til køling av kølimaskinum kann loyvast vatn, sum ikki lýkur krøvini til drekkivatn. Tílíkur útbúnaður skal vera gjørdur soleiðis, at lætt kann staðfestast, at onnur nýtsla av vatninum ikki kann fara fram, og soleiðis at vandi ikki er fyri dálking av fiski og fiskavørum.

@@ -1,0 +1,1 @@
+§ 63. Tá talan er um vøru, sum verður gjørd haldfør (konserverað) í einum avmarkaðum tíðarskeiði eftir eina viðgerð sum salting, royking, turking ella lakalegging, skal tað á pakkitilfarinum týðiliga tilskilast, hvussu vøran skal goymast.

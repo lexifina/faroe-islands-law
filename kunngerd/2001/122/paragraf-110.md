@@ -1,0 +1,1 @@
+§ 110. Royndir av framleiðsluni skulu takast hvønn dag við jøvnum millumbilum fyri at tryggja, at afturlatingin er munadygg. Neyðug útgerð skal vera til falsað-eftirlit av afturlatnu íløtunum. Eftirlit skal vera við, at íløtini eru í lagi.

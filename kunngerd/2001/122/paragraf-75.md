@@ -1,0 +1,2 @@
+§ 75. Farast skal undir frysting av fiskavøru skjótast gjørligt eftir, at viðgerðin frammanundan er av ella eftir móttøkuna í fyritøkuni.
+Stk. 2. Til farið verður undir frystingina skulu fiskur og fiskavøra vera fullgott køld. Á virkjum, har vøra verður fryst ímóti gjaldi, skal tað til hetta endamál vera innrættað serligt kølirúm. Í kølirúminum mugu ikki vera goymdar vørur, sum við lukti ella á annan hátt kunnu versna um góðskuna, smakkin ella útsjóndina á vøruni.

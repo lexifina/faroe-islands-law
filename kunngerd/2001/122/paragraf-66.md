@@ -1,0 +1,1 @@
+§ 66. Ísing av feskari fiskavøru skal vera munadygg, og serliga í botninum av pakkitilfarinum skal ríkiligt av ísi vera. Ísingin skal haldast viðlíka til sølu ella víðari viðgerð. Rogn, livur og sil, mugu ikki koma í beinleiðis samband við ísin.

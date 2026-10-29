@@ -1,0 +1,4 @@
+§ 10. Undir flutningi skulu fiskur, fiskavøra, ísur ella slógv setast við temperatur, sum tryggjar, at vørugóðskan ikki versnar óneyðuga.
+Stk. 2. Fesk og tiðnað fiskavøra og fiskavøra av kókaðum og køldum krabba- og lindýrum skal goymast og flytast í ísi í í mesta lagi 5°C.
+Stk. 3. Fryst fiskavøra skal flytast við ein støðugan temperatur uppá -18°C ella minni í øllum pørtum av vøruni. Tó eru hækkingar í temperaturinum uppá í mesta lagi +3°C loyvdar í styttri tíðarbilum. Tá fryst fiskavøra verður flutt frá einum frystihúsi til eina góðkenda fyritøku fyri at verða tiðnað beint eftir móttøkuna við atliti til at verða virkað og/ella tilevnað, og tað snýr seg um eitt stutt vegastrekki, sum í mesta lagi er 50 km. ella í mesta lagi ein tíma, kann Heilsufrøðiliga Starvsstovan gera frávik frá hesari treyt.
+Stk. 4. [^1] (Strikað).

@@ -1,0 +1,1 @@
+§ 116. Íløt og annað pakkitilfar, sum verða nýtt til goymslu og flutning av slógvi, mugu ikki nýtast til fisk og fiskavøru til matna og skulu á haldgóðan hátt verða frámerkt við heitinum ”slógv”. Tó kunnu fiskakassar nýtast til goymslu av tí, sum skorið er frá í samband við framleiðsluna.
