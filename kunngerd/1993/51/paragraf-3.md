@@ -1,0 +1,2 @@
+§ 3. Læknaváttanin verður send í afturlatnum brævbjálva beinleiðis til dagpeningaskipanina. Læknaváttanin skal undir allari viðgerðini í Almannastovuni verða goymd í málinum. Almannastovan skipar fyri, at tá málið ikki er í nýtslu, verður tað goymt í læstum rúmi.
+Stk. 2. Starvsfólk og onnur, sum undir viðgerðini av umsóknini um dagpening fáa kunnleika um innihaldið í læknaváttanina, skulu frammanundan hava fingið nágreinilig boð um, at læknaváttanin skal viðgerast í trúnaði, og at tey hava tagnarskyldu um innihaldið í hesari.

@@ -1,0 +1,2 @@
+§ 2. Um læknin metir, at fráveran vegna sjúku ella skaða kemur at vara eitt longri tíðarskeið, skal “Læknaváttan B um framhaldandi og langtíðarhjálp”, sum er skjal 2, nýtast.
+Stk. 2. “Læknaváttan B um framhaldandi og langtíðarhjálp“ skal eisini nýtast í samband við framhaldandi útgjalding av dagpeningi í teimum førum, tá Almannastovan frammanundan hevur fingið “Læknaváttan A um óarbeiðsføri“, men fráveran síðani vísir seg at koma at vara eitt longri tíðarskeið, enn frá fyrstuni roknað við.
