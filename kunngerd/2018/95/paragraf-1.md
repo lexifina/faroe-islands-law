@@ -1,0 +1,2 @@
+§ 1. Henda kunngerð er galdandi fyri fiskiskip 15 metrar ella longri, umframt fiskiskip við einum dimensiónstali uppá 100 ella meira. Kunngerðin er somuleiðis galdandi fyri løgfrøðiligar og likamligar persónar í Føroyum, sum umbyggja fiskifør, ið eru fevnd av hesum regluverki.
+Stk. 2. Dimensiónstalið verður funnið við at falda størstu longd á skipinum, LOA, sum er fjarðstøðan í beinari linju millum fremsta punktið á forstavninum, til aftasta punktið á afturstavninum, við størstu breidd á skipinum, soleiðis sum hesi mát eru ásett í málibrævi skipsins.
