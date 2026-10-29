@@ -1,0 +1,1 @@
+§ 1. Mynstringarskylda er á øllum føroyskum skipum til støddar 20 BT ella meira, undantikið útróðrarfør á føroysku landleiðunum, sum reka heimaútróður og eftir ætlan ikki eru meira enn 48 tímar heimanífrá.
