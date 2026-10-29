@@ -1,0 +1,4 @@
+§ 5. Løggildað virki og ekspeditiónssentur, sum taka ímóti livandi tvískeljaðum lindýrum, skulu tryggja sær, at lindýra- og vatnroyndir verða tiknar úr økjum, haðani lindýrini koma, sbr. § 4, stk. 2 og 3. Tað sama er galdandi fyri virki, sum selja lindýr til eitt ES-land ella eitt triðjaland.
+Stk. 2. Virki, sum eru nevnd í stk. 1, skulu føra eina rakstrardagbók, sum skal vísa, nær fiskiskapur er farin fram, hvør hevur fiskað og leverað lindýrini, úr hvørjum øki lindýrini koma, hvør hevur tikið royndirnar, hvar royndirnar ella royndir frá sama øki eru kannaðar og hvat úrslitið var.
+Stk. 3. Verða lindýr tilvirkað, meðan framhaldandi yvirvøka fer fram, skal framleiðslan verða hildin aftur, til kanningarúrslitið fyri viðkomandi viku er til taks.
+Stk. 4. Virki, sum selja livandi lindýr til víðari tilvirking í ES-landi ella triðjalandi, skulu tryggja sær, at móttakarin heldur lindýraúrdráttirnar aftur, til kanningarúrslitini eftir stk. 2 eru til taks.

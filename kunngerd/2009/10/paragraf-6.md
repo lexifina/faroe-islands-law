@@ -1,0 +1,3 @@
+§ 6. Løggildað virki skulu, eftir vegleiðing frá Heilsufrøðiligu starvsstovuni, taka kontraroynd av dagsframleiðsluni. Hesar royndir skulu verða goymdar í 12 mánaðir. Hetta er tó ikki galdandi fyri livandi lindýr, har kontraroyndin í konserveraðum líki, t.d. fryst, skal verða goymd í 1 mánað. Hetta er somuleiðis galdandi fyri virki, sum taka ímóti lindýrum við sølu til ES-land ella triðjaland fyri eyga.
+Stk. 2. Virkini, nevnd eru í stk. 1, skulu, eftir leiðbeining frá Heilsufrøðiligu starvsstovuni, taka og senda inn stakroyndir av lindýrunum til kanningar fyri algueitur.
+Stk. 3. Kanningarúrslit av royndum, sum eru tiknar og kannaðar smbrt. stk. 1 og 2, skulu skrivast í rakstrardagbókina, jvb. § 5, stk. 2.

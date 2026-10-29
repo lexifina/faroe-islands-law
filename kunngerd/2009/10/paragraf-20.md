@@ -1,0 +1,1 @@
+§ 20. Verða ásetingarnar í §§ 5-6, § 7, stk. 1, § 8, stk. 1, § 9, stk. 1, § 10, stk. 1, § 11, stk. 1, § 12, stk. 1, § 14, stk. 1, og § 15 ikki fylgdar, kann loyvið, góðkenningin, flutningsloyvið ella innflutningsloyvið verða tikið aftur, til viðurskiftini eru fingin í rættlag.
