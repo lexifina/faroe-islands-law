@@ -1,0 +1,4 @@
+§ 2. Kommunan kann játta heilt ella partvíst fíggjarligt frípláss, um umsøkjarin prógvar, at inntøkugrundarlagið hjá húski umsøkjarans er lægri enn inntøkumarkið fyri fíggjarligum fríplássi.
+Stk. 2. Inntøkugrundarlagið er inntøkan nevnd í § 3 lækkað við eini upphædd, ið svarar til tað vanliga barnagjaldið eftir løgtingslóg um barnagjald til einsamallar uppihaldarar v.fl., fyri hvørt heimabúgvandi barn undir 18 ár.
+Stk. 3. Húski sambært stk. 1 umfatar bæði foreldrini, um barnið býr saman við báðum foreldrum. Býr barnið saman við tí eina av foreldrunum og er foreldrið gift við ella livir saman við øðrum persóni, er hesin umfataður av húskinum. Liva foreldrini ikki saman og býr barnið eins nógv hjá báðum foreldrunum, er húskið sambært stk. 1 har barnið hevur bústað sambært landsfólkayvirlitinum.
+Stk. 4. Inntøka hjá barninum ella øðrum børnum í húskinum er ikki partur av inntøkugrundarlagnum hjá húskinum.
