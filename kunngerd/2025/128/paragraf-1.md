@@ -1,0 +1,4 @@
+§ 1. Ábyrgdarmarkið fyri onnur krøv enn krøv orsakað av persónsskaða ella deyða og fyri ein møguligan ikki dekkaðan part av kravi, sum nevnt í § 175, stk. 2, í sjólógini, sbr. § 175, stk. 3 og 4 í anordning om ikrafttræden for Færøerne af søloven, verður ásett til:
+1) 775.000 SDR fyri skip á 100 BT ella minni.
+2) 1 mió. SDR fyri skip millum 101-299 BT.
+Stk. 2. Ábyrgdarmarkið fyri onnur krøv enn krøv orsakað av persónsskaða ella deyða og fyri ein møguliga ikki dekkaðan part av kravi, sum nevnt í § 175, stk. 2, sbr. § 175, stk. 3 og 4, verður tó ásett til 1,51 mió. SDR fyri skaðar orsakað av eini vanlukku á sjónum, sum eitt skjóttgangandi far við skrokki undir 15 metrar, ein vatnskutari ella líknandi far, har útbúgvingarkrøv eru til føraran ella møguligan stýrimann, hevur verið atvoldin til.
