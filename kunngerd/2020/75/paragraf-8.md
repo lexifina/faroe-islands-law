@@ -1,0 +1,2 @@
+§ 8. Fyri at viðgerðartilboðið skal hava ta neyðugu dygdina, skal í minsta lagi helvtin av tí samlaða starvsfólkahópinum, hvørs arbeiðsuppgávur fevna um viðgerð av persónum við bundni av rúsdrekka ella rúsevnum, hava góðkenda útbúgving sum rúsdrekkaviðgeri ella rúsevnaviðgeri við hartil hoyrandi starvsroyndum og viðkomandi skeiðum.
+Stk. 2. Í minsta lagi eitt av starvsfólkunum skal vera løggildur sjúkrarøktarfrøðingur.
