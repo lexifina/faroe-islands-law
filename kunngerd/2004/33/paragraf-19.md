@@ -1,0 +1,1 @@
+§ 19. Verndarætlanin skal sendast Landsverkfrøðingsstovninum til góðkenningar. Landsverkfrøðingsstovnurin kannar, um verndarætlanin samsvarar við váðametingina og krøvini í hesari kunngerð. Landsverkfrøðingstovnurin kann krevja, at broytingar verða gjørdar í verndarætlanini.

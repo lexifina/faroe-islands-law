@@ -1,0 +1,1 @@
+§ 17. Umframt tey í § 16, stk. 2, nevndu tiltøk fyri verndarstig 3, sbr. § 23, stk. 2, skal havnafasiliteturin, tá Landsverkfrøðingsstovnurin boðar frá, at verndarstig 3 verður ásett, seta í verk allar verndarfyriskipanir, ið myndugleikarnir geva boð um.

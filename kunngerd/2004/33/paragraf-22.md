@@ -1,0 +1,1 @@
+§ 22. Við støði í fráboðanum um hendingar, sum hava týdning fyri verndina, sbr. § 24, kann Landsverkfrøðingsstovnurin áleggja verndarábyrgdaranum at gera broytingar í verndarætlanini til tess at minka um vandan fyri, at líknandi støður taka seg upp aftur.

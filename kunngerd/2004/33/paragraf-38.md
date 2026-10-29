@@ -1,0 +1,1 @@
+§ 38. Um skip, ið er komið í havn, ikki framhaldandi lýkur krøvini til verndartiltøk nevnd í verndarætlanini hjá skipinum, ella sum eru avtalaði í verndarváttan millum skip og havnafasilitet, sbr. hetta kapittuli, og tað ikki innan rímuliga tíð er møguligt at gera neyðug tiltøk, kunnu havnamyndugleikarnir vísa skipinum úr havnafasilitetinum.

@@ -1,0 +1,3 @@
+§ 29. Eftir góðkenning kunnu verndarfeløg røkja uppgávurnar í § 12. Eitt góðkent verndarfelag kann harafturat ráðgeva ella hjálpa havnafasilitetum við verndarspurningum, herímillum spurningum, ið viðvíkja váðametingum og verndarætlanum hjá havnafasilitetum.
+Stk. 2. Landsverkfrøðingsstovnurin kann eftir at hava hoyrt løgregluna avgerða um og møguliga við hvørjum avmarkingum góðkent verndarfelag kann gera váðametingar fyri havnafasilitetir, sbr. kapittul 2.
+Stk. 3. Um Landsverkfrøðingsstovnurin ger av, at eitt verndarfelag kann gera eina váðameting fyri ein havnafasilitet, sbr. stk. 2, viðførir hetta, at verndarfelagið skal standa fyri teimum uppgávum v.m., sum í kapittuli 2 liggja á havnaumsitingini.

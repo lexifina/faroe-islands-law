@@ -1,0 +1,5 @@
+## Kapittul 10
+## Goymsla, samskifti o.a.
+§ 45. Váðametingar, verndarætlanir, herundir verndarætlanir eftir § 14, og tær í § 32 nevndu verndarváttanirnar skulu verða viðgjørdar í trúnaði og mugu ikki koma óvikomandi í hendi. Tilfarið kann verða varðveitt elektróniskt, og skal verða goymt soleiðis, at atgongd, burturbeining, oyðing, broyting ella almannakunngerð, sum ikki er góðkend, verður forðað.
+Stk. 2. Tilfarið í sambandi við umsókn um góðkenning av verndarskipanum, váðametingum og verndarætlanum verður sent við brævi til Landsverkfrøðingsstovnin. Tilfarið, ið sent verður, kann vera elektrónisk skjøl ella í pappírsformi. Tilfarið og annað samskifti í sambandi við málsviðgerðina hjá Landsverkfrøðingsstovninum skal av trygdarorsøkum ikki sendast við teldubrævi ella yvir internetið.
+Stk. 3. Viðkvæmt tilfar sent á tílíkan hátt, at tað kann verða ivasamt, um trúnaðurin er varðveittur, kann føra við sær, at verndarætlanin ella partar av henni skulu broytast. Landsverkfrøðingsstovnurin tekur avgerð í samráð við løgregluna, um henda støða tekur seg upp og gevur havnaumsitingini leiðbeinginar, sbr. §§ 19 og 22.

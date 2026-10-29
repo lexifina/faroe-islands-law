@@ -1,0 +1,1 @@
+§ 24. Um ein hending, ið hevur týdning fyri verndina, verður fyri, t.v.s. ein illgrunasom gerð ella har umstøðurnar kunnu verða ein hóttan móti einum havnafasiliteti ella móti einum skipi, sum er í havn, skal verndarábyrgdarin, um tað ikki beinanvegin kann staðfestast, at hendingin er uttan týdning, geva løgregluni og Landsverkfrøðingsstovninum boð um hetta.

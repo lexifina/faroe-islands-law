@@ -1,0 +1,1 @@
+§ 33. Verndarábyrgdarin á havnini kann krevja eina verndarváttan frá einum skipi, um tað í tí góðkendu váðametingini er ásett, at hetta er neyðugt, t.d. í sambandi við at lasta ella lossa vandamikil evni ella vandamikið góðs.

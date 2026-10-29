@@ -1,0 +1,1 @@
+§ 7. Eftir umsókn kann Landsverkfrøðingsstovnurin eftir at hava hoyrt løgregluna loyva, at ein samlað váðameting fyri fleiri havnafasilitetir verður gjørd, um hesir hava plasering, virksemi, útgerð og snið, ið líkjast.

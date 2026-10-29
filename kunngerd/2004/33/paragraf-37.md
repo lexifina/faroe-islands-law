@@ -1,0 +1,1 @@
+§ 37. Um skip, ið ynskja at leggja at einum havnafasiliteti, ikki kunnu lúka krøvini um verndartiltøk, ið nevnd eru í verndarætlanini, ella avtalað í verndarváttanini millum skip og havn, sbr. kapittul 7, og tað ikki innan rímuliga tíð er møguligt at gera nøktandi eyka tiltøk, kunnu havnamyndugleikarnir nokta skipinum at leggja at.

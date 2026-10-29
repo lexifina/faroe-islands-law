@@ -1,0 +1,2 @@
+§ 21. Um so er, at týðandi fysiskar broytingar verða gjørdar á havnafasilitetinum, ella havnin verður nýtt til onnur endamál enn tey, ið eru lýst í váðametingini, skal nýggj váðameting verða gjørd av havnini og møgulig nýggj verndarætlan verða gjørd í samsvar við ásetingarnar í hesi kunngerð.
+Stk. 2. Nýggj váðameting og verndarætlan skal verða gjørd í seinasta lagi 5 ár eftir ta seinastu góðkenningina, um so er, at tað ikki er gjørd nýggj váðameting eftir stk. 1.

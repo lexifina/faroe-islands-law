@@ -1,0 +1,1 @@
+§ 46. Starvsfólk hjá landsstýrismanninum og onnur, sum eru við til at gera váðametingar og verndarætlanir, og sum fáa upplýsingar sambært hesari kunngerð, skulu móti at vísa samleikaprógv fáa atgongd til havnina, fasilitetin og viðkomandi skjøl.

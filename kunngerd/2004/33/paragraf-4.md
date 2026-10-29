@@ -1,0 +1,2 @@
+§ 4. Umframt at havnaumsitingin ásetur havnafasilitetir, sbr. § 3, skal havnaumsitingin gera eina lýsing av havnafasilitetinum við upplýsingum um, hvat slag af fasiliteti, talan er um, tað virksemið, sum fer fram á fasilitetinum og tær týðandi ognirnar og undirstøðukervi á fasilitetinum.
+Stk. 2. Tær í stk. 1 nevndu ognir og undirstøðukervið kunnu vera á sjálvum havnafasilitetinum, beint við, ella standa soleiðis, at tær kunnu hava týdning, tá ið mett verður um verndina av havnafasilitetunum.
