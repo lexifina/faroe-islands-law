@@ -1,0 +1,3 @@
+§ 16. Viðkomandi myndugleiki ger sum skjótast av, um ein áheitan um skjalainnlit kann verða gingin á møti, og um hann, sum er komin við áheitanini skal verða gjørdur kunnugur við skjøl soleiðis, at hann fær høvi til at síggja tey á staðnum ella soleiðis, at hann fær eitt avrit ella makaskjal.
+Stk. 2. Er ein áheitan um skjalainnlit ikki gingin á møti ella noktað innan 10 dagar eftir, at viðkomandi myndugleiki hevur móttikið hana, skal myndugleikin boða viðkomandi frá, um orsøkina til hetta, og nær ein avgerð væntandi verður til skjals.
+Stk. 3. Landsstýrið ásetir reglur um gjald fyri avrit ella makaskjøl.

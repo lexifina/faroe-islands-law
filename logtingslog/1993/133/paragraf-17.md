@@ -1,0 +1,6 @@
+## Kap. 5.
+## Gildiskoma, atlitið til aðra lóggávu v.m.
+§ 17. Lógin kemur í gildi 1. januar 1994.
+Stk. 2. Lógin er ikki galdandi fyri skjøl, sum ein myndugleiki hevur gjørt, ella sum eru komin einum myndugleika í hendi áðrenn 1. januar 1994. Upplýsingar um veruligar umstøður, ið eru at finna í tílíkum skjølum, eru tó umfataðar av rættinum til skjalainnlit sambært reglunum í hesi lóg, um so er, at skjølini eru komin til eitt mál, sum er ella hevur verið til viðgerar hjá einum fyrisitingarmyndugleika aftaná nevnda dag, og upplýsingarnar eru ella hava verið av týdningi fyri málið ásetingin í § 8, nr. 4 er galdandi fyri skjøl, ið verða nýtt aftaná, at lógin er komin í gildi. Ásetingin í § 9 er galdandi fyri skjúkrahúsjournalar, ið eru gjørdar aftaná, at lógin er komin í gildi, og er eisini galdandi fyri tað, sum er skrivað í verandi journalar aftaná, at lógin er komin í gildi. Høvið til skjalainnlit sambært § 1, stk. 2 er ikki galdandi fyri skjøl, ið eru gjørd av ella eru komin til tey í ásetingini nevndu feløg, stovnar, felagsskapir v.m., áðrenn lógin er komin í gildi.
+Stk. 3. Ásetingar í øðrum lógum um høvi til at kunna seg við skjøl hjá almennu fyrisitingini vera í gildi, hóast tær geva teprari rætt til skjalainnlit enn henda lóg.
+Sí: Lm. nr. 93/1989 : Lm. nr. 93/1991 og Lm. nr. 184/1992

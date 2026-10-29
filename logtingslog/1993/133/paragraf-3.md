@@ -1,0 +1,2 @@
+§ 3. Landsstýrið kann áseta reglur um, at nærri tilskilaðir myndugleikar, málsøkir ella sløg av skjølum, fyri hvørji ásetingarnar í § 7-14 vanliga føra við sær, at áheitan um skjalainnlit kann verða noktað, skulu verða undantikin lógini.
+Stk. 2. Landsstýrið kann áseta reglur um, at tað aftaná eitt ávíst áramál skal vera loyvt at gera seg kunnugan við nærri tilskilað skjøl, sum ikki koma undir rættin til skjalainnlit sambært reglunum í hesi lóg.
