@@ -1,0 +1,1 @@
+§ 3. Í staðin fyri at nýta reglurnar í økissáttmálanum um upprunareglur kunnu innflytarar og útflytarar velja at nýta upprunareglurnar sum eru lýstar í skjali 3 fyri vørur og framleiðslur sambært handilssáttmálanum við ES.
