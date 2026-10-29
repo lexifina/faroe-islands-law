@@ -1,0 +1,1 @@
+§ 1. Upphæddin, sum verður hildin neyðug til uppihald, er fyri álmanakkaárið 2008 kr. 69.000 og fyri álmanakkaárið 2009 kr. 71.000. Hon verður minkað í mun til longdina á dvølinum í Føroyum og alt álmanakkaárið.
