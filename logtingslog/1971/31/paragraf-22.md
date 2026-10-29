@@ -1,0 +1,1 @@
+§ 22. Tá ið tænastumaður verður lagdur undir órættiligan atburð í tænastugerningi sínum, ella æruskemmandi skuldsetingar verða bornar móti honum, kann verða álagt honum at sleppa sær undan skuldsetingini við dómi. Um umstøðurnar tala fyri, kann landsstýrið gera av, at landskassin veitir tænstumanninum fult ella lutvíst endurgjald fyri møguligar útreiðslur í rættarmálinum.

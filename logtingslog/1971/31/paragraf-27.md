@@ -1,0 +1,1 @@
+§ 27. Tænastumenn, sum settir eru upp á áramál, kunnu bert loysast úr starvi uttan umsókn, um so er at orsøkin er heilsubrek ella viðurskifti, sum nevnd eru í § 25, 2. pkt., ella § 26. Annars endar starvstíðin, tá ið áramálið er úti.

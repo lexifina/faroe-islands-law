@@ -1,0 +1,1 @@
+§ 14. Tænastumanni er bert loyvt at hava starv uttan fyri tænastuna, um so er, at tað ikki er til bága fyri, at hann væl og virðiliga fær røkt tær skyldur sínar sum tænastumaður, ella um tað ikki minkar um ta virðing, og tað álit, ið neyðugt er í tænastu hansara.

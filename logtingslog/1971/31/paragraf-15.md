@@ -1,0 +1,1 @@
+§ 15. Fyri at røkja skyldurnar, sum fylgja við tænastumannastarvinum, og fyri tílík størv, sum mugu haldast at vera ein partur av tænastumannastarvinum, kann tænastumaður bert fáa tílíka løn og aðrar samsýningar, sum fyrisettar eru eftir §§ 31-33 ella § 40.

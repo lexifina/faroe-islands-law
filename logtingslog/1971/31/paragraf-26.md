@@ -1,0 +1,1 @@
+§ 26. [^1] Tænastumaður verður loystur úr starvi, tá mánaðurin er úti, sum hann fyllir 72 ár í, ella røkkur tann aldur, sum í lóggávuni annars er fyrisettur sum aldursmark fyri avvarðandi starv, ella røkkur aldur yvir 60 ár, sum fyrisettur er í avtalu, samb. § 31.

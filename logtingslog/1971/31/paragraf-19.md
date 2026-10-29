@@ -1,0 +1,4 @@
+§ 19. Verður hildið, at málið endar við flyting til annað arbeiðspláss ella í annað starv í ella uttan fyri starvsøkið, starvslækkan ella avseting, skal avvarðandi felag við tingingarrætti fáa frásøgn um, hvussu statt er í málinum, soleiðis at tað kann fáa høvi til at ummæla málið, áðrenn avgerð verður tikin.
+Stk. 2. Avvarandi felag við tingingarætti kann krevja at verða gjørt kunnugt við ta avgerð, sum tikin er við tilfarinum frá tænastuforhoyrinum sum grundarlag.
+Stk. 3. Kemur tænastumaður undir illgruna fyri nakað straffbart, kann hann krevja málið viðgjørt sum brotsmál. Hetta er ikki til hindurs fyri, at tænastuligt forhoyr kann fara fram móti tænastumanninum, tá ið brotsmálið er avgjørt.
+Stk. 4. Er tænastumanni álagt agarevsing uttan tænastuligt forhoyr frammanundan, smbr. § 21, kann hann krevja, at tænastuligt forhoyr fer fram. Tað er bert neyðugt at koma áheitanini á møti, um so er at hann fær viðmæli frá avvarðandi felag við tingingarrætti.

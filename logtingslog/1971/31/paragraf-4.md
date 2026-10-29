@@ -1,0 +1,1 @@
+§ 4. Fyritreytin fyri at verða settur í starv sum tænastumaður er, at avvarðandi hevur aldur, heilsu og útbúgving, ið ger hann føran fyri at inna tænastu í avvarðandi starvi. Eru treytir um aldur, heilsu og útbúgving ikki ásettar í aðrari lóg ella við heimild í henni, kunnu tílíkar treytir ásetast av landsstýrinum.

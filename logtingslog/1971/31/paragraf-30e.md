@@ -1,0 +1,1 @@
+§ 30 e. Halda kirkjuráðini, at eingin av umsøkjarunum, ið hava søkt lýst starv sum sóknarprestur, er nóg væl skikkaður til starvið, ella eru ov fáar umsóknir komnar til starvið, kunnu kirkjuráðini heita á biskupin um at lata starvið lýsa leyst av nýggjum.

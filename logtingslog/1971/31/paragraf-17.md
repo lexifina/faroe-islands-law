@@ -1,0 +1,3 @@
+§ 17. Tænastumaður, sum tænastufrágreiðing verður gjørd um viðvíkjandi tænastumisbroti ella straffbarum viðurskiftum, hevur rætt til at fáa eina skrivliga frágreiðing um tey veruligu viðurskiftini og fáa høvi til at geva skrivligt ummæli um frágreiðingina. Hann skal samstundis fáa at vita, at hann ikki hevur skyldu til at ummæla frágreiðingina.
+Stk. 2. Tá ið rannsóknin í agamáli verður fyrireikað móti tænastumanni fyri tænastumisbrot, verður rannsóknarleiðari settur av rættinum.
+Stk. 3. Verður tað í serligum føri hildið neyðugt, kann landsstýrið eftir tilmæli frá rannsóknarleiðaranum og aftan á ummæli er fingið frá felagnum við tingingarrætti uppnevna ein persón at umboða umsitingina.

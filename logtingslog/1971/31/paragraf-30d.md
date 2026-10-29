@@ -1,0 +1,1 @@
+§ 30 d. Eftir tilmæli frá biskuppi kann sóknarprestur verða sagdur úr starvi eftir § 29, vegna álvarsama ósemju millum sóknarprest og kirkjulið, ið hevur verið til munandi bága fyri kirkjuliga lívið og trivnaðin á staðnum.

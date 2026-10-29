@@ -1,0 +1,2 @@
+§ 39. [^2] Spurningar, sum eftir § 38 kunnu leggjast fyri og avgerast av gerðarrættinum, kunnu ikki leggjast fyri rættin. Tó hevur tænastumaður rætt, tá avvarðandi yrkisfelag hevur noktað at leggja málið fyri gerðarrættin.
+Stk. 2. Kann eitt mál leggjast fyri rættin, skal hetta verða gjørt innan 6 mánaðir aftaná, at saksøkjarin hevur fingið boð um, at málið er endaliga avgjørt av fyrisitingini ella málið er avvíst av felagnum ella gerðarrættinum.

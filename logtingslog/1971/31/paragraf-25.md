@@ -1,0 +1,1 @@
+§ 25. Tænastumaður kann uttan umsókn verða loystur úr starvi við 3 mánaða fyrivarningi til ein mánaða útgang. Tænastumaður kann verða loystur úr starvi við stytri fyrivarningi, um hann er óskikkaður til starvið vegna brotsgerð, tænastumisbrot ella misgerð.

@@ -1,0 +1,2 @@
+§ 32. Fæst ikki semja um støddina av samlaðu upphæddini til broyting av lønar- og øðrum starvstreytum, herundir til rætting av lønarstiga, og staðarviðbótum, til broyting í lønaráseting fyri tænastumannastørvini og til broyting av øðrum samsýningum fyri inning av tænastumannastarvi, sambr. § 15, leggur landsstýrið fram serligt lógaruppskot.
+Stk. 2. [^3] Fæst ikki semja um nýtsluna av tí í 1. stk. nevndu upphædd, leggur landsstýrið fram serligt lógaruppskot.

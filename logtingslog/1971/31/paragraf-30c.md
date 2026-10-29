@@ -1,0 +1,1 @@
+§ 30 c. Tænastumaður í fólkakirkjuni hevur skyldu til at ganga undir tílíkar broytingar í tænastuviðurskiftunum og tænastuøki sínum, sum ikki broyta starvseyðkennið, og sum ikki gera, at starvið ikki longur kann haldast hóskandi fyri hann.
