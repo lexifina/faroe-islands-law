@@ -1,0 +1,3 @@
+§ 2. Landsstýrismanninum verður heimilað av árligu játtanini á fíggjarlógini at veita studning til hesi endamál: Gransking, menning og ráðgeving innan aling av vatnlivandi djórum og plantum og innan biotøkni.
+Stk. 2. Studningur verður veittur til P/F Fiskaaling og skal afturgjaldast landskassanum, um hann ikki verður nýttur til tey í stk. 1 nevndu endamál. Inntøkur hjá P/F Fiskaaling, herundir inntøkur, ið eru beinleiðis avleiddar av stuðlinum, skulu tó ikki gjaldast landskassanum.
+Stk. 3. Landsstýrismanninum verður heimilað í sáttmála at áseta nærri reglur og treytir fyri studningsveitingunum.
