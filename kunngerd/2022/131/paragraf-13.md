@@ -1,0 +1,20 @@
+§ 13. Førleikarnir til sergreinina maskinsmiður eru hesir:
+1) at samskifta og samstarva fakligt í fyritøkuni,
+2) at arbeiða við góðsku í huga og hava kunnleika til góðskustýringarskipanir,
+3) at sýna hugflog í arbeiði sínum við konstruktión og framleiðslu innan yrkisøkini í útbúgving sínari,
+4) at vera tilvitaður um heilsu, trygd og umhvørvið, HTU, í arbeiðsuppgávum í útbúgving sínari,
+5) at leggja til rættis og framleiða lutir á hondstýrdum spóntakandi maskinum,
+6) at gera arbeiðstekningar við støði í CAD tekniforritum,
+7) at útinna uppbygging, forritan, feilfinnan og umvæling av einføldum stýringartekniskum skipanum,
+8) at duga at velja røtt amboð og rætta dátugrundarlagið í sambandi við framleiðsluuppgávur,
+9) at eftirkanna mát og skjalprógva útintar uppgávur,
+10) at stilla og viðlíkahalda arbeiðsamboð og mátiamboð,
+11) at rætta, stilla og viðlíkahalda maskinur,
+12) at nýta CNC forrit sambært tekningum,
+13) at sýna góðskutilvitan, tá uppgávur verða útintar. Hesin førleiki fevnir um málmáting og aðra góðskumáting við nýtslu av skjótilæru og mikrometurmátiamboðum, við atliti at galdandi standardum,
+14) at samskifta og gera avtalur við viðskiftafólk grundað á vitan um kundarøkt,
+15) at skilliga samskifta um arbeiðsstøðuna á fremmandamáli,
+16) at viðlíkahalda, montera og demontera høvuðspartarnar av einum motori og útinna einfaldar umvælingaruppgávur og viðlíkahaldsuppgávur av rørskipanum, pumpum, ventilum og øðrum mekaniskum og tekniskum skipanum,
+17) at brúka KT í sambandi við dagligu arbeiðsuppgávurnar. Eitt nú at leita eftir viðkomandi tekniskum og fakligum upplýsingum,
+18) at leggja til rættis og gera minni konstruktiónir av plátu, røri og stálprofilum í einari framleiðslutilgongd, umvælingartilgongd og viðlíkahaldstilgongd, og
+19) at útinna samansetingarhættir í eini framleiðslutilgongd samsvarandi galdandi standardum, íroknað mekanisk og termisk skering, sveising og lodding við meira.

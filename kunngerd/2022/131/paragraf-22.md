@@ -1,0 +1,1 @@
+§ 22. Endaliga sveinaroyndarpróvtalið verður roknað sum eitt vektað miðaltal av próvtalinum fyri ástøðiliga partin og próvtalinum fyri verkliga partin av sveinaroyndini. Próvtalið fyri ástøðiliga partin skal vektast við ¼, og próvtalið fyri verkliga partin vektast við ¾.
