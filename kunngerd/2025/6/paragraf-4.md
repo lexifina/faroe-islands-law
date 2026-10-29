@@ -1,0 +1,4 @@
+§ 4. Við lutafyritøkur í hesi kunngerð er at skilja eindir, ið hava tað í § 4 í vinnufyritøkulógini nevnda endamál.
+Stk. 2. Við innanhýsis avtalur, sambært § 1, nr. 3, er at skilja avtalur o.a., gjørdar millum lutafelagið og limir tess ella sínámillum avtalur o.a. hjá limunum, t.d. um sínámillum skuldarbinding hjá limunum, atkvøðu og umboðan í lutafelagnum, og sum ikki hava týðandi ávirkan á onnur, enn limirnar og lutafelagið.
+Stk. 3. Við nøktandi rakstur av lutafelagnum, sambært § 1, nr. 3, er at skilja vanlig gagnnýtsla av kapasitetinum hjá felagnum.
+Stk. 4. Við varðveitslu av styrki í gjørdum avtalum, sambært § 1, nr. 3, er at skilja skylda hjá limunum at lata síni áhugamál sum keyparar ella veitarar verða røkt gjøgnum lutafelagið í eitt avmarkað tíðarskeið. Um lutafelagið ikki hevur eina ráðandi støðu, er hetta tíðarskeið í mesta lagi tvey ár. Um lutafelagið hevur eina ráðandi støðu, skal tíðarskeiðið vera munandi styttri.
