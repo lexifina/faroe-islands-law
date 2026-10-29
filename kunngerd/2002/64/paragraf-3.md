@@ -1,0 +1,5 @@
+§ 3. Skúlin sendir fyrst í hvørjum hálvári yrkisnevndafyrisitingini yvirlit yvir yrkis- og sveinaroyndir, sum verða hildnar í tí hálvárinum. Í yvirlitinum skal standa: tíðarskeiðið, har royndin fer fram, heiti á útbúgvingini og navn á fak- og/ella leiðandi lærara.
+Stk. 2. Skúlin sendir í seinasta lagi 4 vikur áðrenn ein yrkis- ella sveinaroynd byrjar yrkisnevndafyrisitingini yvirlit yvir teir lærlingar, sum skulu til yrkis- ella sveinaroynd, og navnið, bústaðin og vinnutalið á læruplássinum, sum tann einstaki lærlingurin kemur frá. Í fráboðanini skal eisini upplýsast, hvønn skúlin hevur valt til ansara, um neyðugt er at hava slíkan.
+Stk. 3. Til yrkisroynd tilnevnir viðkomandi yrkisnevnd 1 metingardómara og til sveinaroynd 2 metingardómarar, sum skulu døma avrikini sbrt. § 7.
+Stk. 4. Skúlin leggur royndirnar til rættis í samráð við avvarðandi yrkisnevnd.
+Stk. 5. Til skrivligar royndir letur skúlastjórin ella eitt av honum tilnevnt ábyrgdarfólk lærlingunum uppgávurnar. Lærlingarnir mugu ikki hava sæð uppgávurnar undan royndini.

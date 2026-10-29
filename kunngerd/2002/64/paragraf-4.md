@@ -1,0 +1,3 @@
+§ 4. Avvarðandi yrkisfeløg velja eitt ávíst tal av metingardómarum til hvørja útbúgving. Avvarðandi yrkisnevnd góðkennir valið. Yrkisnevndafyrisitingin tilnevnir síðani burtur úr listanum av góðkendum metingardómarunum teir, ið skulu nýtast til ta einstøku royndina.
+Stk. 2. Metingardómarar skulu hava útbúgving í viðkomandi yrki og vanliga ikki minni enn 5 ára vinnuroyndir í yrkinum og ikki verða nær skyldir við ella í starvi á sama virki sum lærlingar, teir døma. Lærarar kunnu ikki verða tilnevndir sum metingardómarar á egnum skúla.
+Stk. 3. Metingardómarar eiga at hava fingið kunning um mannagongdina í sambandi við døming.
