@@ -1,0 +1,1 @@
+§ 11. Landsstýrismaðurin kann áseta reglur um skyldur avskiparans í sambandi við vøruflutning á sjónum, um bjálving, merking, innskiping, flutning og um uppskiping av vandamiklari vøru ella øðrum farmi, undir hesum livandi dýrum, ið krevur serlig tiltøk at tryggja skip og mannalív ella fyribyrging fyri havdálking.

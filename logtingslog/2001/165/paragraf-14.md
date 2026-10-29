@@ -1,0 +1,2 @@
+§ 14. Tá ræður um at seta altjóða reglur ella tilmæli í gildi, kann landsstýrismaðurin útum tað, sum ásett er frammanfyri í §§ 6 til 12, áseta reglur um skipasmíð, útgerð, rakstur og fyribyrging fyri havdálking. Tílíkar reglur kunnu eisini setast í gildi fyri skip, ið ikki eru fevnd av altjóða reglum.
+Stk. 2. [^1] [^3] Fyri útlendsk skip, sum sambært § 1, stk. 2 eru fevnd av lógini, kann landsstýrismaðurin áseta reglur um viðurskifti, fevnd av ILO sáttmálanum um starvsviðurskifti hjá sjófólki (MLC) og ILO sáttmála 188 um starvsviðurskifti hjá sjófólki við fiskiskipum.

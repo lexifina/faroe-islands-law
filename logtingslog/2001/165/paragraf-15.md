@@ -1,0 +1,2 @@
+§ 15. Skip, hvørs kjølur er strektur, ella sum er á samsvarandi byggistigi, tá reglur, givnar sambært §§ 6 til 12 og § 14, koma í gildi, kann verða undantikið heilt ella partvíst. Neyðug fyrivarni skulu tó havast fyri verju fyri havdálking, trygd og heilsu eins og skipaslagi og brúk av skipinum.
+Stk. 2. Landsstýrismaðurin kann áseta serligar reglur fyri skip, minni enn 20 BRT, skip við bruttotonsatali undir 20, skip 15 metrar ella styttri og varðveitingarverd skip.

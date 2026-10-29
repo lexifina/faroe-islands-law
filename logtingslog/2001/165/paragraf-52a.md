@@ -1,0 +1,1 @@
+§ 52 a. [^7] Á sama hátt, sum ásett í § 49, verður tann revsaður, sum førir skip ella hevur starv umborð, ið hevur stóran týdning fyri trygdina, og sum hevur drukkið so mikið av rúsløgi, ella tikið so mikið av rúsevnum, at hann ella hon ikki er førur fyri at røkja tænastu sína á fulltryggan hátt.

@@ -1,0 +1,4 @@
+§ 19. [^1] [^5] [^4] Starvsfólk hjá Sjóvinnustýrinum og onnur, ið hava heimildir vegna Sjóvinnustýrið at útinna arbeiði sbrt. §§ 13 og 22, hava í arbeiði sínum, tá hetta er neyðugt, rætt til uttan rættarúrskurð at fara umborð á øll skip móti at vísa galdandi samleikaprógv. Á sama hátt hava starvsfólk og onnur, ið eru fevnd av 1. pkt., tá hetta er neyðugt, rætt til at fara inn í hølir, har vinnuligt virksemi viðvíkjandi skiparakstri verður útint, og at fáa atgongd til viðkomandi øki ella vanlukkustað, undir hesum eisini vrak ella vraklutir.
+Stk. 2. Løgmætisprógv skal vísast hvørja ferð farið verður umborð at sýna skip, um hetta verður kravt.
+Stk. 3. [^1] Reiðari, skipari og maskinstjóri ella tey, ið virka teirra vegna, hava skyldu at veita starvsfólkinum hjá Sjóvinnustýrinum og øðrum heimilaðum neyðuga hjálp og geva allar upplýsingar.
+Stk. 4. Síggjast skal til, at skipið ikki verður tarnað óneyðugt og at arbeiðið umborð ikki verður órógvað meira enn neyðugt er.

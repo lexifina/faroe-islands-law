@@ -1,0 +1,2 @@
+§ 17. [^1] Sjóvinnustýrið góðkennir brúk av skipum, undir hesum siglingarøki og ferðamannatal v.m., og veitir neyðug loyvisbrøv og onnur próvskjøl í hesum sambandi.
+Stk. 2. [^1] [^3] Sjóvinnustýrið veitir somuleiðis loyvisbrøv og onnur próvskjøl sambært ILO sáttmálanum um starvsviðurskifti hjá sjófólki (MLC) og ILO sáttmála 188 um starvsviðurskifti hjá sjófólki við fiskiskipum. Landsstýrismaðurin kann áseta nærri reglur hesum viðvíkjandi, undir hesum um gjald fyri útflýggjan av loyvisbrøvum og próvskjølum.

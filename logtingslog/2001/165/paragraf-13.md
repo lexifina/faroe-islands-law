@@ -1,0 +1,2 @@
+§ 13. [^4] Landsstýrisfólkið ásetir reglur um kanning av vanlukkum á sjónum, sum viðvíkja føroyskum skipum, og øðrum vanlukkum á sjónum við tilknýti til Føroyar, undir hesum vanlukkum, fevndar av altjóða koduni um kanningar av vanlukkum á sjónum, til tess at staðfesta vanlukkuorsøkina og til at fyribyrgja vanlukkur, og kann, um tørvur er á tí, brúka útlendska serfrøði til tess.
+Stk. 2. [^4] Landsstýrisfólkið ásetir nærri reglur um skyldu at boða Sjóvinnustýrinum frá um vanlukkur á sjónum sambært stk. 1.

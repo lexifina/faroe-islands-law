@@ -1,0 +1,8 @@
+§ 19 b. [^5] [^4] Upplýsingar, savnaðar í sambandi við kanningar, sum verða gjørdar sambært altjóða koduni um kanningar av vanlukkum á sjónum sambært § 13, skulu ikki verða nýttar til annað endamál enn kanningararbeiði:
+1) Allar vitnisfrágreiðingar og aðrar váttanir, frágreiðingar, ið eru móttiknar sum liður í kanningararbeiðinum, og upprit, ið eru gjørd í sambandi við, at nevndu frágreiðingar eru móttiknar o.a.,
+2) upplýsingar, sum avdúka samleikan hjá persónum, sum hava givið frágreiðingar í sambandi við kanningina, og
+3) upplýsingar viðvíkjandi persónum, sum hava verið partur av vanlukkuni ella hendingini til sjós, ið eru av serliga viðkvomum ella privatum slagi, undir hesum heilsuupplýsingar.
+Stk. 2. [^4] Persónar, sum á ein hvønn hátt eru við í arbeiðinum at kanna vanlukkur sambært altjóða koduni um kanningar av vanlukkum á sjónum sambært § 13, hava undir ábyrgd sambært revsilógarinnar §§ 152 og 152 a-152 e skyldu til mótvegis óviðkomandi at halda loyniligt tað, sum teir fáa kunnleika til í sambandi við kanningina.
+Stk. 3. Ásetingarnar um innlit í løgtingslóg um innlit í fyrisitingina eru ikki galdandi fyri upplýsingar, ið eru givnar øðrum myndugleika innan karmarnar í stk. 2, tá hesar upplýsingar eru partur av einum máli um kanning av vanlukku ella hending á sjónum, ið enn er til viðgerðar.
+Stk. 4. Ásetingin í stk. 3 er bara galdandi, inntil ein endalig frágreiðing fyriliggur, ella avgerð er tikin um, at ein slík frágreiðing ikki skal gerast.
+Stk. 5. Upplýsingarnar, nevndar í stk. 1, kunnu latast víðari og nýtast til annað endamál enn kanningina, um týðandi samfelagslig atlit tala fyri hesum.

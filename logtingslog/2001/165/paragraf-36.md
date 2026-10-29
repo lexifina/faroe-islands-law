@@ -1,0 +1,3 @@
+§ 36. [^1] Eftir áheitan frá øðrum landi kann Sjóvinnustýrið banna skipi at leggja inn í føroyska havn, hevur skipið ikki kravd ISM-loyvisbrøv, ella hevur tað brotið reglurnar um siglingarbann í viðkomandi landi.
+Stk. 2. [^1] Hevur Sjóvinnustýrið bannað skipi at leggja inn í føroyska havn, kann loyvi kortini verða givið tí at koma í ávísa havn, um tað hevur vanda fyri mannalívi ella havdálking við sær, heldur skipið fram at sigla. Sama er galdandi, um avgerandi trygdartiltøk krevja tað.
+Stk. 3. Bann at leggja inn í havn verður tikið av, tá tey viðurskifti, ið førdu til bannið, eru rættað, jbr. tó § 47, stk. 4.

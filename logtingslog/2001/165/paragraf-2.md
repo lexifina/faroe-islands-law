@@ -1,0 +1,5 @@
+§ 2. Landsstýrismaðurin er hægsti fyrisitingarligi myndugleiki sambært hesi lóg, jbr. tó § 42, stk.1.
+Stk. 2. [^1] [^2] Landsstýrismaðurin kann leggja tær heimildir, hann hevur sambært lógini, til Sjóvinnustýrið at fyrisita. Reglur, sum Sjóvinnustýrið ásetir sambært hesum heimildum, skulu kunngerast í Kunngerðablaðnum sum kunngerð frá Sjóvinnustýrinum.
+Stk. 3. [^1] Landsstýrismaðurin kann í serstøkum førum leggja sínar heimildir sambært lógini til aðrar almennar myndugleikar enn Sjóvinnustýrinum at fyrisita.
+Stk. 4. [^1] [^3] Sjóvinnustýrið umsitur lógina og hevur umsjón við, at lógin eins og reglur, boð og forboð, givin sambært lógini, verða hildin, jbr. tó stk. 3. Sjóvinnustýrið hevur somuleiðis umsjón við, at viðurskifti, fevnd av ILO sáttmálanum um starvsviðurskifti hjá sjófólki (MLC) og ILO sáttmála 188 um starvsviðurskifti hjá sjófólki við fiskiskipum, sum eru ásett í ella sambært hesi lóg, ella í aðrari lóggávu, verða hildin, sbr. tó stk. 3.
+Stk. 5. [^1] Landsstýrismaðurin kann eftir avtalu við avvarðandi landsstýrismann áseta reglur um, at Sjóvinnustýrið skal samstarva við aðrar almennar myndugleikar.

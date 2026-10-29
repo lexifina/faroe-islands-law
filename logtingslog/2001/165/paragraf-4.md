@@ -1,0 +1,2 @@
+§ 4. [^1] Sjóvinnustýrið hevur heimild at krevja, at viðurskifti, ið eru í stríð við lógina, fyriskipanir ella avgerðir sambært lógini, skulu fáast í rættlag beinanvegin ella eftir nærri ásettari freist.
+Stk. 2. [^1] [^3] Sjóvinnustýrið hevur somuleiðis heimild at krevja, at viðurskifti, ið eru í ósamsvari við ILO sáttmálan um starvsviðurskifti hjá sjófólki (MLC) ella ILO sáttmála 188 um starvsviðurskifti hjá sjófólki við fiskiskipum, og sum eru ásett í ella sambært hesi lóg, ella í aðrari lóggávu, skulu fáast í rættlag beinanvegin ella eftir nærri ásettari freist.

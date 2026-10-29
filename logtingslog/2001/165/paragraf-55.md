@@ -1,0 +1,1 @@
+§ 55. Á sama hátt, sum ásett í § 49, verður tann revsaður, sum tilætlað ber seg undan starvi sínum við ikki at koma rættstundis umborð ella fara av skipinum, visti hann, ella átti hann at vita, at rýmingin fór at seta mannalív ella skip í váða.

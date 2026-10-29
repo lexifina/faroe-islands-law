@@ -1,0 +1,2 @@
+§ 7. Landsstýrismaðurin kann áseta reglur um skipasmíð, útgerð, støðufesti, farmamerki, fríborðsmerki og flottøl.
+Stk. 2. [^1] Landsstýrismaðurin kann áseta reglur um trygdar-, bruna- og bjargingarskipanir umborð, um heilsuviðurskifti og reinføri, um fyribyrging fyri havdálking, um útbúgving teirra, ið hava ábyrgd av sjúkraviðgerðini, um kanningar av heilsuumhvørvi og um skyldurnar hjá reiðara og øðrum arbeiðsgevarum í hesum sambandi.

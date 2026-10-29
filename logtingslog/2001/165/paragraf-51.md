@@ -1,0 +1,1 @@
+§ 51. Á sama hátt, sum ásett í § 49, verður tann skipari revsaður, ið grovliga ella ferð eftir ferð siglir skipið ella vanrøkir tað á ein hátt, ið stríðir móti góðum sjómansskapi, ella letur vera við at kunna seg um tey forboð og tær fyriskipanir, ið galda fyri sigling á teimum leiðum, siglt verður og har lagt verður at landi.

@@ -1,0 +1,2 @@
+§ 23. Landsstýrismaðurin kann áseta reglur um, at øll skip, ið eru 24 metrar og longri, skulu vera í góðkendum klassafelagi.
+Stk. 2. Hetta er tó ikki galdandi fyri skip, styttri enn 45 metrar, sum vóru føroysk, tá lógin kom í gildi, og sum ikki vóru í góðkendum klassafelagi. Reglurnar í stk. 1 eru heldur ikki galdandi fyri skip, ið eru styttri enn 45 metrar, og sum seinni verða skrásett í føroyskari skipaskrá, í teimum førum tá bindandi keyps- ella byggisáttmáli var gjørdur av føroyskum reiðara, tá ið lógin kom í gildi.

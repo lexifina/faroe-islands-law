@@ -1,0 +1,1 @@
+§ 50. Á sama hátt, sum ásett í § 49, verður tann revsaður, ið av grovum vansketni ella grovari vanrøkt í starvinum veldur, at skip fer á land ella gongur burtur ella veldur aðra sjóvanlukku. Sama er galdandi, um viðkomandi ferð eftir ferð er atvold til tílíka hending orsakað av mistaki ella vansketni.

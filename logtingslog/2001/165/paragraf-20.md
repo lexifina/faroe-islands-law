@@ -1,0 +1,2 @@
+§ 20. [^1] Stjórin fyri Sjóvinnustýrið, skipasýnsfólk og annað starvsfólk hjá eftirlitinum hava ikki loyvi at taka lut í nøkrum reiðaravirksemi ella virksemi, ið hevur við skipabygging, skipaumvæling ella sølu av skipaútgerð v.m. at gera ella vera limir í stjórn ella nevnd í feløgum, ið fáast við tílíkt virksemi. Eiheldur er loyvt teimum at átaka sær lønað starv fyri tílíkt virksemi.
+Stk. 2. Í aðrar mátar er kapittul 2 í fyrisitingarlógini galdandi.

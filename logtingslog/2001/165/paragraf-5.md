@@ -1,0 +1,1 @@
+§ 5. Á hvørjum ári gevur landsstýrismaðurin Løgtinginum frágreiðing um støðuna viðvíkjandi trygd á sjónum og ætlanir sínar á økinum. Saman við frágreiðingini letur hann Løgtinginum fullfíggjað yvirlit yvir tær reglur, ið settar eru í gildi síðan seinastu frágreiðing.

@@ -1,0 +1,1 @@
+§ 26. Tann, ið stendur fyri arbeiðinum umborð, skal síggja til, at manningin er neyðturviliga vard móti vanlukkum og heilsuskaða, og skal við leiðbeining og eftirliti tryggja, at arbeiðið verður gjørt á tryggan hátt við atliti til vanlukku- og heilsuvandan.

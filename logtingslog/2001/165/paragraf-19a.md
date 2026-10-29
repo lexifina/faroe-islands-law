@@ -1,0 +1,4 @@
+§ 19 a. [^5] Teir í § 19 nevndu persónar hava í sambandi við kanningar av vanlukkum og øðrum hendingum á sjónum rætt til at gera mátingar, royndir, tøkniligar kanningar og endurskapa hendingar o.a. við tí endamáli at fáa greiðu á orsøkini til eina vanlukku ella hending á sjónum.
+Stk. 2. Um neyðugt fyri kanningararbeiðið, kann Sjóvinnustýrið geva skipi boð um, at skipið skal koma til lands, ella at tað ikki skal sigla víðari, fyrr enn arbeiðið í sambandi við kanning av vanlukku ella hending á sjónum er framt.
+Stk. 3. Sjóvinnustýrið kann taka avgerð um, at vrak og vraklutir ikki verða burturbeindir, fluttir ella líknandi, fyrr enn neyðugu kanningarnar eru gjørdar.
+Stk. 4. Sjóvinnustýrið skal skipa soleiðis fyri, at afturhald av skipi ikki verður longur enn neyðugt, og at arbeiðið umborð ikki verður tarnað óneyðugt.

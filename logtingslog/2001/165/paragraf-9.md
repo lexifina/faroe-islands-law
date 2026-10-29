@@ -1,0 +1,1 @@
+§ 9. Landsstýrismaðurin kann áseta reglur um, hvørjar lógir, kunngerðir, fyriskipanir, hvørji loyvisbrøv og hvørjar skipsbøkur, undir hesum dagbøkur, sjókort, v.m. og tilbúgvingarætlanir í sambandi við fyribyrging fyri dálking frá skipum, eins og hvørjar løggildar sýnsbøkur, reglur um nýtslu av teimum, og hvørji uppsløg skulu vera umborð.
