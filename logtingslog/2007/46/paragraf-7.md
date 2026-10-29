@@ -1,0 +1,2 @@
+§ 7. Lýkur kavari ikki tey ásettu heilsukrøvini, gerst vinnukavarabrævið ógildað og kann tí verða tikið aftur av Arbeiðseftirlitinum. Sama er galdandi, um kavari noktar at lata seg kanna umaftur sambært § 6.
+Stk. 2. Vinnukavarabrævið kann verða tikið aftur fyri eitt ávíst tíðarskeið upp til 5 ár ella endaligt. Við avgerðini um at taka vinnukavarabrævið aftur skal fylgja kunning um rættin hjá viðkomandi persóni, at fáa afturtøku av vinnukavarabrævi roynda í rættinum og um freist fyri hesum sbrt. § 8, stk. 1.

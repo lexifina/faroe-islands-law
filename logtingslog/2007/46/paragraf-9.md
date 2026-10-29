@@ -1,0 +1,3 @@
+§ 9. Eitt vinnukavarabræv, sum er tikið aftur, skal latast Arbeiðseftirlitinum.
+Stk. 2. Arbeiðseftirlitið kann, eftir umsókn, nær tað skal vera lata vinnukavara eitt vinnukavarabræv aftur, sum er tikið sbrt. § 7, stk. 1, tá umstøðurnar fyri at taka vinnukavarabrævið ikki longur kunnu metast at vera til staðar.
+Stk. 3. Verður umsókn um at fáa vinnukavarabrævið aftur ikki gingin á møti, kann umsøkjarin krevja avgerðina lagda fyri rættin. Er mál um at fáa vinnukavarabrævið aftur fyrr lagt fyri rættin, kann málið einans leggjast aftur fyri rættin, um so er, at tað í minsta lagi er gingið 1 ár síðani, at afturtøkan seinast varð staðfest við dómi. § 7, stk. 2, 2. pkt. og § 8, stk. 2, galda samsvarandi.

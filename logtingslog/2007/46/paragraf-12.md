@@ -1,0 +1,1 @@
+§ 12. Landsstýrismaðurin kann áseta reglur viðvíkjandi persónum, sum hava útlendskt vinnukavarabræv, at útinna kavaraarbeiði sbrt. § 1, stk. 1, nr. 1 og 2, tá persónurin ikki hevur eitt føroyskt vinnukavarabræv.

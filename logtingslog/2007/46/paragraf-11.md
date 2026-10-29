@@ -1,0 +1,2 @@
+§ 11. Landsstýrismaðurin ásetir í kunngerð nærri reglur um útinnan av kavaraarbeiði á tryggan hátt fyri kavara og um bjarging av kavarum, harundir um skyldur hjá arbeiðsgevara um skipan av kavaraarbeiði og um kavaradagbøkur.
+Stk. 2. Arbeiðstíðin hjá kavarum skal skipast soleiðis, at í hvørjum samdøgri, roknað frá tí at arbeiði byrjar, skulu kavarar hava eina hvíldartíð, ið er minst 11 samfeldar tímar, bæði tá kavað verður frá landi og frá skipi.

@@ -1,0 +1,3 @@
+§ 18. Landsstýrismaðurin kann í sambandi við serligar kavarauppgávur áseta nærri reglur, ið víkja frá ásetingunum í kapittul 2. Í tí sambandi skal takast atlit til slag av kavarauppgávu og trygdar- og heilsuviðurskiftini við at fremja uppgávuna.
+Stk. 2. Arbeiðseftirlitið kann í serligum føri, tá talan er um kavarauppgávur, sum eru bráðneyðugar, loyva at vikið verður frá ásetingunum í § 2, stk. 1 og § 15 tó soleiðis, at atlit verður tikið til trygdar- og heilsuligu viðurskiftini við at fremja uppgávuna.
+Stk. 3. Landsstýrismaðurin kann í kunngerð áseta neyvari reglur um, nær ein hending er so álvarsom, at bráðneyðug hjálp er neyðug, somuleiðis reglur fyri hvørji trygdar- og heilsulig atlit skulu takast.

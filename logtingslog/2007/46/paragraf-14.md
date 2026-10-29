@@ -1,0 +1,1 @@
+§ 14. Landsstýrismaðurin kann í teimum reglum, ásettar verða eftir § 13, stk. 2, áseta, at kavaraútgerðin skal vera CE merkt og skal lúka krøvini, sum eru galdandi í viðkomandi ES-fyriskipanum viðvíkjandi kavaraútgerð.

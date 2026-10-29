@@ -1,0 +1,3 @@
+§ 8. Tann, sum fær vinnukavarabræv tikið aftur kann krevja, at afturtøkan verður løgd fyri Føroya Rætt til avgerðar. Áheitan um hetta skal fráboðast Arbeiðseftirlitinum innan 4 vikur eftir, at viðkomandi hevur fingið fráboðan um avgerðina at taka vinnukavarabrævið.
+Stk. 2. Tá tann, sum fær vinnukavarabrævið tikið aftur, krevur, at afturtøkan verður løgd fyri rættin til avgerðar, skal Arbeiðseftirlitið leggja sakarmál móti viðkomandi, eftir tí borgarligu rættargangsskipanini.
+Stk. 3. Áheitan um at leggja avgerð sbrt. § 8, stk. 1 fyri rættin hevur steðgandi virknað. Arbeiðseftirlitið kann tó gera av, at ein áheitan hevur ikki steðgandi virknað. Eina tílíka avgerð kann rætturin við rættarúrskurði ógilda, áðrenn avgerð um spurningin at taka vinnubrævið aftur er avgreidd.
