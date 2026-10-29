@@ -1,0 +1,1 @@
+§ 17. Próvtøkunevndin sbrt. § 3, stk. 1 ger uppgávurnar til tær skrivligu royndirnar og setir upp evnini til tær munnligu royndirnar. Somuleiðis ger nevndin av, hvørjar lærubøkur og hjálparamboð kunnu nýtast, í sambandi við royndirnar.

@@ -1,0 +1,2 @@
+§ 18. Próvdøming av ávikavist roynd í kavaraástøði, kavaraútgerð og trygd, verður gjørd av tí lærara, sum hevur givið frálæru í viðkomandi lærugreinini, og einum próvdómara, ið er ein av limunum í próvtøku- og góðkenningarnevndini. Lærari og próvdómari geva hvør sítt próvtal.
+Stk. 2. Próvtøkunevndin kann tilnevna persón, sum hevur ástøðiligan og verkligan førleika til tess at geva frálæru og ella vera próvdómari.

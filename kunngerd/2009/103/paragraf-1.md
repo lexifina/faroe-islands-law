@@ -1,0 +1,1 @@
+§ 1. Kunngerðin fevnir um frálæru og próvroynd fyri vinnukavarar, frá kavaraskúlum ella frá kavaraskeiðum, sum sbrt. § 2, stk. 1 veita kavaraútbúgving frá kavarafrálærustovni við góðkenning sbrt. § 2, stk. 2, sbr. § 3, stk. 1.

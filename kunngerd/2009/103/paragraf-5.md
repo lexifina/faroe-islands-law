@@ -1,0 +1,1 @@
+§ 5. Treytin fyri at kunna verða tikin inn á ein kavaraskúla ella karavaskeið, ið veitir frálæru í skering/sveising, trýstspuling og spreinging er, at kavarin hevur vinnubræv sum kavari við luftveitan frá landi.
