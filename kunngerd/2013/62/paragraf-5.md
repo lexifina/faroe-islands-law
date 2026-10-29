@@ -1,0 +1,1 @@
+§ 5. Grunnurin ger skrivliga mannagongd, sum skal fylgjast í sambandi við viðgerð av umsókn um lán. Upplýsingar og metingar, sum liggja til grund fyri endaligari støðutakan til lániumsókn, skulu skjalfestast.
