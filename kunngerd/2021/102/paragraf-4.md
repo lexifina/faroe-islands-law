@@ -1,0 +1,2 @@
+## Bygnaður og innihald
+§ 4. Útbúgvingin tekur 4 ár og er skipað sum ein 4-ára bachelorútbúgving. Hvørt lestrarár telur 60 ECTS-stig, samanlagt 240.
