@@ -1,0 +1,2 @@
+§ 5. Verður eitt sjófólk undir tænastuni umborð greið yvir, at hon er við barn, og ynskir hon at nýta rættin til at fara av eftir § 2, skal hon skjótast gjørligt boða skiparanum frá, nær hon ynskir at fara úr tænastuni.
+Stk. 2. Tá skiparin fær at vita, at eitt sjófólk er við barn, skal hann geva henni møguleika til at fara til lækna til neyðuga barnsburðarkanning í tí fyrstu havnini, har hetta ber til. Harafturat áliggur tað skiparanum, í tann mun hetta ber til áðrenn barnsburðarkanningina, at kunna sjófólkið um farleiðirnar hjá skipinum.

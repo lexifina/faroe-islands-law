@@ -1,0 +1,2 @@
+§ 2. Eitt sjófólk hevur rætt til at krevja at sleppa av, tá tað við fyriliti fyri henni sjálvari, føðingini ella barninum verður mett neyðugt, at tænastan heldur uppat.
+Stk. 2. Sjófólk kann krevja at sleppa av, tá fjóðri viðgongumánaðurin er av, um framhaldandi tænasta umborð hevur við sær, at hon ikki regluliga kann fara til neyðugar læknakanningar. Sjófólk kann altíð krevja at sleppa av, tá sætti viðgongumánaðurin er runnin.
