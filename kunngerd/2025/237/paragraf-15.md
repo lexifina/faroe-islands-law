@@ -1,0 +1,2 @@
+## Landing og innviging
+§ 15. Hóast ásetingarnar í kunngerð um landingar og avreiðingar av fiski og fiskavørum og kunngerð um avreiðing av feskum uppsjóvarfiski at frysta ella meirvirka í Føroyum skal allur fiskur og øll fiskavøra vigast, tá veiða sambært hesi kunngerð fer um eina innvigingarskipan, undantikið, tá veiðan verður goymd í kørum ella kassum umborð og undantikið, tá veiðan verður fryst og pakkað umborð.

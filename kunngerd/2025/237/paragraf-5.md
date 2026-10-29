@@ -1,0 +1,2 @@
+§ 5. [^1] Av kvotuni sambært § 3, stk. 1 verða 2.249 tons latin øðrum enn teimum í § 4 nevndu, sum í 2009 høvdu rætt til at fiska uppsjóvarfisk í føroyskum sjógvi, ella teimum, sum hesin rættur seinni er fluttur til, og sum var í gildi 31. desember 2024. Fiskiskapurin verður skipaður við egnari árskvotu.
+Stk. 2. Kvota sambært stk. 1 kann fiskast í føroyskum sjógvi, í íslendskum sjógvi, í NEAFC-skipanarøkinum og í norskum sjógvi sambært §§ 10 og 11.
