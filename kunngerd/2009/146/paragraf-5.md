@@ -1,0 +1,1 @@
+§ 5. Doyr móttakari aftaná, at arbeiðsmarknaðareftirløn er útgoldin, men áðrenn mánaðurin, sum eftirløn er fyri, er byrjaður, verður eftirlønin ikki afturkravd. Er eftirlønin útgoldin aftaná, at móttakarin er deyður, verður eftirlønin afturkravd.

@@ -1,0 +1,1 @@
+§ 3. Bústaðartíðin í Føroyum verður roknað í árum og mánaðum, sum persónurin hevur verið skrásettur í fólkayvirlitinum í Føroyum við føstum bústaði í Føroyum, tó í mesta lagi 40 ár, lækkað niður til næsta heila tal av árum.
