@@ -1,0 +1,1 @@
+§ 5. Rættindini í fiskiloyvinum til hvørt øki, sambært § 2, verða latin sum egin árskvota, tó undantikið økið sambært § 2, nr. 7, har rættindini í fiskiloyvinum verða latin sum felagskvota við hámarki. Hámarkið er tað hámark, sum er ásett í fiskiloyvinum fyri fiskiárið 2019 ella fiskiárið, báturin seinast hevði fiskiloyvi.
