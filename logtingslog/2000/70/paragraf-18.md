@@ -1,0 +1,2 @@
+§ 18. Tá Arbeiðseftirlitið krevur tað, ella um viðurskiftini annars tala fyri tí, skal arbeiðsgevarin seta í verk kanningar, royndir og ástaðareftirlit, og møguliga boðsenda sakkønari hjálp fyri at tryggja sær, at arbeiðsviðurskiftini, hvat trygd og heilsu viðvíkur, eru fullgóð.
+Stk. 2. Arbeiðseftirlitið kann til hagfrøðiliga nýtslu, krevja upplýsingar frá arbeiðsgevara um viðurskifti, sum hava arbeiðsumhvørvisligan týdning. Í teimum førum, har hesi hagtøl verða almannakunngjørd, mugu nøvn ella fyritøkur ikki nevnast.

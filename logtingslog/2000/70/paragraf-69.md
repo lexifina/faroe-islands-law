@@ -1,0 +1,1 @@
+§ 69. Tá ung undir 18 ár verða sett í arbeiði, sum er í stríð við reglurnar í hesi lóg ella tær ásetingar, sum eru lýstar at galda eftir hesi lóg, kann tann, sum hevur foreldramyndugleikan, verða sektaður, um so er, at viðkomandi er vitandi um, at arbeiðið er farið fram.

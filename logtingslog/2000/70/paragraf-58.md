@@ -1,0 +1,3 @@
+§ 58. Øll, sum sambært lógini hava álagdar skyldur, skulu eftir áheitan geva Arbeiðseftirlitinum allar upplýsingar, ið neyðugar eru fyri virkið hjá eftirlitinum.
+Stk. 2. Eftirlitsfólk hjá Arbeiðseftirlitinum hava til eina og hvørja tíð myndugleika til uttan rættarúrskurð at kanna almenn og privat virki, tó treytað av, at tey kunna prógva, hvørji tey eru. Um neyðugt, hjálpir løgreglan í hesum sambandi til.
+Stk. 3. Eftirlitsfólkini hjá Arbeiðseftirlitinum kunnu eisini uttan rættarúrskurð krevja atkomilig skjøl útflýggjað, taka fotomyndir og taka ávísar royndir til nærri kanningar. Arbeiðsgevarin ella umboðsmaður hansara skulu hava fráboðan um hetta.

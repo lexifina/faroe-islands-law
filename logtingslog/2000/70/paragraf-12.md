@@ -1,0 +1,2 @@
+§ 12. Á virkjum og arbeiðsplássum, sum eru undir hesi lóg, skulu eftir Arbeiðseftirlitsins ætlan vera tørvandi ráð til handa til fyrstuhjálp í vanlukkutilburði, eins og eftirlitið kann treyta tilgerð av serstakari skaðastovu á størri virkjum, um mett verður, at tørvur er á hesum.
+Stk. 2. Á arbeiðsplássum, har fleiri enn 20 fólk starvast, kann Arbeiðseftirlitið krevja, at góðkendar børur eru til taks, og at minst eitt fólk hevur tikið eitt av Arbeiðseftirlitinum góðkent skeið í fyrstuhjálp.

@@ -1,0 +1,1 @@
+§ 62 a. [^1] Landsstýrismaðurin kann leggja heimildir sínar eftir lógini til Arbeiðseftirlitið at fyrisita. Reglur, sum Arbeiðseftirlitið ásetur sambært hesum heimildum, verða kunngjørdar í Kunngerðablaðnum.

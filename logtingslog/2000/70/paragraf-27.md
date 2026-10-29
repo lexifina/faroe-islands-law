@@ -1,0 +1,1 @@
+§ 27. Allar maskinur, sum verða útflýggjaðar ella sýndar fram, skulu vera merktar við navninum á framleiðaranum. Verða maskinurnar innfluttar, skal navn og bústaður innflytarans ella annað frámerki standa á maskinunum, soleiðis at eingin ivi er um, hvør er framleiðari ella innflytari.

@@ -1,0 +1,1 @@
+§ 60. Arbeiðsgevarin skal, tá ið Arbeiðseftirlitið krevur tað, síggja til, at ein eftirlitsbók er til taks á hvørjum arbeiðsplássi. Eftirlitið skal her føra viðmerkingar um útint eftirlit, og skulu eftirlitsfrágreiðingar og annars øll skrivlig boð frá Arbeiðseftirlitinum goymast her. Arbeiðseftirlitið ásetir annars, hvussu eftirlitsbókin skal nýtast og goymast.

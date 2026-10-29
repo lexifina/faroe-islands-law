@@ -1,0 +1,1 @@
+§ 10. Landsstýrismaðurin kann áseta nærri reglur um, at virki skulu síggja til, at latin verður sakkøn hjálp, sum, í sambandi við trygdararbeiði, skal ganga til handa, tá viðurskiftini viðv. trygdini ella heilsuni hjá arbeiðsfólkunum tala fyri hesum.

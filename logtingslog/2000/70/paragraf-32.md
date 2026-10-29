@@ -1,0 +1,1 @@
+§ 32. Eru serlig viðurskifti, kann landsstýrismaðurin áseta reglur ella fremja avgerðir, sum víkja frá krøvunum í grein 26-30. Slíkar avgerðir kunnu eisini í ávísum førum, um serlig viðurskifti tala fyri tí, takast av Arbeiðseftirlitinum.

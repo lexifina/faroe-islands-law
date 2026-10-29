@@ -1,0 +1,2 @@
+§ 25. Tey, sum hava starv sítt á einum arbeiðsplássi, har fleiri arbeiðsgevarar hava tey ymisku arbeiðini um hendi, skulu geva seg undir tær reglur, sum eru galdandi fyri samstarv hjá virkjunum, samanber §§ 16 og 33, umframt tær reglur, ið fevna um tað arbeiði, tey skulu útinna.
+Stk. 2. Tey, sum arbeiða á økinum hjá einum fremmandum virki, skulu geva seg undir tær reglur um trygd og heilsu, sum galdandi eru fyri nevnda virki, umframt tær reglur, ið fevna um tað arbeiði, tey skulu útinna.

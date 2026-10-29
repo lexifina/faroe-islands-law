@@ -1,0 +1,1 @@
+§ 44. Tá náttúruviðurskifti, vanlukkur, maskinbrek e.t. koma óvart á, og hava við sær, at ólag kemur í raksturin á virkinum, kunnu frávik gerast frá §§ 42 og 43 í tann mun, tað er avgerandi neyðugt, til regluligur rakstur aftur er fingin í lag. Frávikið skal skrivast í eftirlitsbókina ella annað líknandi skjal sbrt. § 60.

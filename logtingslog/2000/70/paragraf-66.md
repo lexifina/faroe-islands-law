@@ -1,0 +1,1 @@
+§ 66. Í ásetingunum, sum eru lýstar galdandi sambært hesi lóg, kunna ásetast reglur um bøtur fyri brot á ásetingarnar og boð ella bann, sum eru sett eftir ásetingunum. Eisini kann ásetast, at ein arbeiðsgevari kann sektast við bót fyri brot á ásetingar, boð ella bann, sum frammanfyri nevnt, sjálvt um brotið ikki kann roknast gjørt við vilja ella av ósketni.

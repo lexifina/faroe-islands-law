@@ -1,0 +1,1 @@
+§ 65. Fyri brot á §§ 11-13, § 34, stk. 1, § 38, stk. 1, og § 40, stk. 1, umframt viðurskifti, sum eru fevnd av § 64, stk. 1, nr. 2 og 3, kann arbeiðsgevarin verða sektaður við bót, sjálvt um brotið ikki kann roknast gjørt við vilja ella ósketni.

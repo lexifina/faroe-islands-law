@@ -1,0 +1,2 @@
+§ 17. Arbeiðsgevarin hevur skyldu til at kunna trygdarumboðini og álitisfólkini innan viðkomandi arbeiðsøki, um tey boð, sum Arbeiðseftirlitið, ella tann í § 56 nevndi mynduleiki ella stovnur, skrivliga hevur fyrisett. Somu skyldu hevur arbeiðsgevarin mótvegis hinum trygdarumboðunum ella álitisfólkunum, sum ynskja at fáa kunnleika til tey givnu boðini.
+Stk. 2. Eru hvørki trygdarumboð ella álitisfólk á einum arbeiðsplássi, skulu tey, sum arbeiða á nevndu virkjum, vera kunnað um tey boð, sum umrødd eru í stk 1, 1. pkt.

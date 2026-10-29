@@ -1,0 +1,3 @@
+§ 57. Landsstýrismaðurin kann áseta reglur um fráboðanarskyldu av arbeiðsvanlukkum, eitringum, vinnuligum sjúkum og øðrum viðurskiftum av arbeiðsumhvørvisligum týdningi.
+Stk. 2. Tann, sum í arbeiði sínum fyri tað almenna, ella tann, ið fyri tað almenna umboðar onkran stovn og fær kunnleika um viðurskifti, sum bróta fyrisetingarnar í hesi lóg ella teimum reglum, sum við heimild í hesi lóg eru lýstar at galda, skal uttan dvøl boða Arbeiðseftirlitinum frá hesum.
+Stk. 3. Verður ein lækni varugur við, ella fær frænir av, at onkur í arbeiði sínum hevur verið fyri skaðiligum árinum, skal hann beinanvegin siga Arbeiðseftirlitinum frá hesum. Landsstýrismaðurin í arbeiðsmarknaðarmálum kann áseta nærri reglur um hetta.
