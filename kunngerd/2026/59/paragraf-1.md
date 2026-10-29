@@ -1,0 +1,1 @@
+§ 1. Bilag 1, ið er listi A um alment vandamiklar sjúkur, í anordning 655 af 14. juni 2011 om ikrafttræden for Færøerne af lov om foranstaltninger mod smitsomme sygdomme og andre overførbare sygdomme, verður orðað sum ásett í skjali 1.
