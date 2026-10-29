@@ -1,0 +1,1 @@
+§ 8. Um treytirnar í § 2, stk. 1 ella § 3, stk. 1, eru loknar, uttan at umstøður, sum nevndar eru í §§ 6 ella 7 fyriliggja, skal læknin ávísa viðkomandi til sterilisatiónsviðgerð. Annars skal læknin leggja umsóknina fyri samráðið saman við sínum úttalilsi.

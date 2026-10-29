@@ -1,0 +1,2 @@
+§ 3. Kvinna kann verða steriliserað, tá ið viðurskifti bara ella einamest av læknaligum slag gera tað neyðugt at fyribyrgja, at kvinna gerst við barn, til tess at forða fyri vanda fyri lívi hennara ella vanda fyri, at heilsa hennara fer at versna álvarsliga og varandi.
+Stk. 2. Um treytirnar í stk. 1 eru loknar, kann hjúnafelagin ella sambúgvin hjá viðkomandi í staðin fáa loyvi til sterilisatión, samanber tó § 4, stk. 3.

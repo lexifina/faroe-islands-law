@@ -1,0 +1,1 @@
+§ 10. Landsstýrisfólkið ásetir nærri reglur um umsókn um sterilisatión og um viðgerð av málum um sterilisatión. Landsstýrisfólkið ásetir somuleiðis nærri reglur um ráðgeving og stuðulssamrøðu í sambandi við sterilisatión.

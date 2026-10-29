@@ -1,0 +1,8 @@
+## Sterilisatión, sum krevur loyvi
+§ 4. Um treytirnar í §§ 2 ella 3 ikki eru loknar, kann loyvi til sterilisatión verða givið til fólk, búsitandi í Føroyum, um:
+1) tað orsakað av ættarbregði hjá umsøkjaranum ella hjúnafelaganum ella sambúgvanum er slíkur vandi fyri, at møgulig børn fáa álvarsligar likamligar ella sálarligar sjúkur, at tað má metast at vera ynskiligt at fyribyrgja barnsburð,
+2) umsøkjarin ella hjúnafelagin ella sambúgvin orsakað av sálarsjúku ella øðrum sálarligum órógvi, veikari gávuføri, grovum lyndisfrávikum ella álvarsligari likamligari sjúku, ikki megna at hava umsorgan fyri børnum á fullgóðan hátt,
+3) tað av serligum orsøkum er týðandi vandi fyri, at umsøkjarin ella hjúnafelagin ella sambúgvin ikki megnar at fullføra viðgongutíðina, ella at barnið ikki verður lívført ella verður føtt við týðandi skaða, ella
+4) umstøðurnar, sum umsøkjarin og familjan liva undir, gera tað neyðugt at sleppa undan barnsburði. Tá ið avgerð verður tikin, skal atlit takast at heilsuviðurskiftum, bústaðarviðurskiftum og fíggjarligum viðurskiftum hjá familjuni umframt tali av børnum heima, og um fleiri børn væntandi fara at elva til munandi tyngjandi umstøður við viknaðari heilsustøðu hjá umsøkjaranum, munandi størri arbeiðsbyrðu ella á annan hátt.
+Stk. 2. Tá ið avgerð verður tikin um, hvørt sterilisatión kann verða loyvd, skal dentur leggjast á, hvørt umstøðurnar, ið tala fyri sterilisatión, kunnu roknast at vera av varandi slag. Eisini skal dentur leggjast á, um viðgongutíðin hóskandi kann fyribyrgjast á annan hátt.
+Stk. 3. Sterilisatión av persónum undir 18 ár kann ikki verða loyvd, uttan so at heilt serligar umstøður tala fyri tí.
