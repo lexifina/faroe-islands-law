@@ -1,0 +1,1 @@
+§ 5. Førari á fari, fevnt av hesi kunngerð, skal tryggja sær, at farið verður ført í samsvari við góðan sjómansskap, at mannalív á sjónum eru tryggjað á fullgóðan hátt og at farið verður ført í samsvari við trygdarvegleiðingina í skjali 4.

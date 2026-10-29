@@ -1,0 +1,1 @@
+§ 7. Før við dimensiónstali upp á 20 ella meira skulu, umframt ásetingarnar í hesi kunngerð, eisini lúka krøvini í skjali 2 og ásetingarnar í kunngerð frá Sjóvinnustýrinum um byggikrøv og útgerð o.a. til smærri vinnufør (Fráboðan F).

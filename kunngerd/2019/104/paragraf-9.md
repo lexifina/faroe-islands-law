@@ -1,0 +1,2 @@
+§ 9. Treytað av, at tað við royndum ella á annan hátt er prógvað at vera minst líka gott sum tað, ið verður kravt sambært hesi kunngerð, kann Sjóvinnustýrið loyva, at onnur útgerð, tilhoyr, tilfar o.tíl. kann brúkast umborð, eins og onnur tiltøk enn tey, sum verða kravd eftir hesi kunngerð, kunnu verða sett í verk.
+Stk. 2. Sjóvinnustýrið góðtekur royndir, ið verða gjørdar av viðurkendum rannsóknarstovnum, undir hesum rannsóknarstovnum í ES ella EØS-londum, og sum geva eina hóskandi tekniska, fakliga og óhefta góðskutrygd.

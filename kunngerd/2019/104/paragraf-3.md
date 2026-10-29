@@ -1,0 +1,1 @@
+§ 3. Reiðarin á farinum skal syrgja fyri, at farið verður brúkt samsvarandi góðum sjómansskapi, at mannalív á sjónum eru tryggjað á fullgóðan hátt, og at farið er mannað, konstruerað, útgjørt og hildið við líka soleiðis, at farið er egnað til endamálið.
