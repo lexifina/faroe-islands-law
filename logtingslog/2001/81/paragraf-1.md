@@ -1,0 +1,1 @@
+§ 1. Til at styrkja og fjøltátta føroyskt vinnulív og menna burðardyggar føroyskar fyritøkur verður Vinnuframagrunnur settur á stovn. Grunnurin skal virka samsvarandi vinnupolitikki landsins og annars innan tær avmarkingarnar, ið settar verða í hesari lóg, og tær avmarkingar, ið altjóða samvinnulag til eina og hvørja tíð natúrliga setir.
