@@ -1,0 +1,3 @@
+## Fiskiskapur uttan fyri verandi fiskileiðir
+§ 6. Botnfiskiskapur uttan fyri verandi fiskileiðir kann bert fara fram sum royndarfiskiskapur við serstøkum loyvi frá Fiskimálaráðnum.
+Stk. 2. Eigari av fiskifari undir føroyskum flaggi, ið ætlar at royndarfiska sambært stk. 1, skal, í seinasta lagi seks mánaðir áðrenn royndirnar byrja, senda Fiskimálaráðnum skrivliga umsókn um loyvi sambært stk. 1. Í umsóknini skal ætlaði royndarfiskiskapurin lýsast gjølla við atliti at endamáli, tíðarætlan, reiðskapi, fiskaslagi, fiskileiðum, skráseting av veiði og upplýsingum um viðbreknar vistskipanir, ætlan um tiltøk fyri at sleppa undan at skaða viðbreknar vistskipanir á botni o.a.
