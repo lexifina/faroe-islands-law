@@ -1,0 +1,5 @@
+§ 2. Í útbúgvingunum til føðsluhjálpara og føðsluatstøðing fær næmingurin, lærlingurin, vitan og førleikar innan hesi kjarnaøki:
+1) Seta saman og gera føðslurættan og vælsmakkandi mat í einum køki á t.d. sjúkrahúsi, ellisheimi og røktarheimi, sambýli, kantinu, kaffistovu, skúla, dagstovni o.ø.,
+2) vitan um heilsu, matvørur, føðslu, sjúkraføðilæru, diætetik, reinføri og innaneftirliti, eins og umhvørvi í sambandi við tá ið lagt verður til rættis, avrikan, skjalfesting og góðskumeting av teimum arbeiðsuppgávum, ið eru tengd at matgerð og máltíðum við atliti at framleiðsluhátti, fyribyrging og heilsu,
+3) at leggja til rættis og á ergonomiskt rættan hátt matgera við støði í givnum fíggjarligum umstøðum, at borðreiða mat til ymiskar bólkar av brúkarum, ábyrgd fyri reinføri, innaneftirliti og góðskuni av matinum,
+4) samskifta munnligt og skrivligt til tess at fremja gott arbeiðsumhvørvi, styrkja samstarvið við samstarvsfelagar og brúkarar best møguligt, vera smidligur og menningarklárur, umframt at hava innlit í egnar styrkir og veikleikar viðvíkjandi læru og motivatión.

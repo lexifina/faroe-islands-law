@@ -1,0 +1,2 @@
+§ 21. Verkliga royndin er ein sjálvvald uppgáva, ið lærlingurin hevur viðgjørt í skrivliga svarinum. Sjálvvalda uppgávan inniheldur matgerð og borðreiðing av føðslurættari matarskrá.
+Stk. 2. Verkliga royndin inniheldur eisini eina bundna uppgávu, ið fevnir um matgerð av rætti, har grundleggjandi matgerðarhættir verða settir í miðdepilin. Lærlingurin fær í mesta lagi 30 minuttir til bundnu uppgávuna. Lærlingurin fær bundnu uppgávuna, tá verkliga royndin byrjar.

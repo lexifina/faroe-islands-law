@@ -1,0 +1,1 @@
+[^1]: Broytt við kunngerð nr. 125 frá 21. august 2017, har § 2 ljóðar soleiðis: “Henda kunngerð kemur í gildi dagin eftir, at hon er kunngjørd, og er galdandi fyri næmingar, lærlingar, sum byrja í skipanini skúlaárið 2017/2018 ella seinni.”
