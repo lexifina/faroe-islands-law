@@ -1,0 +1,2 @@
+§ 2. Skattakravið eftir § 1 fevnir einans um skyldugan skatt, sum er álíknaður, tá endaliga ársuppgerðin er gjørd, og sum ikki er goldin, tá søkt verður, og sum hevur samband við hækkingina, sum kært verður um og møguligar morarentur.
+Stk. 2. Gjaldfreistin kann einans leingjast fyri skattakrøv, sum verða kravd inn serstakt. Írestandi skattur sambært § 78, stk. 1 í skattalógni, sum verður mótroknaður eftir § 77 í skattalógini, er sostatt ikki fevndur av skattakravinum eftir § 1.

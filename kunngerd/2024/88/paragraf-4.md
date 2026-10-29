@@ -1,0 +1,1 @@
+§ 4. Avlopsskattur sambært § 79 og útgjøld sambært § 75 í skattalógini og afturgjald av mvg kunnu verða mótroknað í skattakravinum, sum hevur fingið longt gjaldfreistina, um so er, at fyrivarni er tikið um hetta, tá longda gjaldsfreistin varð játtað.

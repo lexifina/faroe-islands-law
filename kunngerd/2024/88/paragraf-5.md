@@ -1,0 +1,1 @@
+§ 5. TAKS tekur støðu til umsóknir um at fáa longt gjalds freistina av skattakrøvum sambært hesi kunngerð. Avgerðir hjá TAKS kunnu kærast til landsstýrismannin innan 4 vikur eftir, at skattgjaldarin hevur fingið fráboðan um avgerðina.

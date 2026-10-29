@@ -1,0 +1,1 @@
+§ 1. Skattgjaldari, sum hevur lagt mál fyri málsráðandi myndugleikan í einum av ríkjunum, sum er partur av viðkomandi sáttmála, hevur kært skattseting sambært skattalógini ella lagt skattsetingina fyri dómsvaldið, kann skrivliga søkja um at fáa longt gjaldfreistina av tí álíknaða skattakravinum og møguligum morarentum av hesum kravi.

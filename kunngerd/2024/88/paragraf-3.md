@@ -1,0 +1,1 @@
+§ 3. Skattakrøv, sum fáa longda gjaldfreist, skulu renturoknast sambært vanligu reglunum í skattalóggávuni. Játtanin um gjaldfreist kann verða treytað av, at skattgjaldarin veitir peningatrygd fyri skattakravinum. Játtanin um gjaldfreist verður givin fyri í mesta lagi 4 ár, men kann verða longd við nýggjari umsókn.
