@@ -1,0 +1,1 @@
+§ 4. Landsstýrismaðurin kann áseta nærri reglur fyri útrokningina av javningarprosentinum, harundir reglur, sum taka atlit til broytingar í hagtalsgrundarlagnum fyri útrokningina av javningarprosentinum.

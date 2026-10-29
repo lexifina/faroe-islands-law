@@ -1,0 +1,2 @@
+[^1]: Broytt við løgtingslóg nr. 145 frá 15. november 2021, har § 2 ljóðar soleiðis: “Stk. 1. Henda løgtingslóg kemur í gildi dagin eftir, at hon er kunngjørd. Stk. 2. Hóast freistina í § 3, stk. 1 í løgtingslógini verður kunngerðin í 2021 við javningarprosentinum fyri 2022 kunngjørd, tá hendan løgtingslógin er komin í gildi.”
+[^2]: Broytt við løgtingslóg nr. 152 frá 30. oktober 2020, har § 2 ljóðar soleiðis: “Henda løgtingslóg kemur í gildi dagin eftir, at hon er kunngjørd og hevur virknað fyri javning av veitingum frá og við januar 2021.”
