@@ -1,0 +1,3 @@
+§ 3. Fráboðanin skal latast Vaktar- og Bjargingartænastuni.
+Stk. 2. Uttanfyri føroyskt sjóøki kann fráboðanin eisini latast avvarðandi myndugleikum í næsta strandalandi. Fráboðanir frá skipum og havstøðum skulu sendast um næstu radiostøð, ella á ein hátt, sum tryggjar skjótast møguliga avgreiðslu. Fráboðanir frá flogførum verða sendar gjøgnum ta flogferðslutænastueind, sum flogfarið til hvørja tíð hevur samband við.
+Stk. 3. [^1] Er fráboðan um teir í § 1, stk. 3 nevndu tilburðir send útlendskum myndugleikum, skal fráboðanin somuleiðis sendast Umhvørvisstovuni í seinasta lagi eina viku eftir, at dumpingin ella brenningin er framd.

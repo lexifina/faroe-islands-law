@@ -1,0 +1,1 @@
+§ 2. Havnamyndugleikin skal beinanvegin boða frá, um munandi útlát av olju ella skaðiligum flótandi evnum verða staðfest í havnini, herímillum útlát av skaðiligum evnum og tilfari, sum verður flutt innpakkað, og vandi er fyri havdálking.
