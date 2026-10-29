@@ -1,0 +1,1 @@
+§ 4. Landsstýrismaður kann gera avtalur, sum hava útreiðsluvirknað í seinni fíggjarárum, um tað er ein nátturlig fortreyt fyri einum skynsamum og framhaldandi rakstri, so sum avtalur um setanarviðurskifti, sáttmálar um húsaleigu, tænastusáttmálar, og loyvdar avtalur um langtíðarleigu, sbrt. § 17 í lógini.

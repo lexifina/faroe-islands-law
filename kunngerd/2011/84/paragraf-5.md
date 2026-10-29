@@ -1,0 +1,4 @@
+§ 5. Rakstrarjáttan verður játtað á høvuðskontustigi, sum er sundurliðað í undirkontur, herundir standardkontur. Henda sundurgreining er ikki bindandi, men vegleiðandi.
+Stk. 2. Rakstrarjáttan verður í fíggjarlógini sett upp sum nettoútreiðslujáttan. Er inntøkan hægri enn ætlað, kunnu verða hildnar fleiri útreiðslur, verður ikki farið út um nettoútreiðslujáttanina. Er inntøkan minni enn ætlað, hevur hetta við sær, at útreiðslurnar skulu skerjast samsvarandi, sbrt. § 16, stk. 1, í lógini.
+Stk. 3. Hóast rakstrarjáttan er ein nettoútreiðslujáttan, verða inntøkur og útreiðslur settar upp fyri seg í viðmerkingunum til játtanina (bruttoskrásetingarmeginreglan), um ikki landsstýrismaðurin í fíggjarmálum gevur loyvi til at víkja frá meginregluni, sbrt. § 16, stk. 2, í lógini.
+Stk. 4. Inntøkur, sum verða tiknar við undir rakstrarjáttan, skulu vera liður í vanliga rakstrarvirkseminum, og mugu sostatt ikki stava frá skattum o.t.

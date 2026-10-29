@@ -1,0 +1,1 @@
+§ 25. Vørur og tænastur, sum verða nýttar bæði av inntøkufíggjaða virkseminum og vanliga virkseminum, skulu skrásetast undir ávikavist inntøkufíggjað virksemi og vanligt virksemi samsvarandi veruligu nýtsluni.

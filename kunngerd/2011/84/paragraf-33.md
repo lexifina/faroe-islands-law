@@ -1,0 +1,1 @@
+§ 33. Vørur og tænastur, sum verða nýttar bæði av stuðulsfíggjaða virkseminum og vanliga virkseminum, skulu skrásetast undir ávikavist stuðulsfíggjað virksemi og vanligt virksemi samsvarandi veruligu nýtsluni.

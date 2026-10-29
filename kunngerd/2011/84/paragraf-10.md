@@ -1,0 +1,4 @@
+§ 10. Landsstýrismaðurin í fíggjarmálum skal góðkenna allar setanir og umflokkingar av tænastumannastørvum í lønarflokki 37 ella hægri. Hetta er eisini galdandi fyri aðrar setanir og umflokkingar, har lønarstigið er samsvarandi lønarflokki 37 ella hægri hjá tænastumonnum landsins.
+Stk. 2. Hóast eitt starv er flokkað við serligari góðkenning, kann starvið verða sett í lægri lønarflokk.
+Stk. 3. Í viðmerkingunum til rakstrarjáttan skal vera eitt starvsfólkayvirlit, sum vísir lønarsamtøl og tal av ársverkum, sbrt. § 16, stk. 3, í lógini.
+Stk. 4. Eitt ársverk verður allýst sum tímatalið eitt starvsfólk eftir viðkomandi sáttmála skal arbeiða í einum fulltíðarstarvi í eitt ár. Tá ið ársverkini verða roknað sum brøkur, er teljarin samtalið fyri allar tímar arbeitt verður eftir viðkomandi sáttmála bæði hjá fast- og tímaløntum. Nevnarin er tímatalið eitt starvsfólk eftir viðkomandi sáttmála skal arbeiða í einum fulltíðarstarvi.

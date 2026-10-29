@@ -1,0 +1,1 @@
+§ 11. Stovnar, sum hava útreiðslur til tænastumannalønir, skulu útreiðsluføra eitt pensjónsavsetingargjald. Gjaldið er 15% av pensjónsgevandi lønini. Gjaldið verður roknað sum ein partur av lønarútreiðslunum og verður tikið við sum samsvarandi inntøka undir játtanini til tænastumannapensjónir.

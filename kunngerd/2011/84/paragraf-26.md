@@ -1,0 +1,1 @@
+§ 26. Lønarútreiðslur til starvsfólk, sum arbeiða bæði í inntøkufíggjaða virkseminum og vanliga virkseminum, verða skrásettar alt eftir, hvussu stóran part starvsfólkini hava arbeitt ávikavist í inntøkufíggjaða virkseminum og vanliga virkseminum.

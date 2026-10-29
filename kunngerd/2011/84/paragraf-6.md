@@ -1,0 +1,3 @@
+§ 6. Endamálið við rakstrarjáttanini skal vera lýst í viðmerkingunum til játtanina, har tað somuleiðis skal vera ávísing til møguliga lóggávu á økinum.
+Stk. 2. Fær stovnurin meira at ráða yvir, tí virksemið verður minni enn ætlað, ella tí at framdar verða stórar skynsemisbroytingar, er ikki loyvt at brúka ta hervið tøku játtanarupphæddina at betra um virksemisstigið í mun til upprunaliga ætlað við játtanini.
+Stk. 3. Eru góðar grundgevingar fyri tí, kann landsstýrismaðurin í fíggjarmálum tó loyva, at tøka játtanarupphæddin verður brúkt til at betra um virksemisstigið í mun til upprunaliga ætlað við játtanini.

@@ -1,0 +1,2 @@
+§ 3. Tað er ikki loyvt at gera avtalur um langtíðarleigu. Langtíðarleiga er í hesi merking, at váðar og fyrimunir, sum eru tengdir at ognarrættinum til ognina, verða fluttir frá útleigara til leigara. Í hesum føri er langtíðarleiga at rokna sum eitt keyp og skal verða viðgjørt samsvarandi.
+Stk. 2. Tó kunnu avtalur um langtíðarleigu verða gjørdar, um landsstýrismaðurin í fíggjarmálum metir, at slíkar avtalur hava munandi og eyðsýndar fyrimunir fyri landið.

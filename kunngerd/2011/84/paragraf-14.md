@@ -1,0 +1,1 @@
+§ 14. Reglurnar um landsfyritøkur verða nýttar, tá virksemið hjá almennum stovni í høvuðsheitum er vinnuligt, og tað tí er skilabest at geva leiðsluni størri møguleikar til at laga virksemið eftir marknaðarviðurskiftunum.

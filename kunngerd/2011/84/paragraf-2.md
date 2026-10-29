@@ -1,0 +1,1 @@
+§ 2. Undir gjøllari ásettum treytum kann serstakt virksemi verða tikið við undir rakstrarjáttan, útgreinað sum landsfyritøka, inntøkufíggjað virksemi ella stuðulsfíggjað virksemi. Reglurnar hesum viðvíkjandi eru at finna í kapittlunum 5-7.

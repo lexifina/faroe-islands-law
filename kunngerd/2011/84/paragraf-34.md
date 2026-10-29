@@ -1,0 +1,1 @@
+§ 34. Lønarútreiðslur til starvsfólk, sum arbeiða bæði í stuðulsfíggjaða virkseminum og vanliga virkseminum, verða skrásettar alt eftir, hvussu stóran part starvsfólkini hava arbeitt ávikavist í stuðulsfíggjaða virkseminum og vanliga virkseminum.
