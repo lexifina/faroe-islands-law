@@ -1,0 +1,3 @@
+§ 2. Innlatingarskyldan fyri upplýsingarskyldu sambært §§ 120 h og 120 j í skattalógini fyri rentur v.m., sum verða tilskrivaðar ella falla til gjaldingar í 1988, fellur burtur fyri álmanakkaárið 1988. Somuleiðis fellur innlatingarskyldan um skuld og áljóðandi virði, samanber 1. pkt. í 1988, burtur fyri álmanakkaárið 1988.
+Stk. 2. Reglurnar um innlatingarskyldu, samanber §§ 120 h og 120 j í skattalógini, fáa gildi fyri rentur v.m., sum verða tilskrivaðar ella falla til gjaldingar aftaná 31. desember 1988 og seinni ár. Fráboðan um skuld og áljóðandi skal fyrstu ferð latast inn pr. 31. desember 1989, og fyri seinni ár verður upplýst eftir reglunum í skattalógini.
+Stk. 3. Upplýsingarskyldan sambært stk. 2 fyri 1989 verður sambært reglunum í skattalógini.

@@ -1,0 +1,3 @@
+§ 1. Upplýsingarskyldan um rentur, sum eru tilskrivaðar ella góðskrivaðar í 1988 og somuleiðis fyri innistandandi á konti í 1988, samanber § 120 b í skattalógini, fellur burtur fyri 1988.
+Stk. 2. Reglurnar um upplýsingarskyldu, samanber § 120 b í skattalógini, fáa gildi fyri rentur, sum verða tilskrivaðar ella góðskrivaðar aftaná 31. desember 1988 og fyri seinni ár. Fráboðan um innistandandi skal fyrstu ferð latast um innistandandi við árslok í 1989, og fyri seinni ár verður upplýst eftir reglunum í skattalógini.
+Stk. 3. Upplýsingarskyldan sambært stk. 2 fyri 1989 verður eftir reglunum í skattalógini.

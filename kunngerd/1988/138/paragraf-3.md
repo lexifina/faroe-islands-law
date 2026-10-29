@@ -1,0 +1,1 @@
+§ 3. Upplýsingar sambært §§ 120 b, 120 h og 120 j í skattalógini, samanber eisini § 1 og § 2 í hesi kunngerð skulu latast Líkningarráðnum innan 20. januar. Upplýsingarnar fyri 1989 skulu sostatt latast Líkningarráðnum fyrstu ferð innan 20. januar 1990.
