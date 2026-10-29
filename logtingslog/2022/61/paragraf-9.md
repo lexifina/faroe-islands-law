@@ -1,0 +1,9 @@
+§ 9. Ásetingin í § 8 er ikki galdandi í niðanfyri nevndu førum:
+1) Um skattaálíkningin er ein avleiðing av, at grundarlagið fyri uppgerðini av tí skattskyldugu inntøkuni er broytt eftir, at inntøkuárið er úti.
+2) Um skattaálíkningin er ein avleiðing av einari skattaálíkning hjá tí skattskylduga fyri eitt annað inntøkuár.
+3) Um skattaálíkningin er ein avleiðing av einari skattaálíkning hjá hjúnafelaga, sum hin skattskyldugi var sambúgvandi við, tá inntøkuárið var úti, sbr. § 4 í løgtingslóg um landsskatt og kommunuskatt, viðvíkjandi tí sama ella øðrum inntøkuári.
+4) Um skattaálíkningin er ein avleiðing av, at higartil fylgd siðvenja er endaliga kolldømd av Føroya Kærustovni ella dómstólunum. Í slíkum føri kann skattaálíkningin takast uppaftur frá og við tí inntøkuári, sum varð roynt í tí fyrsta málinum, sum førdi til kolldømingina.
+5) Um ein útlendskur skattamyndugleiki hevur tikið eina avgerð, sum hevur skattligan týdning fyri skattskylduga. Hetta er tó bert galdandi, um TAKS viðurkennir avgerðina hjá útlendska skattamyndugleikanum.
+Stk. 2. Ásetingin í § 8, stk. 1 er ikki galdandi, um skattaálíkningin er ein avleiðing av, at hin skattskyldugi ella annar hansara vegna við vilja ella av stórum ósketni hevur verið atvold til, at skattamyndugleikin hevur gjørt eina skattaálíkning á einum skeivum ella ófullfíggjaðum grundarlagi.
+Stk. 3. Ein skattaálíkning kann einans gerast eftir stk. 1 og 2, um hon hevur við sær broytingar í álíknaðum skatti upp á kr. 5.000 ella meira.
+Stk. 4. Ein skattaálíkning kann einans gerast eftir stk. 1 og 2, um myndugleikin hevur fráboðað, ella skattgjaldarin hevur sett fram áheitan um uppafturtøku innan 6 mánaðir eftir, at myndugleikin ávikavist skattgjaldarin hevur fingið kunnleika til tey viðurskifti, sum grundgeva fyri fráboðanini ella áheitanina.

@@ -1,0 +1,6 @@
+§ 11. Ásetingin í § 10 er ikki galdandi í niðanfyri nevndu førum:
+1) Um broytta ásetingin er ein beinleiðis avleiðing av einum ásettum avgjaldi ella endurgoldnum avgjaldi hjá tí, sum hevur skyldu at gjalda ella hevur rætt til at fáa avgjald endurgoldið.
+2) Um uppgerðin er ein avleiðing av, at higartil fylgd siðvenja er endaliga kolldømd av Føroya Kærustovni ella dómstólunum. Í slíkum føri kann uppgerðin takast uppaftur frá og við tí avgjaldsári, sum varð roynt í tí fyrsta málinum, sum førdi til kolldømingina.
+Stk. 2. Ásetingin í § 10, stk. 1 er ikki galdandi, um uppgerðin er ein avleiðing av, at hin skattskyldugi ella annar hansara vegna við vilja ella av stórum ósketni hevur verið atvold til, at skattamyndugleikin hevur gjørt eina uppgerð á einum skeivum ella ófullfíggjaðum grundarlagi.
+Stk. 3. Ein áseting kann einans gerast eftir stk. 1 og 2, um hon hevur við sær eina broyting í áseting av gjøldum upp á kr. 5.000 ella meira.
+Stk. 4. Ein uppgerð kann einans gerast eftir stk. 1 og 2, um TAKS hevur fráboðað, ella tann, sum hevur skyldu at gjalda ella ynskir at fáa avgjald endurgoldið, hevur sett fram áheitan um uppafturtøku innan 6 mánaðir eftir, at TAKS ávikavist tann, sum hevur skyldu at gjalda ella ynskir at fáa avgjald endurgoldið, hevur fingið kunnleika til tey viðurskifti, sum grundgeva fyri fráboðanini ella áheitanina.

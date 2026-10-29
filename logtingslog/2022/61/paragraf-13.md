@@ -1,0 +1,3 @@
+§ 13. Í hesum førum kann bindandi svar um áseting av skatti einans verða givið, um fleiri biðja um svarið:
+1) Tá ið biðið verður um bindandi svar um áseting av skatti av gávu, skulu bæði gávugevari og gávumóttakari biðja um svarið.
+2) Tá ið biðið verður um bindandi svar um áseting av skatti, og viðurskiftini eru fevnd av § 37 a í løgtingslóg um landsskatt og kommunuskatt, ella um viðurskiftini millum høvuðspartaeigara og eitt felag, sum hesin hevur ræði á, skulu allir partar biðja um svarið. Tá ið avgjørt verður, um talan er um høvuðspartaeigara, verður lýsingin í § 13, stk. 3 í løgtingslóg um skatting av kapitalvinningi nýtt.

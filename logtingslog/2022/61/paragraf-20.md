@@ -1,0 +1,1 @@
+§ 20. Starvsfólk hjá TAKS kunnu ikki taka lut í kæruviðgerð hjá Føroya Kærustovni og kunnu heldur ikki virka sum serkønir ráðgevar hjá Føroya Kærustovni. Sama er galdandi fyri serkønar ráðgevar, ið TAKS hevur nýtt í tí máli, sum er kært.
