@@ -1,0 +1,1 @@
+§ 5 a. [^1] Landsstýrismaðurin kann eftir tilmæli Stiftsstjórnarinnar gera av, at tveir próstar skulu vera í sama próstadømi. Landsstýrismaðurin lutar tá, eftir tilmæli biskups, embætisskyldurnar próstanna millum og ger av, hvør teirra er limur í Próstadømisráðnum.
