@@ -1,0 +1,3 @@
+27. juni 2005 Nr. 95
+# Kunngerð um treytir fyri avreiðing í Føroyum og uttanlands, sum seinast broytt við kunngerð nr. 111 frá 11. desember 2014
+[^1] Við heimild í § 9, stk. 4, § 19 og § 40, stk. 2 í løgtingslóg nr. 28 frá 10. mars 1994 um vinnuligan fiskiskap, sum broytt við løgtingslóg nr. 58 frá 2. juni 1995, løgtingslóg nr. 84 frá 6. juni 1997, løgtingslóg nr. 69 frá 18. august 1998, løgtingslóg nr. 69 frá 23. mai 2005 og løgtingslóg nr. 11 frá 26. februar 2010, og við heimild í § 1, stk. 2 og § 3, stk. 2 í løgtingslóg nr. 29 frá 23. februar 1993 um almenna uppboðssølu av fiski, sum broytt við løgtingslóg nr. 92 frá 13. juni 1995 og løgtingslóg nr. 70 frá 25. mai 2005, verður ásett:
