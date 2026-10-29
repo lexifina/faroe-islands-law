@@ -1,0 +1,1 @@
+§ 1. Við heimild í løgtingslóg nr. 45 frá 29. juni 1972, § 48, 2. stk. og sambært sáttmála frá 30. mars 1974 ímillum Kaldbaks kommunu og Tórshavnar kommunu hevur landsstýrið gjørt av, at hesar kommunur verða lagdar saman frá 1. januar 1977 at rokna.
