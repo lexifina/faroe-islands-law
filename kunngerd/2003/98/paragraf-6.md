@@ -1,0 +1,2 @@
+§ 6. Útlendskar flutningseindir, sum verða nýttar til flutning av akvakulturdýrum til Føroya skulu verða góðkendar av embætisdjóralæknanum eftir reglunum í hesi kunngerð, áðrenn flutningurin byrjar.
+Stk. 2. Uttan mun til stk. 1 kann embætisdjóralæknin geva skrivligt loyvi til, at flutningseindir, sum eru góðkendar eftir tilsvarandi reglum uttanlands, kunnu verða nýttar til flutning av akvakulturdýrum til Føroya, tá skjalprógv eru fingin til vega.
