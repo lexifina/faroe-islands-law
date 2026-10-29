@@ -1,0 +1,2 @@
+§ 12. Til sveinaroyndarverkætlanina skal lærlingurin, einsamallur ella í bólki við í mesta lagi fýra lærlingum, planleggja, skjalfesta og byggja upp eitt kt-umhvørvi til eina fyritøku, stovn ella líknandi.
+Stk. 2. Verkætlanin skal í minsta lagi fevna um eitt netverk, ambætarafyrisiting og brúkarafyrisiting, trygdarloysnir og atgongdarstýring, skjalfesting av loysnini og fakliga grundgeving fyri valdum loysnum.
