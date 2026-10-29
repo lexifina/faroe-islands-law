@@ -1,0 +1,1 @@
+§ 11. Løgreglan og ákæruvaldið kunnu biðja Skráseting Føroya um upplýsingar úr skránni um trotabúsbann, tá tað er neyðugt í sambandi við rannsókn í einum máli, sum er meldað til løgregluna, ella í einum revsimáli.

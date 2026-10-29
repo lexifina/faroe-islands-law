@@ -1,0 +1,2 @@
+§ 12. Skiftirætturin kann biðja Skráseting Føroya um upplýsingar úr skránni um trotabúsbann, tá tað er neyðugt í sambandi við viðgerðina av málum í skiftirættinum.
+Stk. 2. Skiftirætturin kann eftir áheitan frá einum persóni, ið stendur fyri einari endurskipan, ella frá einum bústjóra biðja um og víðarilata upplýsingar úr skránni um trotabúsbann, tá ið skiftirætturin metir, at tað er neyðugt fyri, at persónurin, ið stendur fyri endurskipanini, ella bústjórin kunnu útinna sítt starv.

@@ -1,0 +1,1 @@
+§ 15. Skráseting Føroya kann, umframt tað, ið er ásett í §§ 8 og 10-12 um víðarilatan av persónsupplýsingum, bert víðarilata persónsupplýsingar úr skránni um trotabúsbann og úr søguliga dátugrunninum, um hetta er heimilað í lóg ella reglum, ið eru ásettar við heimild í lóg.

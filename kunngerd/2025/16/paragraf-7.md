@@ -1,0 +1,5 @@
+## Skráseting sum limur í leiðsluni
+§ 7. Skráseting Føroya tryggjar, at tann persónurin, sum er álagdur trotabúsbann, ikki verður skrásettur sum limur í leiðsluni í einari vinnufyritøku, sum er skrásett í kt-skipan Skráseting Føroya sambært vinnufelagalóggávuni, tryggingarlóggávuni ella peningastovnslóggávuni.
+Stk. 2. Verður trotabúsbann álagt einum persóni, verða verandi skrásetingar um persónin, sum limur í leiðsluni, strikaðar, sbr. stk. 1. Skráseting Føroya gevur gjøgnum Virkisskránna viðkomandi vinnufyritøku boð um hetta.
+Stk. 3. Um vinnufyritøkan, sbr. stk. 1, aftaná striking sambært stk. 2 av viðkomandi persóni, ikki hevur ta sambært lóg ella reglum, ið eru ásettar sambært lóg, neyðugu leiðsluna, verður mannagongd fyri avtøku, sum er galdandi fyri viðkomandi slag av fyritøku, sett í verk.
+Stk. 4. Limur í leiðsluni skal skiljast sum stjóri, nevndarlimur, limur í eftirlitsráðnum, avtøkustjóri, deildarstjóri, høvuðsumboð ella líknandi persónur, sum veruliga umsitur leiðsluheimildir, ella varafólk hjá hesum persóni.

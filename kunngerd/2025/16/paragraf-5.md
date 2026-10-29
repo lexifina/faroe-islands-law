@@ -1,0 +1,1 @@
+§ 5. Upplýsingar í skránni um eitt ávíst trotabúsbann verða ikki dagførdar, tá tvey ár eru gingin frá tí, at bannið endaði. Upplýsingarnar verða tá fluttar yvir í ein dátugrunn hjá Skráseting Føroya við søguligum upplýsingum.
