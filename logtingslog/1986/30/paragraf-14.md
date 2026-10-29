@@ -1,0 +1,1 @@
+§ 14. [^1] Í tí føri, at eitt virki verður steðgað í frítíðini, kann løntakari har, sum ikki eigur rætt til frítíð allar dagarnar, virkið er steðgað, ikki av steðginum krevja endurgjald út um ta frítíðarløn, sum viðkomandi eigur á eftir ásetingunum í hesari løgtingslóg.

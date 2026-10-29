@@ -1,0 +1,3 @@
+§ 8. [^2] Minst 24 dagar av frítíðini skulu gevast samanhangandi í tíðini 2. mai til 30. september (frítíðarskeiðið). Er løntakari uppsagdur, má tó uppsagnarfreistin í ongum føri skerjast við, at frítíðin verður løgd innan fyri uppsagnarfreistina.
+2. stk. [^2] Frítíð út yvir teir 24 dagarnar kann verða givin uttan fyri frítíðarskeiðið, tó seinast 1. mai árið eftir.
+Stk. 3. [^3] Fyri fólk, sum starvast á skipi ella í flogfari, kann frítíðin, tá viðurskiftini gera tað neyðugt, tó verða givin aðra tíð av árinum. Frítíðin skal falla, so skjótt skips- ella flogfarisstarvið loyvir tað, og taka við á tí degi, sum báðir partar semjast um.

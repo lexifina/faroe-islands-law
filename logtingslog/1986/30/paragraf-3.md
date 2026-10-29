@@ -1,0 +1,3 @@
+§ 3. [^1] Henda løgtingslóg viðvíkir ikki løntakara í almennum starvi, sum av landi, ríki, løgtingi ella kommunu hevur fingið vissað frítíð við løn, um so er, at landsstýrismaðurin metir viðkomandi skipan at veita løntakaranum ikki verri kor, enn fyriskipanirnar í hesi løgtingslóg tryggja.
+2. stk. [^1] Landsstýrismaðurin kann fyriseta, at lógin verður ikki at galda starv ella starvsøki, har við sáttmála ella fyriskipan er vissað løntakaranum frítíð við løn eftir reglum, sum bjóða ikki verri kor, enn fyriskipanirnar í hesi løgtingslóg.
+3. stk. [^1] Henda løgtingslóg minkar einki um víðari fevnandi frítíðarrætt sambært aðrari lóg ella fyriskipan eftir semju millum arbeiðsgevara og løntakara ella eftir gerðarrættardómi ella vanligum siði.

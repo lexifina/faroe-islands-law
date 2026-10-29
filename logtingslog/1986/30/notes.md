@@ -1,0 +1,6 @@
+[^1]: Broytt við løgtingslóg nr. 33 frá 24. mars 2022, har §§ 2 og 3 ljóða soleiðis: “§ 2, Stk. 1. Henda løgtingslóg kemur í gildi 1. apríl 2022, sbr. tó § 3. Stk. 2. Frá 1. apríl 2022 skal øll frítíðarløn verða rindað á frítíðarlønarkontu hjá TAKS. § 3, Stk. 1. Stuðul sambært umsókn til tiltøk, ið útvega løntakarunum frítíðarmøguleikar, sbr. § 21, stk. 3, í løgtingslógini og § 1 í kunngerð um virki og fyrisiting av frítíðargrunninum, sum Frítíðargrunnurin hevur játtað, men ikki útgoldið, tá ið løgtingslógin fær gildi, verður støðlaður á kontu hjá TAKS til og við 1. apríl 2023. Stk. 2. Játtaður stuðul, sum ikki er útgoldin 1. apríl 2023, fellur burtur, og peningurin verður fluttur Granskingarráðnum, sbr. § 21, stk. 2.”
+[^2]: Broytt við løgtingslóg nr. 75 frá 20. mai 1996.
+[^3]: Broytt við løgtingslóg nr. 70 frá 2. apríl 1993. § 2 í hesi løgtingslóg er tikin av við løgtingslóg nr. 75 frá 20. mai 1996 § 1, nr. 7.
+[^4]: Broytt við løgtingslóg nr. 56 frá 16. mai 2006, har § 2 ljóðar soleiðis: “Henda løgtingslóg fær gildi 1. juni 2006.”
+[^5]: Broytt við løgtingslóg nr. 67 frá 23. mai 1997, har § 2 ljóðar soleiðis: “Henda lóg fær gildi frá 1. januar 1998.”
+[^6]: Broytt við løgtingslóg nr. 40 frá 14. marts 1995, har § 2, stk. 2 ljóðar soleiðis: “Lógin fevnir eisini um frítíðarlønarkrøv, sum vóru greið til útgjaldingar 2. mai 1994.”
