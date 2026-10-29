@@ -1,0 +1,4 @@
+§ 16. Ein persónur kann melda seg til part A, B ella C í grannskoðarapróvtøkuni eftir § 5, stk. 2-4 í kunngerð nr. 4 frá 4. februar 2016 um próvtøku fyri løggildar grannskoðarar o.a., í tann mun hesir verða hildnir, sbr. stk. 2, um so er at viðkomandi innan gildiskomuna av hesi kunngerð hevur staðið ein ella fleiri av pørtunum A, B og C.
+Stk. 2. Partarnir A, B og C verða hildnir eina ferð árliga inntil árslok 2023. Partarnir verða ikki hildnir eftir 2023.
+Stk. 3. Tilmelding til ein ella fleiri av pørtunum A, B og C verður latin Skráseting Føroya, ið tekur avgerð um, hvussu umsóknir skulu latast inn. Tilmeldingin skal vera Skráseting Føroya í hendi í seinasta lagi 1. juni í viðkomandi ári.
+Stk. 4. Í seinasta lagi 15. januar 2023, verða dagfestingar fyri, nær próvtøkur verða hildnar í árinum, almannakunngjørdar á heimasíðuni hjá Skráseting Føroya.

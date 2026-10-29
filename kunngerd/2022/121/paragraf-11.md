@@ -1,0 +1,2 @@
+§ 11. Skráseting Føroya og Próvtøkunevndin kunnu, sambært § 31, stk. 5 í løgtingslógini, gera avtalu við Erhvervsstyrelsen og við Foreningen for Statsautoriserede Revisorer um samstarv í sambandi við próvtøkuhald og próvtøkudøming.
+Stk. 2. Verður samstarv skipað um próvtøkuhald og próvdøming eftir stk. 1, kunnu Skráseting Føroya og Próvtøkunevndin góðkenna eina próvtøku, sum er staðin gjøgnum teir í stk. 1 nevndu myndugleikar, um próvtøkan samsvarar við krøvini í § 8.

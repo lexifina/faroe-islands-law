@@ -1,0 +1,3 @@
+§ 17. Fyri próvtøkuna í parti A og B, er § 5, stk. 2 og 3, í kunngerð nr. 4 frá 4. februar 2016 um próvtøku fyri løggildar grannskoðarar o.a. galdandi.
+Stk. 2. Próvtøkan í parti C, ið varir í fýra tímar, skal fevna um økini, aðrar váttanir við trygd, sbr. § 1, stk. 2, í løgtingslógini, og aðrar váttanir, sbr. § 1, stk. 3, í grannskoðaralógini, umframt økini, ið verða nevnd í § 8, stk. 3, í hesi kunngerð, í tann mun, tað hevur týdning fyri hesar váttanirnar.
+Stk. 3. Fyri at halda og at próvdøma partarnar A, B og C, verða § 1, stk. 1, § 5, stk. 5, §§ 7, 9, 12 og 13, við teimum neyðugu tillagingunum, nýttar samsvarandi.

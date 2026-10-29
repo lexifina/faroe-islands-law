@@ -1,0 +1,1 @@
+§ 6. Skráseting Føroya kann avgera, at próvtøkan verður hildin meira enn eina ferð árliga. Skráseting Føroya ásetir í hesum sambandi freistina fyri tilmelding til próvtøkuna og almannakunngering av dagfestingini fyri, nær próvtøkan verður hildin. § 5, stk. 2 og 4, verður nýtt samsvarandi.

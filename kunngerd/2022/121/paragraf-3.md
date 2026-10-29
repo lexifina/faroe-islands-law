@@ -1,0 +1,1 @@
+§ 3. Ein skrásettur grannskoðari, sum er upptikin í skránna hjá Skráseting Føroya yvir góðkendar grannskoðarar og grannskoðanarvirkir, sbr. § 2 í løgtingslógini, kann melda seg til grannskoðarapróvtøkuna.
