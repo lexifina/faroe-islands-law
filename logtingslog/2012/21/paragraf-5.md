@@ -1,0 +1,1 @@
+§ 5. Landsstýrismaðurin ásetur nærri reglur um skylduna at tekna trygging fyri loðsar, um egið eftirlit, um skyldu til at lata landsstýrismanninum upplýsingar, og hvussu hesar verða latnar inn, sbr. § 14, stk. 1.

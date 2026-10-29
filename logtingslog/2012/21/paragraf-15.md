@@ -1,0 +1,1 @@
+§ 15. Starvsfólk, sum í teirra starvi hava eftirlit við loðsum og loðsvirksemi, hava ikki loyvi til at taka lut í loðsvirksemi ella hava ein serstakan persónligan ella fíggjarligan áhuga í loðsvirksemi, undir hesum vera limur í nevnd ella stjórn í einum felagi, sum fæst við loðsvirksemi, sbr. § 4, stk. 2.
