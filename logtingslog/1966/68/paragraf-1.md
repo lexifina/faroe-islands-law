@@ -1,0 +1,1 @@
+§ 1. Tá føroyskt fiskifar á veiðuferð veitir fari bjarging ella hjálp, her undir sleiping, verður bjargiløn ella samsýning býtt millum skipsútgerðarinnar, skiparans og manningarinnar á sama hátt sum veiða eigur at verða býtt á somu veiðuferð.
