@@ -1,0 +1,1 @@
+§ 9. Landsstýrismaðurin í heilsumálum kann góðkenna, at royndarskipanir verða settar í verk viðvíkjandi nýggjum bygnaðar- og viðgerðarhættum, soleiðis at reglurnar í § 2 í hesari lóg kunnu verða frávíktar.
