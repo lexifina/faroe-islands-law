@@ -1,0 +1,6 @@
+## Lækking og burturfall av stuðli
+§ 4. [^2] Stuðulsveiting sbrt. §§ 12, 13 a og 14 í lóg um arbeiðsfremjandi tiltøk lækkar fyrst fyri síðan at fella burtur, um persónur hevur ógrundaða fráveru, ella um persónur orsakað av arbeiði ella øðrum virksemi ikki heldur seg til fyriskipanarætlanina.
+Stk. 2. Við ógrundaðari fráveru sbrt. stk. 1 er at skilja fráveru sum ikki er vanlig lóglig frávera sambært viðkomandi sáttmála og mannagongdum á viðkomandi arbeiðsplássi ella útbúgvingarplássi.
+Stk. 3. Um viðkomandi persónur eftir eitt 6 mánaðar tíðarskeið hevur staðfesta fráveru og/ella at persónur ikki fylgir fyriskipanarætlanini sambært § 11 í lóg um arbeiðsfremjandi tiltøk, so metir Almannaverkið um fráveran er fevnd av § 11, stk. 3 ella § 17, stk. 1 í lóg um arbeiðsfremjandi tiltøk ella um orsøkin er ógrundað frávera ella annað arbeiði sambært stk. 1.
+Stk. 4. Við staðfesta ógrundaða fráveru ella annað arbeiði sbrt. stk. 3, so lækkar stuðulsupphæddin við 20%. Um persónur eftir 12 mánaðir framhaldandi ikki fylgir fyriskipanarætlanini sambært orsøkum í stk. 1, so verður fyriskipan og stuðulsveiting steðgað.
+Stk. 5. [^2] Við burturfall av stuðli sambært stk. 4 kann persónur søkja um veiting sambært § 11 samanber § 12 í løgtingslóg um almannatrygd og tænastur.

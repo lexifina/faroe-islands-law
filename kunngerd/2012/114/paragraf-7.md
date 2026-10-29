@@ -1,0 +1,7 @@
+## Tillagað starv
+§ 7. Almannaverkið ger, í samsvari við meting um minkaða arbeiðsførleikan sbrt. § 21 í lóg um arbeiðsfremjandi tiltøk, avtalu við arbeiðsgevara um, umframt løn frá arbeiðsgevara og lønarískoyti eisini avtalu um, arbeiðstíð, arbeiðsuppgávur og møgulig serlig atlit í hesum sambandi.
+Stk. 2. [^3] [^2] Við ásetan av arbeiðstíð, so er útgangsstøðið full arbeiðstíð sambært sáttmála. Tó undantikið tá útgangsstøðið er niðursett arbeiðstíð sbrt. § 22, stk. 4 í lóg um arbeiðsfremjandi tiltøk.
+Stk. 3. Við ásetan av arbeiðstíð sbrt. stk. 2 verður við avtalu ásett, hvørjar tillagingar, steðgir o.a. viðkomandi hevur tørv á fyri at taka atlit til minkaða arbeiðsførleikan.
+Stk. 4. Færri tímar á arbeiðsplássinum kunnu avtalast um minkaði arbeiðsførleikin er orsakað av sjúku ella breki, sum ger, at viðkomandi hevur tørv á at arbeiða niðursetta tíð, og at viðkomandi er fult arbeiðsførur teir tímarnar, sum viðkomandi er til arbeiðis, og at arbeiðstíðin samsvarar við arbeiðstímarnar, sum arbeiðsgevarin rindar fyri.
+Stk. 5. [^3] Atlit sbrt. stk. 2 eru eisini galdandi í førum har útgangsstøðið er niðursett arbeiðstíð, sbrt. § 22, stk. 3 í lóg um arbeiðsfremjandi tiltøk.
+Stk. 6. Í avtaluni skal tilskilast, hvørjar uppgávur persónur í tillagaðum starvi skal loysa, um orsøkin til játtan av tillagaðum starvi er, at viðkomandi persónur bert í avmarkaðan mun kann loysa uppgávur á arbeiðsplássinum.
