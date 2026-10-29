@@ -1,0 +1,3 @@
+§ 2. Skyldurnar sambært hesi kunngerð áliggja reiðarum, skipsførarum, arbeiðsformonnum, umframt øðrum persónum, sum arbeiða umborð. Um annar enn reiðarin er arbeiðsgevari, áliggja skyldurnar, sum í hesi kunngerð eru álagdar reiðaranum, eisini arbeiðsgevaranum.
+Stk. 2. Er samsvarsskjal sambært koduni um tryggan skiparakstur latið øðrum felagi ella persóni, áliggja skyldurnar, sum í hesi kunngerð eru álagdar reiðaranum, eisini avvarðandi felagi ella persóni.
+Stk. 3. Er loyvisbræv sambært altjóða sáttmálanum um starvsviðurskifti hjá sjófólki, MLC latið øðrum felagi ella persóni, áliggja skyldurnar, sum í hesi kunngerð eru álagdar reiðaranum, eisini avvarðandi felagi ella persóni.

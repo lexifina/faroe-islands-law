@@ -1,0 +1,2 @@
+§ 3. Reiðarin og skiparin skulu syrgja fyri, at manningin hevur kunnleika til ásetingarnar í hesi kunngerð, sum hava týdning fyri arbeiðsumhvørvi hjá viðkomandi umborð á skipinum.
+Stk. 2. Eitt eintak av hesi kunngerð skal vera umborð á handilsskipum við eini manning uppá 4 ella fleiri, skiparin íroknaður, umframt fiskiskipum 45 metrar og longri. Elektronisk atgongd til kunngerðina verður eisini góðtikin undir teirri fortreyt, at kunngerðin kann lesast umborð.
