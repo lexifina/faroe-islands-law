@@ -1,0 +1,1 @@
+§ 1. Við tí endamáli at tryggja fígging til hjálpararbeiði í sambandi við størri vanlukkur og stórskaðatilburðir verður heimilað landsstýrismanninum at halda útreiðslur til neyðugar hjálparveitingar, tá ið størri vanlukkur og/ella stórskaðatilburðir koma fyri, og bráðfeingis tørvur er á fígging.
