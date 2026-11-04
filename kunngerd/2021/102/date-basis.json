@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/2021/102",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2021-06-17",
+  "published": "2021-06-18",
+  "gazette": "Kunngerðarblað 2021 A - Kunngerð 102 frá 17. juni 2021",
+  "source": "https://logir.fo/Kunngerd/102-fra-17-06-2021-um-utbugving-av-namsfrodingum",
+  "corrects": "99407639bc5d95f80cd66d2a4aafedf18fbf6f0d",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "21",
+      "date": "2025-02-28"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
