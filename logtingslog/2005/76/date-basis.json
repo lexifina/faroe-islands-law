@@ -1,0 +1,19 @@
+{
+  "act": "logtingslog/2005/76",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2005-05-27",
+  "published": "2005-05-27",
+  "gazette": "Kunngerðarblað 2005 A - Hefti 15 A frá 27. mai 2005",
+  "source": "https://logir.fo/Logtingslog/76-fra-27-05-2005-um-at-leggja-virksemid-hja-Postverk-Foroya-i-PF-Postverk-Foroya",
+  "corrects": "113c052520dd763acb90aa2b02f4c3906514c7be",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "58",
+      "date": "2006-05-16"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
