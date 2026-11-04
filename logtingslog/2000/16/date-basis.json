@@ -1,0 +1,25 @@
+{
+  "act": "logtingslog/2000/16",
+  "status": "dated",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2000-02-14",
+  "published": "2000-02-16",
+  "gazette": "Kunngerðarblað 2000 A - Hefti 3 A frá 16. februar 2000",
+  "source": "https://logir.fo/Logtingslog/16-fra-14-02-2000-um-alikning-innkrevjing-eftirlit-oa-i-sambandi-vid-skatting-av-inntoku",
+  "corrects": "d685b3bfeb04db82e6bdc5338b34519b5f399312",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "100",
+      "date": "2002-12-20"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "159",
+      "date": "2021-12-10"
+    }
+  ],
+  "in_force_basis": "Latest source-named amendment: Henda løgtingslóg kemur í gildi 1. januar 2022. Samstundis fer løgtingslóg nr. 47 frá 23. mars 1993 um kærunevnd í almanna-, familju- og heilsumálum úr gildi.",
+  "in_force": "2022-01-01"
+}
