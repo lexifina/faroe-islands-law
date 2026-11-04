@@ -1,0 +1,54 @@
+{
+  "act": "logtingslog/1972/44",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "1972-06-19",
+  "published": "1972-07-20",
+  "gazette": "Kunngerðarblað 1972 A - Løgtingslóg 44 frá 29. juni 1972",
+  "source": "https://logir.fo/Logtingslog/44-fra-19-06-1972-um-val-til-allar-foroyskar-kommunur-sum-seinast-broytt-vid-logtingslog",
+  "corrects": "67d4431350a1deaa5caf6e07a494c747498e2377",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "98",
+      "date": "1984-10-18"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "110",
+      "date": "2000-10-06"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "66",
+      "date": "2004-10-11"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "97",
+      "date": "2006-11-15"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "137",
+      "date": "2020-09-22"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "67",
+      "date": "2004-10-11"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "105",
+      "date": "1984-11-09"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "36",
+      "date": "1974-04-26"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
