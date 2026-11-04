@@ -1,0 +1,39 @@
+{
+  "act": "logtingslog/1988/104",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "1988-09-05",
+  "published": "1988-09-15",
+  "gazette": "Kunngerðarblað 1988 A - Løgtingslóg 104 frá 5. september 1988",
+  "source": "https://logir.fo/Logtingslog/104-fra-05-09-1988-um-apoteksverkid-og-heilivag-sum-broytt-vid-logtingslog-nr-54-fra",
+  "corrects": "1196359e8d7331c7265d57751f5418ce0954d3e7",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "67",
+      "date": "2025-04-28"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "54",
+      "date": "1991-05-08"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "14",
+      "date": "2015-03-16"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "40",
+      "date": "2014-05-06"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "79",
+      "date": "2020-06-07"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
