@@ -1,0 +1,45 @@
+{
+  "act": "logtingslog/2012/21",
+  "status": "dated",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2012-03-16",
+  "published": "2012-03-23",
+  "gazette": "Kunngerðarblað 2012 A - Hefti 11 A frá 23. mars 2012",
+  "source": "https://logir.fo/Logtingslog/21-fra-16-03-2012-fra-havnalodsing",
+  "corrects": "4d09128135956292b04c74cf0393990ca7b2db2d",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "63",
+      "date": "2019-05-09"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "65",
+      "date": "2017-05-29"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "31",
+      "date": "2022-03-17"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "168",
+      "date": "2021-12-16"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "91",
+      "date": "2020-06-07"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "143",
+      "date": "2013-12-18"
+    }
+  ],
+  "in_force_basis": "Latest source-named amendment: Henda løgtingslóg kemur í gildi 1. juli 2022 og samstundis fara løgtingslóg nr. 110 frá 13. desember 2006 um kærunevnd í lendismálum og løgtingslóg nr. 17 frá 8. mai 2008 um Vinnukærunevnd úr gildi.",
+  "in_force": "2022-07-01"
+}
