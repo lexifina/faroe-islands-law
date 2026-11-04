@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/2006/99",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2006-11-20",
+  "published": "2006-11-28",
+  "gazette": "Kunngerðarblað 2006 D - Hefti 1 D frá 29. november 2006",
+  "source": "https://logir.fo/Kunngerd/99-fra-20-11-2006-um-heilsuasetingar-fyri-hjaframleidslu-ur-djorum-sum-ikki-er-aetlad-til",
+  "corrects": "7fc9d7daf73a2dc48ab665dcceb5ca3e4e8604e7",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "85",
+      "date": "2008-10-03"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
