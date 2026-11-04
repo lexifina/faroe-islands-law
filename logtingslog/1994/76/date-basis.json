@@ -1,0 +1,29 @@
+{
+  "act": "logtingslog/1994/76",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "1994-05-17",
+  "published": "1994-05-20",
+  "gazette": "Kunngerðarblað 1994 A - Hefti 11 A frá 20. mai 1994",
+  "source": "https://logir.fo/Logtingslog/76-fra-17-05-1994-um-tinglysingargjold-vm-sum-broytt-vid-logtingslog-nr-63-fra-10",
+  "corrects": "5e34e457e08fe56cec10bb5c60ca94a89c67e1a6",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "63",
+      "date": "2008-06-10"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "91",
+      "date": "2020-06-07"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "128",
+      "date": "2024-12-13"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
