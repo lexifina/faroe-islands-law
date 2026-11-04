@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/2019/123",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2019-07-26",
+  "published": "2019-07-26",
+  "gazette": "Kunngerðarblað 2019 A - Kunngerð 123 frá 26. juli 2019",
+  "source": "https://logir.fo/Kunngerd/123-fra-26-07-2019-um-grannskodaravattanir-oa",
+  "corrects": "e266511090d1282fe02bce731d4d03f75c1885aa",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "139",
+      "date": "2021-10-18"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
