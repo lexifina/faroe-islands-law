@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/2019/81",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2019-06-14",
+  "published": "2019-06-18",
+  "gazette": "Kunngerðarblað 2019 A - Kunngerð 81 frá 14. juni 2019",
+  "source": "https://logir.fo/Kunngerd/81-fra-14-06-2019-um-utbjoding-av-aliloyvum",
+  "corrects": "9569ec4348877cea8447f1599954b93c9cfafb34",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "32",
+      "date": "2025-03-19"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
