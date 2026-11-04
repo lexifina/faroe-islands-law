@@ -1,0 +1,19 @@
+{
+  "act": "logtingslog/1984/15",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "1984-02-10",
+  "published": "1984-02-11",
+  "gazette": "Kunngerðarblað 1984 A - Løgtingslóg 15 frá 10. februar 1984",
+  "source": "https://logir.fo/Logtingslog/15-fra-10-02-1984-um-endurfigging-av-lanum-til-landskassan-og-landsstovnar--om-refinansiering",
+  "corrects": "4f565160b7c1c77825d14117a2c053f59ad20cd0",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "66",
+      "date": "1995-06-13"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
