@@ -1,0 +1,65 @@
+{
+  "act": "logtingslog/1930/129",
+  "status": "dated",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "1930-04-15",
+  "published": "1930-04-15",
+  "gazette": "",
+  "source": "https://logir.fo/Lov/129-fra-daDK-15-04-1930-om-Forsikringsaftaler-som-senest-aendret-ved-anordning-nr-582-af-23",
+  "corrects": "a125118884548a4eb60c4f8164273ebde6b3fcbf",
+  "source_dates": [
+    {
+      "kind": "lov",
+      "number": "50",
+      "date": "1960-02-24"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "33",
+      "date": "2017-03-31"
+    },
+    {
+      "kind": "anordning",
+      "number": "582",
+      "date": "2008-06-23"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "31",
+      "date": "2023-03-09"
+    },
+    {
+      "kind": "lov",
+      "number": "181",
+      "date": "1972-05-24"
+    },
+    {
+      "kind": "lov",
+      "number": "250",
+      "date": "1975-06-12"
+    },
+    {
+      "kind": "kongelig anordning",
+      "number": "150",
+      "date": "1988-03-21"
+    },
+    {
+      "kind": "lov",
+      "number": "179",
+      "date": "1972-05-24"
+    },
+    {
+      "kind": "lov",
+      "number": "266",
+      "date": "1975-06-26"
+    },
+    {
+      "kind": "kongelig anordning",
+      "number": "150",
+      "date": "1988-03-21"
+    }
+  ],
+  "in_force_basis": "Latest source-named amendment: Henda løgtingslóg kemur í gildi 1. september 2023.",
+  "in_force": "2023-09-01"
+}
