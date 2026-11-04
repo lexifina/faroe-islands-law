@@ -1,0 +1,19 @@
+{
+  "act": "logtingslog/1952/32",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "1952-05-02",
+  "published": "1952-05-02",
+  "gazette": "Kunngerðarblað 1952 A - Løgtingslóg 32 frá 2. mai 1952",
+  "source": "https://logir.fo/Logtingslog/32-fra-02-05-1952-um-fornminnissavn--om-fortidsmindesamling-sum-seinast-broytt-vid-logtingslog-nr",
+  "corrects": "85a17f6572d74099213e6f2f628c06fe8d1cf615",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "24",
+      "date": "1964-04-09"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
