@@ -1,0 +1,24 @@
+{
+  "act": "logtingslog/2012/61",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2012-05-15",
+  "published": "2012-05-23",
+  "gazette": "Kunngerðarblað 2012 A - Hefti 21 A frá 23. mai 2012",
+  "source": "https://logir.fo/Logtingslog/61-fra-15-05-2012-fra-tilbugving",
+  "corrects": "cc7f96593055564d7ddc51b9d3236de388b4ecbf",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "59",
+      "date": "2024-05-29"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "91",
+      "date": "2020-06-07"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
