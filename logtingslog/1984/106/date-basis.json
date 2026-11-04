@@ -1,0 +1,24 @@
+{
+  "act": "logtingslog/1984/106",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "1984-11-15",
+  "published": "1984-11-22",
+  "gazette": "Kunngerðarblað 1984 A - Løgtingslóg 106 frá 15. november 1984",
+  "source": "https://logir.fo/Logtingslog/106-fra-15-11-1984-um-utbjoding-vm--om-licitation-mv",
+  "corrects": "2276501e301ff63039b10f42d509c3333e6767cb",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "52",
+      "date": "2016-05-06"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "168",
+      "date": "2021-12-16"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
