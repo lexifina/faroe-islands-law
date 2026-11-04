@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/2000/94",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2000-06-22",
+  "published": "2000-06-27",
+  "gazette": "Kunngerðarblað 2000 A - Hefti 12 A frá 27. juni 2000",
+  "source": "https://logir.fo/Kunngerd/94-fra-22-06-2000-um-sernamsfrodiligan-studul-til-naemingar-vid-likamligum-ella-salarligum-breki-sum",
+  "corrects": "5db3cce7d850abdd0020de79909e6b2f0e1d9cf5",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "28",
+      "date": "2001-03-06"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
