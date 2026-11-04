@@ -1,0 +1,19 @@
+{
+  "act": "logtingslog/2004/92",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2004-12-21",
+  "published": "2004-12-23",
+  "gazette": "Kunngerðarblað 2004 A - Hefti 30 A frá 23. desember 2004",
+  "source": "https://logir.fo/Logtingslog/92-fra-21-12-2004-um-vernd-av-fornlutum-i-havinum",
+  "corrects": "246722e57a4b9e488c1aea22aebc3e01fde1ef20",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "168",
+      "date": "2021-12-16"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
