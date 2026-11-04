@@ -1,0 +1,20 @@
+{
+  "act": "kunngerd/2009/88",
+  "status": "dated",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2009-06-17",
+  "published": "2009-06-18",
+  "gazette": "Kunngerðarblað 2009 A - Hefti 16 A frá 18. juni 2009",
+  "source": "https://logir.fo/Kunngerd/88-fra-17-06-2009-um-figgjarligt-friplass",
+  "corrects": "2bca9e98896e765f1bf519a3c3bfb8724f18590c",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "89",
+      "date": "2015-05-29"
+    }
+  ],
+  "in_force_basis": "Latest source-named amendment: Henda kunngerð kemur í gildi 1. august 2015.",
+  "in_force": "2015-08-01"
+}
