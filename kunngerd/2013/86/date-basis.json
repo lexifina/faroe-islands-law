@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/2013/86",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2013-06-13",
+  "published": "2013-06-21",
+  "gazette": "Kunngerðarblað 2013 A - Kunngerð 86 frá 13. juni 2013",
+  "source": "https://logir.fo/Kunngerd/86-fra-13-06-2013-um-iskoyti-til-gjald-fyri-veiting-hja-statsautoriseradum-fotterapeuti",
+  "corrects": "82c7fdbd1909250e02d4abd135ff0a9eca5ba357",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "27",
+      "date": "2016-04-04"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
