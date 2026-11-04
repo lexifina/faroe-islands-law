@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/1989/24",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "1989-04-13",
+  "published": "1989-04-18",
+  "gazette": "Kunngerðarblað 1989 A - Hefti 5 A frá 18. apríl 1989",
+  "source": "https://logir.fo/Kunngerd/24-fra-13-04-1989-av-starvsreglugerd-fyri-vaktartaenastuna-a-landleidini-vidvikjandi-meskamating-sum-broytt-vid",
+  "corrects": "6d9ad4df6a7df78bd3967548d46323a2fb471d73",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "149",
+      "date": "1993-07-14"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
