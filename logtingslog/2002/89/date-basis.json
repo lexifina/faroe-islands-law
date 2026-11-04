@@ -1,0 +1,19 @@
+{
+  "act": "logtingslog/2002/89",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2002-11-28",
+  "published": "2002-12-04",
+  "gazette": "Kunngerðarblað 2002 A - Hefti 30 A 4 desember 2002",
+  "source": "https://logir.fo/Logtingslog/89-fra-28-11-2002-um-handilstiltok-motvegis-Sierra-Leona",
+  "corrects": "331b3d176bfccea1d43a45e7da605d53c7bcf886",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "168",
+      "date": "2021-12-16"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
