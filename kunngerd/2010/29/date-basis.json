@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/2010/29",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2010-04-27",
+  "published": "2010-04-29",
+  "gazette": "Kunngerðarblað 2010 A - Hefti 9 A frá 29. apríl 2010",
+  "source": "https://logir.fo/Kunngerd/29-fra-27-04-2010-um-at-flyta-ogn-fra-Foroya-Yvirformyndari-vm-sum-broytt-vid",
+  "corrects": "5df053469c2d261b05ee605837a031f42c9dbb97",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "108",
+      "date": "2010-12-08"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
