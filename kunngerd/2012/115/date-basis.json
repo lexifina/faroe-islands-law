@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/2012/115",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2012-12-04",
+  "published": "2012-12-07",
+  "gazette": "Kunngerðarblað 2012 A - Hefti 42 A frá 7. desember 2012",
+  "source": "https://logir.fo/Kunngerd/115-fra-04-12-2012-um-endurgjald-fyri-ferding-til-og-fra-serlaekna-kommunulaeknavaktini-og-ljosmodur",
+  "corrects": "2e6931dd9f55335d84bf9eefec0f262b0eeea9a6",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "8",
+      "date": "2023-02-06"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
