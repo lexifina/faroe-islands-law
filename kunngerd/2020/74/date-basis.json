@@ -1,0 +1,20 @@
+{
+  "act": "kunngerd/2020/74",
+  "status": "dated",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2020-05-26",
+  "published": "2020-05-27",
+  "gazette": "Kunngerðarblað 2020 A - Kunngerð 74 frá 26. mai 2020",
+  "source": "https://logir.fo/Kunngerd/74-fra-26-05-2020-um-kelduvatn-og-naturligt-mineralvatn",
+  "corrects": "c39396da2af4b87b3cbc6f4c8f752b6748db74f0",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "30",
+      "date": "2025-03-19"
+    }
+  ],
+  "in_force_basis": "Latest source-named amendment: Henda kunngerð kemur í gildi 1. apríl 2025.",
+  "in_force": "2025-04-01"
+}
