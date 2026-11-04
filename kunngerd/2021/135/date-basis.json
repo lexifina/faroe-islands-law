@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/2021/135",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2021-09-22",
+  "published": "2021-09-23",
+  "gazette": "Kunngerðarblað 2021 A - Kunngerð 135 frá 22. september 2021",
+  "source": "https://logir.fo/Kunngerd/135-fra-22-09-2021-um-internetokisnavnid-fo",
+  "corrects": "3af373cce1f6c9a6c72d001d09ed4651142915d9",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "132",
+      "date": "2023-12-05"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
