@@ -1,0 +1,24 @@
+{
+  "act": "logtingslog/2012/62",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2012-05-15",
+  "published": "2012-05-23",
+  "gazette": "Kunngerðarblað 2012 A - Hefti 21 A frá 23. mai 2012",
+  "source": "https://logir.fo/Logtingslog/62-fra-15-05-2012-fra-gymnasialar-midnamsutbugvingar",
+  "corrects": "04ce353313418a82fe7b2f0fcda0eb01fe072478",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "54",
+      "date": "2014-05-15"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "140",
+      "date": "2015-12-18"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
