@@ -1,0 +1,44 @@
+{
+  "act": "kunngerd/2016/11",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2016-02-19",
+  "published": "2016-02-19",
+  "gazette": "Kunngerðarblað 2016 A - Kunngerð 11 frá 19. februar 2016",
+  "source": "https://logir.fo/Kunngerd/11-fra-19-02-2016-um-eydmerking-og-frabodan-av-figgjarkontum-vid-tilknyti-til-utheimin",
+  "corrects": "6cea3350669e0b088d5dd7f7771d641ee8bcb08c",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "92",
+      "date": "2019-07-01"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "94",
+      "date": "2024-09-04"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "93",
+      "date": "2022-05-17"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "32",
+      "date": "2017-03-28"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "161",
+      "date": "2018-12-06"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "24",
+      "date": "2021-03-24"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
