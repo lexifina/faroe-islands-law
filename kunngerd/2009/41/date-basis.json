@@ -1,0 +1,40 @@
+{
+  "act": "kunngerd/2009/41",
+  "status": "dated",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2009-04-27",
+  "published": "2009-04-30",
+  "gazette": "Kunngerðarblað 2009 A - Hefti 10 A frá 30. apríl 2009",
+  "source": "https://logir.fo/Kunngerd/41-fra-27-04-2009-um-gjald-fyri-sjukrahusvidgerd",
+  "corrects": "c4073ec774f6cb0e58848b2fe10247340554c20c",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "104",
+      "date": "2015-08-04"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "167",
+      "date": "2025-11-06"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "76",
+      "date": "2014-06-03"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "15",
+      "date": "2015-03-17"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "15",
+      "date": "2020-03-03"
+    }
+  ],
+  "in_force_basis": "Latest source-named amendment: Henda kunngerð kemur í gildi 1. januar 2026.",
+  "in_force": "2026-01-01"
+}
