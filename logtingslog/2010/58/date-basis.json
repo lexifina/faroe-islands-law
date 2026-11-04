@@ -1,0 +1,29 @@
+{
+  "act": "logtingslog/2010/58",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2010-05-26",
+  "published": "2010-06-03",
+  "gazette": "Kunngerðarblað 2010 A - Hefti 14 A frá 3. juni 2010",
+  "source": "https://logir.fo/Logtingslog/58-fra-26-05-2010-um-matvorur-vm",
+  "corrects": "3438d5d7244b2f5ee3eddf543a1cccceffebeb04",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "102",
+      "date": "2017-07-13"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "51",
+      "date": "2016-05-06"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "86",
+      "date": "2015-05-22"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
