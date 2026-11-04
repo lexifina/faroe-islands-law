@@ -1,0 +1,24 @@
+{
+  "act": "kunngerd/2002/58",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2002-04-30",
+  "published": "2002-05-01",
+  "gazette": "Kunngerðarblað 2002 A - Hefti 14 A frá 1. mai 2002",
+  "source": "https://logir.fo/Kunngerd/58-fra-30-04-2002-um-veterinert-eftirlit-i-sambandi-vid-samhandil-inn-og-utflutning-av",
+  "corrects": "719b218fcc776300ff564fdb1e24af969e8e9959",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "120",
+      "date": "2011-09-14"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "12",
+      "date": "2006-03-08"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
