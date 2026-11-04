@@ -1,0 +1,24 @@
+{
+  "act": "logtingslog/2002/41",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2002-03-26",
+  "published": "2002-04-09",
+  "gazette": "Kunngerðarblað 2002 A - Hefti 11 A frá 9. apríl 2002",
+  "source": "https://logir.fo/Logtingslog/41-fra-26-03-2002-um-folkanovn-sum-broytt-vid-logtingslog-nr-33-fra-30-april",
+  "corrects": "9ffe63a0cf9aa06afd6ea3821ef2ae0f527c278b",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "31",
+      "date": "2021-03-26"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "33",
+      "date": "2007-04-30"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
