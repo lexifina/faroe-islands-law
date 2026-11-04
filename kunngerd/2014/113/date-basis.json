@@ -1,0 +1,24 @@
+{
+  "act": "kunngerd/2014/113",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2014-12-11",
+  "published": "2014-12-12",
+  "gazette": "Kunngerðarblað 2014 A - Kunngerð 113 frá 11. desember 2014",
+  "source": "https://logir.fo/Kunngerd/113-fra-11-12-2014-um-okisfridingar-i-altjoda-sjogvi-i-NEAFC",
+  "corrects": "196a9605ba5048084a39113f7a0e37dfd1e17289",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "102",
+      "date": "2024-10-01"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "163",
+      "date": "2017-12-19"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
