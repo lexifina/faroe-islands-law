@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/2023/165",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2023-12-19",
+  "published": "2023-12-22",
+  "gazette": "Kunngerðarblað 2023 A - Kunngerð 165 frá 19. desember 2023",
+  "source": "https://logir.fo/Kunngerd/165-fra-19-12-2023-um-endurgjald-fyri-mista-arbeidsinntoku-i-sambandi-vid-ansing-av-barni",
+  "corrects": "1e33d69a0051ca24ad69c4d50dc94860ab63b6f7",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "70",
+      "date": "2026-08-04"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
