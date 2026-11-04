@@ -1,0 +1,19 @@
+{
+  "act": "logtingslog/2023/72",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2023-05-22",
+  "published": "2023-05-29",
+  "gazette": "Kunngerðarblað 2023 A - Løgtingslóg 72 frá 22. mai 2023",
+  "source": "https://logir.fo/Logtingslog/72-fra-22-05-2023-um-kapping",
+  "corrects": "ef6b40c30ff3c24793dfa6e4aebbace33c53229b",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "18",
+      "date": "2024-03-26"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
