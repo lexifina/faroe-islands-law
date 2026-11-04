@@ -1,0 +1,30 @@
+{
+  "act": "logtingslog/1948/19",
+  "status": "dated",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "1948-09-16",
+  "published": "1948-09-16",
+  "gazette": "Kunngerðarblað 1948 A - Løgtingslóg 19 frá 16. september 1948",
+  "source": "https://logir.fo/Logtingslog/19-fra-16-09-1948-um-fridan-av-fornminnum-og-bygningum--om-fredning-af-fortidsminder",
+  "corrects": "b01552bc1d2d40b38f24c5de5fe3ec258e8ed34f",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "11",
+      "date": "1972-04-19"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "38",
+      "date": "1970-06-02"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "91",
+      "date": "2020-06-07"
+    }
+  ],
+  "in_force_basis": "Latest source-named amendment: Henda løgtingslóg kemur í gildi 1. januar 2021.",
+  "in_force": "2021-01-01"
+}
