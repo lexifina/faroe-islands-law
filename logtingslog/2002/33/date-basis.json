@@ -1,0 +1,34 @@
+{
+  "act": "logtingslog/2002/33",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2002-03-26",
+  "published": "2002-04-09",
+  "gazette": "Kunngerðarblað 2002 A - Hefti 11 A frá 9. apríl 2002",
+  "source": "https://logir.fo/Logtingslog/33-fra-26-03-2002-um-fast-samband-um-Leirviksfjord-seinast-broytt-vid-logtingslog-nr-7",
+  "corrects": "6d88dea732a72cde62e89029eefea7b948a50426",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "49",
+      "date": "2003-04-10"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "162",
+      "date": "2005-12-22"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "7",
+      "date": "2006-02-27"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "108",
+      "date": "2002-12-20"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
