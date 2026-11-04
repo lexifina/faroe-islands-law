@@ -1,0 +1,25 @@
+{
+  "act": "logtingslog/2005/63",
+  "status": "dated",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2005-05-17",
+  "published": "2005-05-19",
+  "gazette": "Kunngerðarblað 2005 A - Hefti 14 A frá 19. mai 2005",
+  "source": "https://logir.fo/Logtingslog/63-fra-17-05-2005-um-fyribyrgjandi-heilsuskipanir-fyri-born-og-ung",
+  "corrects": "a04ac6efd750995a11cd431ceb7ca852351f447b",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "9",
+      "date": "2014-03-12"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "52",
+      "date": "2018-04-30"
+    }
+  ],
+  "in_force_basis": "Latest source-named amendment: Henda løgtingslóg kemur í gildi 1. august 2018.",
+  "in_force": "2018-08-01"
+}
