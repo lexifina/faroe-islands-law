@@ -1,0 +1,19 @@
+{
+  "act": "logtingslog/2021/72",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2021-05-05",
+  "published": "2021-05-10",
+  "gazette": "Kunngerðarblað 2021 A - Løgtingslóg 72 frá 5. mai 2021",
+  "source": "https://logir.fo/Logtingslog/72-fra-05-05-2021-um-Buskaparrad",
+  "corrects": "2953e5ffb29fd21fd189053c9bd56ae54a8d68e4",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "47",
+      "date": "2026-05-29"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
