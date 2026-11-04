@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/2015/6",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2015-02-02",
+  "published": "2015-02-06",
+  "gazette": "Kunngerðarblað 2015 A - Kunngerð 6 frá 2. februar 2015",
+  "source": "https://logir.fo/Kunngerd/6-fra-02-02-2015-um-heimaundirvising-og-sjukraundirvising",
+  "corrects": "6c6fff3cecac452429656136b6cb2760a9cbdb6b",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "126",
+      "date": "2018-09-12"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
