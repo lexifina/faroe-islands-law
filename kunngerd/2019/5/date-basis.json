@@ -1,0 +1,24 @@
+{
+  "act": "kunngerd/2019/5",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2019-01-17",
+  "published": "2019-01-18",
+  "gazette": "Kunngerðarblað 2019 A - Kunngerð 5 frá 17. januar 2019",
+  "source": "https://logir.fo/Kunngerd/5-fra-17-01-2019-um-at-bjoda-ut-raettindi-a-uppbodssolu-i-2019",
+  "corrects": "39eab9274d350c825c9b3bfcb5bfacff66836305",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "13",
+      "date": "2019-02-27"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "85",
+      "date": "2019-06-14"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
