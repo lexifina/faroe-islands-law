@@ -1,0 +1,45 @@
+{
+  "act": "logtingslog/1997/171",
+  "status": "dated",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "1997-12-30",
+  "published": "1997-12-31",
+  "gazette": "Kunngerðarblað 1997 A - Hefti 26 A frá 31. desember 1997",
+  "source": "https://logir.fo/Logtingslog/171-fra-30-12-1997-um-skattafria-samanlegging-oa-sum-seinast-broytt-vid-logtingslog-nr-120",
+  "corrects": "8209c58d01fc816fae94403b9f7da84aff0a6d24",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "77",
+      "date": "2015-05-22"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "45",
+      "date": "1998-04-08"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "172",
+      "date": "2001-12-21"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "188",
+      "date": "2018-12-21"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "120",
+      "date": "2003-12-01"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "159",
+      "date": "2021-12-10"
+    }
+  ],
+  "in_force_basis": "Latest source-named amendment: Henda løgtingslóg kemur í gildi 1. januar 2022. Samstundis fer løgtingslóg nr. 47 frá 23. mars 1993 um kærunevnd í almanna-, familju- og heilsumálum úr gildi.",
+  "in_force": "2022-01-01"
+}
