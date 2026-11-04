@@ -1,0 +1,50 @@
+{
+  "act": "logtingslog/2009/83",
+  "status": "dated",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2009-05-25",
+  "published": "2009-06-10",
+  "gazette": "Kunngerðarblað 2009 A - Hefti 15 A frá 10. juni 2009",
+  "source": "https://logir.fo/Logtingslog/83-fra-25-05-2009-um-aling-av-fiski-vm",
+  "corrects": "46ac83413df022b91b54c20694ffaa8652cd61f5",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "50",
+      "date": "2018-04-30"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "128",
+      "date": "2012-12-14"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "27",
+      "date": "2022-03-11"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "70",
+      "date": "2023-05-22"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "65",
+      "date": "2020-05-14"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "31",
+      "date": "2022-03-17"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "168",
+      "date": "2021-12-16"
+    }
+  ],
+  "in_force_basis": "Latest source-named amendment: Henda løgtingslógin kemur í gildi 1. januar 2024.",
+  "in_force": "2024-01-01"
+}
