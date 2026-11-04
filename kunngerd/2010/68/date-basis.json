@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/2010/68",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2010-06-09",
+  "published": "2010-06-10",
+  "gazette": "Kunngerðarblað 2010 A - Hefti 15 A frá 10. juni 2010",
+  "source": "https://logir.fo/Kunngerd/68-fra-09-06-2010-um-reglur-at-fremja-gott-skil-og-umsjon-vid-naemingunum-i",
+  "corrects": "038574d671f2f5f61bb1ae5ba0f55eeef7d780c8",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "103",
+      "date": "2024-10-14"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
