@@ -1,0 +1,14 @@
+{
+  "jurisdiction": "Faroe Islands",
+  "language": "fo",
+  "history": "current-only",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "build": "partial",
+  "source_dating": {
+    "dated": 659,
+    "text-as-of": 262,
+    "hold": 408
+  },
+  "source": "https://logir.fo"
+}

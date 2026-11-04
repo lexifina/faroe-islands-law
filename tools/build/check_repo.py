@@ -67,13 +67,19 @@ class Blobs:
 
 
 def main() -> None:
+    global CACHE
+    if '--cache' in sys.argv:
+        CACHE = Path(sys.argv[sys.argv.index('--cache') + 1])
     args = [a for a in sys.argv[1:] if not a.startswith('--')]
     repo = Path(args[0]).resolve()
     record = '--no-record' not in sys.argv
     today = sys.argv[sys.argv.index('--today') + 1] if '--today' in sys.argv else None
     rows = json.loads((CACHE / 'list.json').read_text('utf-8'))['rows']
     sys.path.insert(0, str(HERE))
-    import build  # only for the folder of each act (load_acts) and the page file name
+    import build
+    build.CACHE = CACHE
+    build.PAGES = CACHE / 'acts'
+    # only for the folder of each act and the page file name
     acts = build.load_acts()
     if today is None:
         today = build.retrieved_day()
@@ -119,6 +125,15 @@ def main() -> None:
         t = dict(l.split(': ', 1) for l in got if ': ' in l)
         if t.get('Kind') == 'documentation':
             continue
+        if t.get('Kind') == 'correction':
+            required = ('Corrects', 'Supersedes', 'Reason', 'Act-path', 'Files', 'Text-as-of', 'In-force-basis')
+            if not all(t.get(k) for k in required):
+                bad.append(sha[:7])
+            # Source commencement evidence can precede observation. Metadata
+            # append order is not a chronological sequence of law versions.
+            if t.get('In-force') and t['In-force'] > today:
+                future.append(sha[:7])
+            continue
         d = t.get('In-force')
         if not d or not t.get('Kind'):
             no_inforce.append(sha[:7])
@@ -150,6 +165,8 @@ def main() -> None:
         good = good and early.returncode != 0 and 'no version' in early.stderr
         ok += good
         print(f"tool {law} {unit or '(whole act)'}: {'ok' if good else 'WRONG'}")
+    blobs.p.stdin.close()
+    blobs.p.wait()
     head = git(repo, 'rev-parse', 'HEAD').strip()
     result = {'acts': checked, 'chars': chars, 'mismatches': len(mism), 'mismatch_list': mism[:50],
               'commits': len(commits), 'bad_trailers': len(bad), 'no_inforce': len(no_inforce),

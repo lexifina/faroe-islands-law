@@ -5,7 +5,7 @@
 logir.fo (Lógasavnið) publishes the current consolidated text of every act in force and keeps no dated past
 consolidations. So the history here starts at that text ("current-only"):
 
-1. Every principal act in force that the site lists (Løgtingslóg, Kunngerð, Løgtingslógarkunngerð) is one law. Each
+1. Each eligible principal act in force that the site lists (Løgtingslóg, Kunngerð, Løgtingslógarkunngerð) is one law. Each
    § is one file (`paragraf-1.md`, `paragraf-16a.md`), one paragraph per line; chapter headings and § titles go on
    top of the § below them as `##` lines. The act's number, date, title and anything before § 1 is `title.md`, each
    annex (Fylgiskjal, Bilag) is `fylgiskjal-N.md`, and the site's endnotes are `notes.md`, one `[^N]: ...` per note.
@@ -536,7 +536,15 @@ def message(a: dict, day: str, built: dict) -> str:
                  'other acts ("at seta úr gildi", Role: repealing).']
     if built['language'] != 'fo':
         body += ['', f"The text is in {LANG_NAME[built['language']]}, as on the site."]
-    tr = ['Kind: consolidated', f'In-force: {day}', f'Consolidated: {day}', 'Date-source: retrieved']
+    from source_dates import resolve_act
+    decision = resolve_act(a, sys.modules[__name__])
+    if decision['status'] == 'hold':
+        raise ValueError(a['dir'] + ': source dating held: ' + decision['reason'])
+    tr = ['Kind: consolidated', f'Text-as-of: {day}',
+          'In-force-basis: ' + decision['basis'],
+          'Date-source: ' + ('source commencement' if decision['status'] == 'dated' else 'observation only')]
+    if decision['status'] == 'dated':
+        tr.append('In-force: ' + decision['in_force'])
     if a['enacted']:
         tr.append(f"Enacted: {a['enacted']}")
     pub = parse_day(info.get('Útgávudagur', ''))
@@ -660,6 +668,8 @@ def main() -> None:
     sys.path.insert(0, str(HERE))  # python -I leaves the script's folder off sys.path
     import docs as docmod
     docs = docmod.render(acts, commits, issues, amend, args.today)
+    if args.repo.exists() and (args.repo / '.git').exists():
+        raise SystemExit('Existing history must use append_source_dates.py; rebuilding an existing repository is refused')
     prepare(args.repo)
     fast_import(args.repo, commits, docs, args.today)
     subprocess.run(['git', '-C', str(args.repo), 'checkout', '-q', '-f', 'main'], check=True)

@@ -53,6 +53,7 @@ def fetch_runs() -> list[dict]:
 
 def render(acts: list[dict], commits: list[tuple], issues: list[list[str]], amend: list[list[str]],
            today: str) -> dict[str, bytes]:
+    raise RuntimeError('Legacy full-rebuild documentation is superseded; use reviewed append_source_dates.py')
     by_kind = Counter(a['folder'] for a in acts)
     roles = Counter(a['role'] for a in acts)
     langs = Counter(a['language'] for a in acts)

@@ -18,21 +18,23 @@
   "history_from": "2026-10-29",
   "record_to": "2026-10-29",
   "checked_on": "2026-10-29",
-  "record_note": "logir.fo publishes only the current consolidated text of each act, so each act has one version here: the text as retrieved on 2026-10-29. There is no line-by-line history before that day. The site's amendment notes are kept in each act's notes.md and parsed into data/amendments.csv (9801 rows naming 1409 amending acts).",
+  "record_note": "One observed current text per act. Reviewed date metadata corrects the original retrieval-as-In-force claim; it does not reconstruct earlier wording. Date holds are metadata; existing observed versions remain readable through the observation reader.",
   "built": "2026-10-29",
-  "baseline_trailer": "Consolidated",
+  "baseline_trailer": "Text-as-of",
   "in_force_trailer": "In-force",
   "has_future_branch": false,
   "future_branch": null,
   "dates": {
-    "commit": "the retrieval day (logir.fo gives no consolidation date); Date-source: retrieved",
-    "baseline_trailer": "Consolidated",
+    "commit": "Append-only metadata corrections are recorded on their correction day; original commits remain unchanged.",
+    "in_force": "Source commencement where established; absent for observation-only records.",
+    "text_as_of": "Date of the single supplied current text, not commencement.",
+    "baseline_trailer": "Text-as-of",
     "other_trailers": [
       "Enacted",
-      "Published"
+      "Published",
+      "In-force-basis"
     ],
-    "time": "12:00 Atlantic/Faroe (UTC+0; UTC+1 with summer time, EU rule, from 1981)",
-    "before_1970": "not needed: every commit is dated by the retrieval day"
+    "time": "12:00 UTC for this correction set"
   },
   "author": {
     "consolidated": "Lógasavnið (Løgmansskrivstovan)",
@@ -53,5 +55,12 @@
     "file": "(.+)/paragraf-([0-9]+[a-z]?)(~[0-9]+)?\\.md",
     "cites": "§ ?{n}([^0-9a-z]|$)"
   },
-  "tool": "tools/in_force_on.py"
+  "tool": "tools/in_force_on.py",
+  "build": "partial",
+  "source_dating": {
+    "dated": 659,
+    "text-as-of": 262,
+    "hold": 408
+  },
+  "first_law": null
 }

@@ -4,7 +4,8 @@
     python tools/in_force_on.py 2026-10-29 logtingslog/2013/49 paragraf-1      # its § 1
     python tools/in_force_on.py 2026-10-29 logtingslog/2015/30 paragraf-9      # copyright act, § 9
 
-Reads the `In-force:` and `Consolidated:` trailers (the real dates, not the commit date or your time zone).
+Reads observed law versions by their trailers, not by the commit date or your time zone.
+Metadata corrections record separate commencement evidence and do not create observed law versions.
 The record of every act starts at its text as retrieved from logir.fo; a date before that has no version here.
 Standard library only.
 """
@@ -19,11 +20,13 @@ def git(*args: str) -> str:
 
 def commit_on(day: str, path: str) -> tuple[str | None, str | None]:
     """The last commit on or before `day` that touched `path`, and the earliest date known for it."""
-    fmt = '%H%x1f%(trailers:key=In-force,valueonly,separator=)%x1f%(trailers:key=Consolidated,valueonly,separator=)'
+    fmt = '%H%x1f%(trailers:key=In-force,valueonly,separator=)%x1f%(trailers:key=Consolidated,valueonly,separator=)%x1f%(trailers:key=Kind,valueonly,separator=)%x1f%(trailers:key=Text-as-of,valueonly,separator=)'
     earliest = None
     for line in git('log', '--first-parent', '--no-merges', f'--format={fmt}', 'main', '--', path).splitlines():
-        h, inforce, consolidated = (line.split('\x1f') + ['', ''])[:3]
-        d = (inforce or consolidated).strip()
+        h, inforce, consolidated, kind, text_as_of = (line.split('\x1f') + ['', '', '', ''])[:5]
+        if kind.strip() == 'correction':
+            continue
+        d = (text_as_of or consolidated or inforce).strip()
         if not d:
             continue
         earliest = d
