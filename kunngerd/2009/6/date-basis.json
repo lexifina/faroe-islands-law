@@ -1,0 +1,30 @@
+{
+  "act": "kunngerd/2009/6",
+  "status": "dated",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2009-01-26",
+  "published": "2009-01-29",
+  "gazette": "Kunngerðarblað 2009 A - Hefti 3 A frá 29. januar 2009",
+  "source": "https://logir.fo/Kunngerd/6-fra-26-01-2009-um-gjold-fyri-veterinerar-og-heilsufrodiligar-kanningar-og-eftirlit",
+  "corrects": "efcff9a1abceb847fe597cb9113e57ad90f31d11",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "38",
+      "date": "2023-03-20"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "27",
+      "date": "2011-04-11"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "74",
+      "date": "2014-05-22"
+    }
+  ],
+  "in_force_basis": "Latest source-named amendment: Henda kunngerð kemur í gildi 1. juni 2023",
+  "in_force": "2023-06-01"
+}
