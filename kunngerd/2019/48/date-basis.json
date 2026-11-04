@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/2019/48",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2019-04-30",
+  "published": "2019-05-02",
+  "gazette": "Kunngerðarblað 2019 A - Kunngerð 48 frá 30. apríl 2019",
+  "source": "https://logir.fo/Kunngerd/48-fra-30-04-2019-um-siglingarbokur",
+  "corrects": "9f82b9f308a5e65ad1983d7d983ca822f2152e8e",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "137",
+      "date": "2025-08-11"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
