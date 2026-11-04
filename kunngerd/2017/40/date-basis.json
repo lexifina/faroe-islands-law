@@ -1,0 +1,20 @@
+{
+  "act": "kunngerd/2017/40",
+  "status": "dated",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2017-04-05",
+  "published": "2017-04-10",
+  "gazette": "Kunngerðarblað 2017 A - Kunngerð 40 frá 5. apríl 2017",
+  "source": "https://logir.fo/Kunngerd/40-fra-05-04-2017-fra-Sjovinnustyrinum-um-byggikrov-og-utgerdarkrov-oa-til-ferdamannaskip-i-innanoyggjasigling",
+  "corrects": "c9cd60db8e215f5dedd9f563208d93919c64d932",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "99",
+      "date": "2018-06-06"
+    }
+  ],
+  "in_force_basis": "Latest source-named amendment: Henda kunngerð kemur í gildi 15. juli 2018.",
+  "in_force": "2018-07-15"
+}
