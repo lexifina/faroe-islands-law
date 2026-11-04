@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/2014/98",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2014-10-07",
+  "published": "2014-10-10",
+  "gazette": "Kunngerðarblað 2014 A - Kunngerð 98 frá 7. oktober 2014",
+  "source": "https://logir.fo/Kunngerd/98-fra-07-10-2014-um-skyldu-at-hava-hund-i-bandi",
+  "corrects": "8d7cce9253bafacc4a4a253778f5b6bd03890b26",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "95",
+      "date": "2017-06-13"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
