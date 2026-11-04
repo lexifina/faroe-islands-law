@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/2020/222",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2020-12-28",
+  "published": "2020-12-29",
+  "gazette": "Kunngerðarblað 2020 A - Kunngerð 222 frá 28. desember 2020",
+  "source": "https://logir.fo/Kunngerd/222-fra-28-12-2020-um-skipan-godkenning-oa-av-tryggjadum-bufyriskipanum-sambaert--50-i",
+  "corrects": "a63ec4eca4731308bd88df57faaeb33a1990e3c1",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "8",
+      "date": "2021-01-25"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
