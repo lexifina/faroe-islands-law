@@ -1,0 +1,35 @@
+{
+  "act": "logtingslog/2001/64",
+  "status": "dated",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2001-04-27",
+  "published": "2001-05-04",
+  "gazette": "Kunngerðarblað 2001 A - Hefti 12 A frá 4. mai 2001",
+  "source": "https://logir.fo/Logtingslog/64-fra-27-04-2001-um-vinnu-sum-seinast-broytt-vid-logtingslog-nr-75-fra-25",
+  "corrects": "d445597556b0026cf31985054c30b41924ba0ab8",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "75",
+      "date": "2009-05-25"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "55",
+      "date": "2006-05-16"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "18",
+      "date": "2008-05-08"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "31",
+      "date": "2022-03-17"
+    }
+  ],
+  "in_force_basis": "Latest source-named amendment: Henda løgtingslóg kemur í gildi 1. juli 2022 og samstundis fara løgtingslóg nr. 110 frá 13. desember 2006 um kærunevnd í lendismálum og løgtingslóg nr. 17 frá 8. mai 2008 um Vinnukærunevnd úr gildi.",
+  "in_force": "2022-07-01"
+}
