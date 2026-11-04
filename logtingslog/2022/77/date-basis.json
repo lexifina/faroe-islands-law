@@ -1,0 +1,19 @@
+{
+  "act": "logtingslog/2022/77",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2022-05-06",
+  "published": "2022-05-07",
+  "gazette": "Kunngerðarblað 2022 A - Løgtingslóg 77 frá 6. mai 2022",
+  "source": "https://logir.fo/Logtingslog/77-fra-06-05-2022-um-Folkaheilsustyrid",
+  "corrects": "f40fe0b0f1896c2d18dcb1795262ef195f08de74",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "59",
+      "date": "2024-05-29"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
