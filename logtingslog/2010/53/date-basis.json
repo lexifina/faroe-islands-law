@@ -1,0 +1,19 @@
+{
+  "act": "logtingslog/2010/53",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2010-05-26",
+  "published": "2010-05-31",
+  "gazette": "Kunngerðarblað 2010 A - Hefti 13 A frá 31. mai 2010",
+  "source": "https://logir.fo/Logtingslog/53-fra-26-05-2010-um-einkaraett-til-at-byggja-reka-og-figgja-undirsjovartunnil-undir-Skalafjord",
+  "corrects": "21cb7a8cf3d87ade811bc035e54ba20e21f6a00a",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "35",
+      "date": "2011-05-06"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
