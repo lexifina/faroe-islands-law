@@ -1,0 +1,29 @@
+{
+  "act": "kunngerd/2013/75",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2013-06-03",
+  "published": "2013-06-07",
+  "gazette": "Kunngerðarblað 2013 A - Kunngerð 75 frá 3. juni 2013",
+  "source": "https://logir.fo/Kunngerd/75-fra-03-06-2013-um-utbugving-innan-timburutbugving",
+  "corrects": "3c6df73c864253ef8b83e6a1f3830088ef659040",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "20",
+      "date": "2023-02-14"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "140",
+      "date": "2020-09-24"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "111",
+      "date": "2015-10-09"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
