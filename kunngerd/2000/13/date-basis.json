@@ -1,0 +1,24 @@
+{
+  "act": "kunngerd/2000/13",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2000-02-11",
+  "published": "2000-02-16",
+  "gazette": "Kunngerðarblað 2000 A - Hefti 3 A frá 16. februar 2000",
+  "source": "https://logir.fo/Kunngerd/13-fra-11-01-2000-um-bygningar-folkakirkjunnar",
+  "corrects": "0891e8509eb65d82e9378ef6136d22ada8e55a37",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "91",
+      "date": "2022-05-12"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "165",
+      "date": "2025-11-04"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
