@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/2018/90",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2018-06-27",
+  "published": "2018-06-29",
+  "gazette": "Kunngerðarblað 2018 A - Kunngerð 90 frá 27. juni 2018",
+  "source": "https://logir.fo/Kunngerd/90-fra-27-06-2018-um-virking-av-alifiski-i-Suduroy",
+  "corrects": "b3ca7ecc053cc1b4899542e7bee913dac22b3d02",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "106",
+      "date": "2022-07-04"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
