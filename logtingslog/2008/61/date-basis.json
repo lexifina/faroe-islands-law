@@ -1,0 +1,19 @@
+{
+  "act": "logtingslog/2008/61",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2008-06-10",
+  "published": "2008-06-13",
+  "gazette": "Kunngerðarblað 2008 A - Hefti 11 A frá 13. juni 2008",
+  "source": "https://logir.fo/Logtingslog/61-fra-10-06-2008-um-tiltok-at-minka-um-royking",
+  "corrects": "8ec74c1a5c5fec44e42b982321ebd64f3d6f091f",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "149",
+      "date": "2023-12-19"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
