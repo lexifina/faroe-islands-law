@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/2020/175",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2020-12-16",
+  "published": "2020-12-16",
+  "gazette": "Kunngerðarblað 2020 A - Kunngerð 175 frá 26. desember 2020",
+  "source": "https://logir.fo/Kunngerd/175-fra-16-12-2020-um-tridjalond-sum-hava-noktandi-verndarstodi-vidvikjandi-flutningi-av-personupplysingum",
+  "corrects": "6ee487e97e212d52794071c140b920ce9dca01af",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "62",
+      "date": "2022-05-04"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
