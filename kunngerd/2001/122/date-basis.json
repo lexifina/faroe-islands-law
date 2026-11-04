@@ -1,0 +1,34 @@
+{
+  "act": "kunngerd/2001/122",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2001-08-24",
+  "published": "2001-08-30",
+  "gazette": "Kunngerðarblað 2001 A - Hefti 22 A frá 30. august 2001",
+  "source": "https://logir.fo/Kunngerd/122-fra-24-08-2001-um-vidgerd-keyp-og-solu-vm-av-fiski-og-fiskavorum-a",
+  "corrects": "34c39eed982d3984554c2863094f4d6d530eaeb5",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "153",
+      "date": "2025-10-06"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "54",
+      "date": "2002-04-19"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "128",
+      "date": "2010-12-28"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "9",
+      "date": "2009-02-05"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
