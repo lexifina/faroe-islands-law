@@ -1,0 +1,29 @@
+{
+  "act": "logtingslog/1990/83",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "1990-06-19",
+  "published": "1990-06-28",
+  "gazette": "Kunngerðarblað 1990 A - Hefti 13 A frá 28. juni 1990",
+  "source": "https://logir.fo/Logtingslog/83-fra-19-06-1990-m-studul-til-bygging-av-farmaskipum-sum-seinast-broytt-vid",
+  "corrects": "2d494943a936337d62de8e7627a61c7c052d7443",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "94",
+      "date": "1993-05-11"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "73",
+      "date": "1996-05-20"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "83",
+      "date": "1995-06-13"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
