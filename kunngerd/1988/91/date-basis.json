@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/1988/91",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "1988-07-06",
+  "published": "1988-07-09",
+  "gazette": "Kunngerðarblað 1988 A - Kunngerð 91 frá 6. juli 1988",
+  "source": "https://logir.fo/Kunngerd/91-fra-06-07-1988-um-skipskokkaroynd-sum-broytt-vid-kunngerd-nr-93-fra-11-juli",
+  "corrects": "e976e599210fb183c53bcbae851ae9c2e88b90bb",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "93",
+      "date": "1988-07-11"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
