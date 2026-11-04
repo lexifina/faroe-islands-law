@@ -1,0 +1,25 @@
+{
+  "act": "kunngerd/2009/97",
+  "status": "dated",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2009-07-03",
+  "published": "2009-07-16",
+  "gazette": "Kunngerðarblað 2009 A - Hefti 19 A frá 16. juli 2009",
+  "source": "https://logir.fo/Kunngerd/97-fra-03-07-2009-um-gjold-fyri-aliloyvi",
+  "corrects": "9e2f0ce69ff83ff9d3358ed8b78905891e959f8a",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "118",
+      "date": "2011-09-08"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "141",
+      "date": "2024-12-19"
+    }
+  ],
+  "in_force_basis": "Latest source-named amendment: Henda kunngerð kemur í gildi 1. januar 2025.",
+  "in_force": "2025-01-01"
+}
