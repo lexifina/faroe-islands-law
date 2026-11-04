@@ -1,0 +1,24 @@
+{
+  "act": "kunngerd/2016/74",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2016-06-28",
+  "published": "2016-07-01",
+  "gazette": "Kunngerðarblað 2016 A - Kunngerð 74 frá 28. juni 2016",
+  "source": "https://logir.fo/Kunngerd/74-fra-28-06-2016-um-skraseting-av-skotvapnum",
+  "corrects": "03c6ca45bafd31f6b168f71af48bbaa7bdd79016",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "5",
+      "date": "2021-01-13"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "92",
+      "date": "2016-09-07"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
