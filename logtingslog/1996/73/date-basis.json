@@ -1,0 +1,19 @@
+{
+  "act": "logtingslog/1996/73",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "1996-05-20",
+  "published": "1996-05-31",
+  "gazette": "Kunngerðarblað 1996 A - Hefti 9 A frá 31. mai 1996",
+  "source": "https://logir.fo/Logtingslog/73-fra-20-05-1996-um-studning-til-skipasmidjur-sum-broytt-vid-logtingslog-nr-49-fra",
+  "corrects": "3acf18b8efae50253d948323497a9ea4f565d30e",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "49",
+      "date": "2002-03-26"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
