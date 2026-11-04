@@ -1,0 +1,24 @@
+{
+  "act": "kunngerd/2009/18",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2009-02-20",
+  "published": "2009-02-26",
+  "gazette": "Kunngerðarblað 2009 A - Hefti 7 A frá 26. februar 2009",
+  "source": "https://logir.fo/Kunngerd/18-fra-20-02-2009-um-studul-til-flutning-av-fiski",
+  "corrects": "b199e508e434f6c7995847a9cb45f0de7ff2608a",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "37",
+      "date": "2013-04-30"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "162",
+      "date": "2011-12-19"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
