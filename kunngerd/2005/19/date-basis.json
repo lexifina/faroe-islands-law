@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/2005/19",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2005-03-14",
+  "published": "2005-03-15",
+  "gazette": "Kunngerðarblað 2005 A - Hefti 7 A frá 15. mars 2005",
+  "source": "https://logir.fo/Kunngerd/19-fra-14-03-2005-um-nidurberjing-og-eftirlit-vid-ILA-Infectious-Salmon-Anaemia-ISA",
+  "corrects": "4a4c0695df6a1ea48f2a2c7b445626305b013dd8",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "60",
+      "date": "2026-06-18"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
