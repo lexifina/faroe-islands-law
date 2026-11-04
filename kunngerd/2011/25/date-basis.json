@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/2011/25",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2011-04-06",
+  "published": "2011-04-07",
+  "gazette": "Kunngerðarblað 2011 A - Hefti 10 A frá 7. apríl 2011",
+  "source": "https://logir.fo/Kunngerd/25-fra-06-04-2011-um-skra-yvir-godkend-grannskodanarvirkir-og-yvir-godkendar-grannskodarar",
+  "corrects": "67c449f1a7ef43339a6aaee12facbb17e7fab023",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "71",
+      "date": "2012-05-21"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
