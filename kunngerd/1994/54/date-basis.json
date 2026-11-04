@@ -1,0 +1,20 @@
+{
+  "act": "kunngerd/1994/54",
+  "status": "dated",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "1994-05-03",
+  "published": "1994-05-11",
+  "gazette": "Kunngerðarblað 1994 A - Hefti 10 A frá 11. mai 1994",
+  "source": "https://logir.fo/Kunngerd/54-fra-03-05-1994-um-at-leggja-eftirlits-og-umsitingaruppgavur-eftir-umhvorvisverndarlogini-til-Umhvorvisstovuna-sum",
+  "corrects": "7d448ed3d89d112312d8ee52d962707368c9e912",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "90",
+      "date": "2007-09-28"
+    }
+  ],
+  "in_force_basis": "Latest source-named amendment: Henda kunngerð kemur í gildi 1. oktober 2007.",
+  "in_force": "2007-10-01"
+}
