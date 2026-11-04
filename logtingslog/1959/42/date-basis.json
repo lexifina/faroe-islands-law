@@ -1,0 +1,24 @@
+{
+  "act": "logtingslog/1959/42",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "1959-07-17",
+  "published": "1959-07-17",
+  "gazette": "Kunngerðarblað 1959 A - Løgtingslóg 42 frá 17. juli 1959",
+  "source": "https://logir.fo/Logtingslog/42-fra-17-07-1959-um-flaggid-sum-broytt-vid-logtingslog-nr-109-fra-29-desember",
+  "corrects": "a1548603820e20a4fc740428192df493a6475b7c",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "109",
+      "date": "1998-12-29"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "149",
+      "date": "2023-12-19"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
