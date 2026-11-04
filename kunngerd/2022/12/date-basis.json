@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/2022/12",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2022-02-03",
+  "published": "2022-02-03",
+  "gazette": "Kunngerðarblað 2022 A - Kunngerð 12 frá 3. februar 2022",
+  "source": "https://logir.fo/Kunngerd/12-fra-03-02-2022-um-iskoyti-til-gjald-fyri-avis-hjalparrad",
+  "corrects": "49df2769707fecdeb2c8455107f29958207d266d",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "107",
+      "date": "2024-11-12"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
