@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/2015/103",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2015-08-04",
+  "published": "2015-08-07",
+  "gazette": "Kunngerðarblað 2015 A - Kunngerð 103 frá 7. august 2015",
+  "source": "https://logir.fo/Kunngerd/103-fra-04-08-2015-um-gjald-fyri-tulkataenastu-i-sambandi-vid-laeknahjalp",
+  "corrects": "cc864d52cbdf2941e72353eb13f689581437d871",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "115",
+      "date": "2015-11-09"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
