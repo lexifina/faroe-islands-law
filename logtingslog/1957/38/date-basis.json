@@ -1,0 +1,24 @@
+{
+  "act": "logtingslog/1957/38",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "1957-05-04",
+  "published": "1957-05-04",
+  "gazette": "Kunngerðarblað 1957 A - Løgtingslóg 38 frá 4. mai 1957",
+  "source": "https://logir.fo/Logtingslog/38-fra-04-05-1957-um-uppmaling-av-skipum-sum-seinast-broytt-vid-logtingslog-nr-90",
+  "corrects": "bddf4b97b91104463a76d9bb97a61c1537d0d766",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "90",
+      "date": "1982-06-10"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "23",
+      "date": "1967-06-09"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
