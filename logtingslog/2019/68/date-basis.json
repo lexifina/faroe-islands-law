@@ -1,0 +1,19 @@
+{
+  "act": "logtingslog/2019/68",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2019-05-09",
+  "published": "2019-05-13",
+  "gazette": "Kunngerðarblað 2019 A - Løgtingslóg 68 frá 9. mai 2019",
+  "source": "https://logir.fo/Logtingslog/68-fra-09-05-2019-um-studningslan-til-at-byggja-husarhaldsskula-i-Klaksvik",
+  "corrects": "ae240b3f1a87b9549fe891fd7f0da2146323ec6d",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "114",
+      "date": "2022-08-05"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
