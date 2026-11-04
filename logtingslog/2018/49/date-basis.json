@@ -1,0 +1,29 @@
+{
+  "act": "logtingslog/2018/49",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2018-04-30",
+  "published": "2018-05-04",
+  "gazette": "Kunngerðarblað 2018 A - Løgtingslóg 49 frá 30. apríl 2018",
+  "source": "https://logir.fo/Logtingslog/49-fra-30-04-2018-um-djoravaelferd-Djoravaelferdarlogin",
+  "corrects": "fdbdd53f6b1f4e65a7c5770469902c4f43ae4dfc",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "44",
+      "date": "2026-05-28"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "31",
+      "date": "2022-03-17"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "91",
+      "date": "2020-06-07"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
