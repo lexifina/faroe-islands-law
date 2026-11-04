@@ -1,0 +1,19 @@
+{
+  "act": "logtingslog/1996/84",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "1996-05-28",
+  "published": "1996-06-12",
+  "gazette": "Kunngerðarblað 1996 A - Hefti 10 A frá 12. juni 1996",
+  "source": "https://logir.fo/Logtingslog/84-fra-28-05-1996-um-studul-til-menning-av-fiskivinnu-a-landi-sum-broytt-vid",
+  "corrects": "23d3369b3dbc6233de58bfaf82852b82c6ab1e60",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "110",
+      "date": "1997-06-13"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
