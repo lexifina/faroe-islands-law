@@ -1,0 +1,24 @@
+{
+  "act": "kunngerd/1994/53",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "1994-05-03",
+  "published": "1994-05-11",
+  "gazette": "Kunngerðarblað 1994 A - Hefti 10 A frá 11. mai 1994",
+  "source": "https://logir.fo/Kunngerd/53-fra-03-05-1994-um-umhvorvisreglur-sum-seinast-broytt-vid-kunngerd-nr-111-fra-7",
+  "corrects": "52d2b40d9b3232d55dd222f092435d9b13121ff9",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "90",
+      "date": "2007-09-28"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "111",
+      "date": "2009-09-07"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
