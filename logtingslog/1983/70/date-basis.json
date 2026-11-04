@@ -1,0 +1,24 @@
+{
+  "act": "logtingslog/1983/70",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "1983-06-30",
+  "published": "1983-07-07",
+  "gazette": "Kunngerðarblað 1983 A - Løgtingslóg 70 frá 30. juni 1983",
+  "source": "https://logir.fo/Logtingslog/70-fra-30-06-1983-um-fritidarundirvising-vm-sum-seinast-broytt-vid-logtingslog-nr-124-fra",
+  "corrects": "09d18b9151b86f6d22583b9d5708565daf4c9f4b",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "67",
+      "date": "1996-05-20"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "124",
+      "date": "2003-12-10"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
