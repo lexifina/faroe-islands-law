@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/2006/83",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2006-08-17",
+  "published": "2006-08-18",
+  "gazette": "Kunngerðarblað 2006 A - Hefti 17 A frá 18. august 2006",
+  "source": "https://logir.fo/Kunngerd/83-fra-17-08-2006-um-sjuklingarad",
+  "corrects": "d8f3fb1976644f56a619a2be9936d335655db55a",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "125",
+      "date": "2022-09-09"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
