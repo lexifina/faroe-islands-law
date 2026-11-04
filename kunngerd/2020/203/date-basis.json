@@ -1,0 +1,29 @@
+{
+  "act": "kunngerd/2020/203",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2020-12-18",
+  "published": "2020-12-22",
+  "gazette": "Kunngerðarblað 2020 A - Kunngerð 203 frá 18. desember 2020",
+  "source": "https://logir.fo/Kunngerd/203-fra-18-12-2020-um-ALSgjald",
+  "corrects": "5e784e98126d62b3acb4bfd2d39b2d45397233e8",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "69",
+      "date": "2026-07-21"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "107",
+      "date": "2023-10-06"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "176",
+      "date": "2025-11-18"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
