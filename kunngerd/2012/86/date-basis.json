@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/2012/86",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2012-07-02",
+  "published": "2012-07-06",
+  "gazette": "Kunngerðarblað 2012 A - Hefti 28 A frá 6. juli 2012",
+  "source": "https://logir.fo/Kunngerd/86-fra-02-07-2012-fra-starvsskipan-fyri-Grannskodaraeftirlitid",
+  "corrects": "8a42020b90aed938c4c6ef86d77a765d30546f76",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "136",
+      "date": "2021-09-23"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
