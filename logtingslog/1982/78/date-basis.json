@@ -1,0 +1,24 @@
+{
+  "act": "logtingslog/1982/78",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "1982-05-21",
+  "published": "1982-06-10",
+  "gazette": "Kunngerðarblað 1982 A - Løgtingslóg 78 frá 21. mai 1982",
+  "source": "https://logir.fo/Logtingslog/78-fra-21-05-1982-um-loddjorahald--pelsdyrhold-sum-broytt-vid-logtingslog-nr-fra-110",
+  "corrects": "8a9b853957db123c259d279f8bb96c2a1ebf3af7",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "110",
+      "date": "1995-06-29"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "149",
+      "date": "2023-12-19"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
