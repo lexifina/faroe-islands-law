@@ -1,0 +1,20 @@
+{
+  "act": "kunngerd/2001/33",
+  "status": "dated",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2001-03-08",
+  "published": "2001-03-23",
+  "gazette": "Kunngerðarblað 2001 A - Hefti 8 A frá 23. mars 2001",
+  "source": "https://logir.fo/Kunngerd/33-fra-08-03-2001-um-mottokuskipanir-i-foroyskum-havnum-fyri-leivdir-og-blandingar-av-skadiligum",
+  "corrects": "8d65e5425e143943b4cfe2ac6924cf4141edd4ea",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "90",
+      "date": "2007-09-28"
+    }
+  ],
+  "in_force_basis": "Latest source-named amendment: Hendan kunngerð kemur í gildi 1. oktober 2007.",
+  "in_force": "2007-10-01"
+}
