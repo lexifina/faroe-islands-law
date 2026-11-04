@@ -1,0 +1,24 @@
+{
+  "act": "logtingslog/2001/9",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2001-02-05",
+  "published": "2001-02-19",
+  "gazette": "Kunngerðarblað 2001 A - Hefti 3 A frá 19. februar 2001",
+  "source": "https://logir.fo/Logtingslog/9-fra-05-02-2001-um-Trivnadar-og-heilsurad-sum-seinast-broytt-vid-logtingslog-nr-10",
+  "corrects": "0c67abaed113f7437c496e41d5b06072caa93163",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "143",
+      "date": "2001-12-11"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "10",
+      "date": "2003-02-10"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
