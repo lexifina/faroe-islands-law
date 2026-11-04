@@ -1,0 +1,19 @@
+{
+  "act": "logtingslog/2014/67",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2014-05-15",
+  "published": "2014-05-23",
+  "gazette": "Kunngerðarblað 2014 A - Løgtingslóg 67 frá 15. mai 2014",
+  "source": "https://logir.fo/Logtingslog/67-fra-15-05-2014-um-forleikameting",
+  "corrects": "4098353732ddcec236ce5fdaee55a2ab812dfc5e",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "55",
+      "date": "2017-05-10"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
