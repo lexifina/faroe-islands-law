@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/2001/86",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2001-05-15",
+  "published": "2001-05-22",
+  "gazette": "Kunngerðarblað 2001 A - Hefti 14 A frá 22. mai 2001",
+  "source": "https://logir.fo/Kunngerd/86-fra-15-05-2001-um-sattmalanevnd-sum-broytt-vid-kunngerd-nr-118-fra-24-august",
+  "corrects": "f76c89e87fe9848149ef89309c311f2446c960c1",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "118",
+      "date": "2001-08-24"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
