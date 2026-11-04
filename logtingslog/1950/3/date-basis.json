@@ -1,0 +1,25 @@
+{
+  "act": "logtingslog/1950/3",
+  "status": "dated",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "1950-01-03",
+  "published": "1950-01-03",
+  "gazette": "Kunngerðarblað 1950 A - Løgtingslóg 3 frá 3. januar 1950",
+  "source": "https://logir.fo/Logtingslog/3-fra-03-01-1950-um-vraking-av-foroyskum-ullvorum-til-utflutnings-sum-broytt-vid-logtingslog",
+  "corrects": "3a467e934e80853c2e32707007b981991a40275d",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "186",
+      "date": "1958-06-07"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "91",
+      "date": "2020-06-07"
+    }
+  ],
+  "in_force_basis": "Latest source-named amendment: Henda løgtingslóg kemur í gildi 1. januar 2021.",
+  "in_force": "2021-01-01"
+}
