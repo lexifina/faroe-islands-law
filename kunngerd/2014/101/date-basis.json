@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/2014/101",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2014-11-10",
+  "published": "2014-11-14",
+  "gazette": "Kunngerðarblað 2014 A - Kunngerð 101 frá 10. november 2014",
+  "source": "https://logir.fo/Kunngerd/101-fra-10-11-2014-um-iskoyti-til-tannvidgerd-hja-privatstarvandi-tannlaekna",
+  "corrects": "cfae055478e16bd0ded67f93f568271a75d3fd81",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "26",
+      "date": "2016-04-04"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
