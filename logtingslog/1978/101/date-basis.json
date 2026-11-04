@@ -1,0 +1,24 @@
+{
+  "act": "logtingslog/1978/101",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "1978-12-01",
+  "published": "1978-12-28",
+  "gazette": "Kunngerðarblað 1978 A - Løgtingslóg 101 frá 1. desember 1978",
+  "source": "https://logir.fo/Logtingslog/101-fra-01-12-1978-um-studning-til-folkahaskular-sum-broytt-vid-logtingslog-nr-67-fra",
+  "corrects": "1c32650dddb81e93b93c5eba372910000da29698",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "66",
+      "date": "2017-05-29"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "67",
+      "date": "1996-05-20"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
