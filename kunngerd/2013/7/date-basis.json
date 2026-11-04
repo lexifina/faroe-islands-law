@@ -1,0 +1,44 @@
+{
+  "act": "kunngerd/2013/7",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2013-01-22",
+  "published": "2013-02-01",
+  "gazette": "Kunngerðarblað 2013 A - Kunngerð 7 frá 22. januar 2013",
+  "source": "https://logir.fo/Kunngerd/7-fra-22-01-2013-um-upptoku-i-gymnasialu-midnamsutbugvingarnar",
+  "corrects": "2a67059256176b7ecda0b0cc6199dab3cd7edff2",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "14",
+      "date": "2019-03-05"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "120",
+      "date": "2019-07-19"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "14",
+      "date": "2020-03-02"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "21",
+      "date": "2014-04-07"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "19",
+      "date": "2015-03-23"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "60",
+      "date": "2016-05-11"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
