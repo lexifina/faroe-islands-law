@@ -1,0 +1,30 @@
+{
+  "act": "logtingslog/1992/75",
+  "status": "dated",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "1992-05-13",
+  "published": "1992-05-22",
+  "gazette": "Kunngerðarblað 1992 A - Hefti 18 A frá 22. mai 1992",
+  "source": "https://logir.fo/Logtingslog/75-fra-13-05-1992-um-umhvorvisgjald-a-smyrjiolju-sum-seinast-broytt-vid-logtingslog-nr-48",
+  "corrects": "9c6741525d3653f46fd9e8ea996cc969b01e204c",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "157",
+      "date": "2001-12-20"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "48",
+      "date": "2008-06-02"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "154",
+      "date": "2015-12-23"
+    }
+  ],
+  "in_force_basis": "Latest source-named amendment: Henda løgtingslóg kemur í gildi 1. januar 2016.",
+  "in_force": "2016-01-01"
+}
