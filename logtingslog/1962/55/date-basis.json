@@ -1,0 +1,74 @@
+{
+  "act": "logtingslog/1962/55",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "1962-08-16",
+  "published": "1962-08-16",
+  "gazette": "Kunngerðarblað 1962 A - Løgtingslóg 55 frá 16. august 1962",
+  "source": "https://logir.fo/Logtingslog/55-fra-16-08-1962-um-tinglysing-sum-seinast-broytt-vid-logtingslog-nr-75-fra-25",
+  "corrects": "47ec06667275929f4abcaa673d6b9f3863c10fe8",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "59",
+      "date": "2000-05-10"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "164",
+      "date": "2005-12-22"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "70",
+      "date": "2014-05-15"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "75",
+      "date": "2009-05-25"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "24",
+      "date": "1973-05-01"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "31",
+      "date": "2022-03-17"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "111",
+      "date": "2006-12-13"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "156",
+      "date": "2021-12-10"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "37",
+      "date": "1985-05-29"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "39",
+      "date": "1987-05-05"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "31",
+      "date": "2023-03-09"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "128",
+      "date": "2024-12-13"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
