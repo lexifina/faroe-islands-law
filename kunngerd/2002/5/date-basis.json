@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/2002/5",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2002-01-30",
+  "published": "2002-01-31",
+  "gazette": "Kunngerðarblað 2002 A - Hefti 3 A frá 31. januar 2002",
+  "source": "https://logir.fo/Kunngerd/5-fra-30-01-2002-um-vidurkenning-av-utlendskum-sjovinnubrovum-til-taenastu-umbord-a-handilsskipum",
+  "corrects": "f95312cf266becaab57ffad52044d09368b8536f",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "39",
+      "date": "2012-05-01"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
