@@ -1,0 +1,29 @@
+{
+  "act": "logtingslog/1988/62",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "1988-06-09",
+  "published": "1988-06-18",
+  "gazette": "Kunngerðarblað 1988 A - Løgtingslóg 62 frá 9. juni 1988",
+  "source": "https://logir.fo/Logtingslog/62-fra-09-06-1988-um-avisar-skular-sum-seinast-broytt-vid-logtingslog-nr-49-fra",
+  "corrects": "042dfb489630da90e47bc189bf9f78147935ee31",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "67",
+      "date": "1996-05-20"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "7",
+      "date": "1990-01-16"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "49",
+      "date": "2001-04-03"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
