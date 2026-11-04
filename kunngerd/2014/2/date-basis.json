@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/2014/2",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2014-01-07",
+  "published": "2014-01-10",
+  "gazette": "Kunngerðarblað 2014 A - Kunngerð 2 frá 7. januar 2014",
+  "source": "https://logir.fo/Kunngerd/2-fra-07-01-2014-um-alment-talgilt-kunngerdablad",
+  "corrects": "4d91418885080d6c9639f302ec0ed3621f0116cf",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "88",
+      "date": "2016-08-29"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
