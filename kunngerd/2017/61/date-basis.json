@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/2017/61",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2017-05-16",
+  "published": "2017-05-18",
+  "gazette": "Kunngerðarblað 2017 A - Kunngerð 61 frá 16. mai 2017",
+  "source": "https://logir.fo/Kunngerd/61-fra-16-05-2017-um-tilgerd-og-utgerd-hja-akforum-Utgerdarkunngerdin",
+  "corrects": "6923bcbb43da34b3e212dbc8b691071efa93da6f",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "135",
+      "date": "2020-09-01"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
