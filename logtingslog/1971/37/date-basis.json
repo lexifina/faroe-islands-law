@@ -1,0 +1,19 @@
+{
+  "act": "logtingslog/1971/37",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "1971-08-05",
+  "published": "1971-08-21",
+  "gazette": "Kunngerðarblað 1971 A - Løgtingslóg 37 frá 5. august 1971",
+  "source": "https://logir.fo/Logtingslog/37-fra-05-08-1971-um-taenastumannalonir-vm-og-flokking-af-taenastumannastorvum--tjenestemandslonninger-og-klassificering",
+  "corrects": "7f6fabba044bdf363a1a17e0edebe6d13c3daeb1",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "70",
+      "date": "1993-04-02"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
