@@ -1,0 +1,64 @@
+{
+  "act": "kunngerd/2005/95",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2005-06-27",
+  "published": "2005-06-29",
+  "gazette": "Kunngerðarblað 2005 A - Hefti 19 A frá 29. juni 2005",
+  "source": "https://logir.fo/Kunngerd/95-fra-27-06-2005-um-treytir-fyri-avreiding-i-Foroyum-og-uttanlands-sum-seinast-broytt",
+  "corrects": "4d90b5776a92a2eceb1ffc90531e88b27f1d3e47",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "68",
+      "date": "2012-05-16"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "44",
+      "date": "2010-05-10"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "25",
+      "date": "2013-04-19"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "18",
+      "date": "2006-03-22"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "114",
+      "date": "2010-12-13"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "41",
+      "date": "2011-05-23"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "108",
+      "date": "2011-08-30"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "92",
+      "date": "2012-09-17"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "110",
+      "date": "2013-08-19"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "111",
+      "date": "2014-12-11"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
