@@ -1,0 +1,19 @@
+{
+  "act": "logtingslog/1998/99",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "1998-12-29",
+  "published": "1998-12-31",
+  "gazette": "Kunngerðarblað 1998 A - Hefti 23 A frá 31. desember 1998",
+  "source": "https://logir.fo/Logtingslog/99-fra-29-12-1998-um-gjald-av-vinningi-vid-burturluting-vm",
+  "corrects": "858c14e431f65dcfa7800880f4a5c3e1fb893f72",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "45",
+      "date": "2011-05-17"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
