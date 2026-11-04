@@ -1,0 +1,19 @@
+{
+  "act": "logtingslog/2025/67",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2025-04-28",
+  "published": "2025-04-29",
+  "gazette": "Kunngerðarblað 2025 A - Løgtingslóg 67 frá 28. apríl 2025",
+  "source": "https://logir.fo/Logtingslog/67-fra-28-04-2025-um-heilivag",
+  "corrects": "4671b897e8f82943d2f4cca333a048f02f0aaae6",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "41",
+      "date": "2026-05-21"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
