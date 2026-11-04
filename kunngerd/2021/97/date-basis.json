@@ -1,0 +1,24 @@
+{
+  "act": "kunngerd/2021/97",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2021-06-17",
+  "published": "2021-06-18",
+  "gazette": "Kunngerðarblað 2021 A - Kunngerð 97 frá 17. juni 2021",
+  "source": "https://logir.fo/Kunngerd/97-fra-17-06-2021-um-utbugvingar-a-Frodskaparsetri-Foroya",
+  "corrects": "231fde7ae78965d17d880a552a6bd6596368065f",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "23",
+      "date": "2025-02-28"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "108",
+      "date": "2021-06-25"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
