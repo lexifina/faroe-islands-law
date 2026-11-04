@@ -1,0 +1,30 @@
+{
+  "act": "logtingslog/2007/46",
+  "status": "dated",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2007-05-15",
+  "published": "2007-05-16",
+  "gazette": "Kunngerðarblað 2007 A - Hefti 10 A 16 mai 2007",
+  "source": "https://logir.fo/Logtingslog/46-fra-15-05-2007-um-kavaravinnu-og-kavarautgerd",
+  "corrects": "5fb4e024bd6150e982d9d49d769b1b61cb30638c",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "31",
+      "date": "2022-03-17"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "168",
+      "date": "2021-12-16"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "91",
+      "date": "2020-06-07"
+    }
+  ],
+  "in_force_basis": "Latest source-named amendment: Henda løgtingslóg kemur í gildi 1. juli 2022 og samstundis fara løgtingslóg nr. 110 frá 13. desember 2006 um kærunevnd í lendismálum og løgtingslóg nr. 17 frá 8. mai 2008 um Vinnukærunevnd úr gildi.",
+  "in_force": "2022-07-01"
+}
