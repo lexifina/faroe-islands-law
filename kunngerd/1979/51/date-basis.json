@@ -1,0 +1,24 @@
+{
+  "act": "kunngerd/1979/51",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "1979-06-26",
+  "published": "1979-06-30",
+  "gazette": "Kunngerðarblað 1979 A - Kunngerð 51 frá 26. juni 1979",
+  "source": "https://logir.fo/Kunngerd/51-fra-26-06-1979-um-dagpening-sum-seinast-broytt-vid-kunngerd-nr-3-fra-21",
+  "corrects": "be0e082e77902ebd6dba87d3a618349a088f846e",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "3",
+      "date": "1998-01-21"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "121",
+      "date": "1986-12-19"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
