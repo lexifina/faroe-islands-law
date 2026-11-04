@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/1958/44",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "1958-09-18",
+  "published": "1958-09-18",
+  "gazette": "Kunngerðarblað 1958 A - Kunngerð 44 frá 18. september 1958",
+  "source": "https://logir.fo/Kunngerd/44-fra-18-09-1958-um-upkrevjing-av-gjoldum-vm-eftir-logtingslog-nr-23-fra-11",
+  "corrects": "564a58a36ffe44aad8051e903deaff9433d27cd4",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "111",
+      "date": "1997-06-13"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
