@@ -1,0 +1,19 @@
+{
+  "act": "logtingslog/1993/133",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "1993-06-10",
+  "published": "1993-06-26",
+  "gazette": "Kunngerðarblað 1993 A - Hefti 18 A frá 26. juni 1993",
+  "source": "https://logir.fo/Logtingslog/133-fra-10-06-1993-um-innlit-i-fyrisitingina-sum-broytt-vid-logtingslog-nr-76-fra",
+  "corrects": "3b1aea3d7e10ba4bf2761e40472591ff5871a173",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "76",
+      "date": "2001-05-08"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
