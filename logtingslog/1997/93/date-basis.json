@@ -1,0 +1,60 @@
+{
+  "act": "logtingslog/1997/93",
+  "status": "dated",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "1997-06-06",
+  "published": "1997-06-13",
+  "gazette": "Kunngerðarblað 1997 A - Hefti 11 A frá 13. juni 1997",
+  "source": "https://logir.fo/Logtingslog/93-fra-06-06-1997-um-studul-til-ferdautreidslur-sum-seinast-broytt-vid-logtingslog-nr-121",
+  "corrects": "0e602717a74e59d61a72d11a139444ce47939c06",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "48",
+      "date": "2006-05-16"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "109",
+      "date": "2006-12-13"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "121",
+      "date": "2010-12-22"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "144",
+      "date": "2024-12-20"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "46",
+      "date": "2001-03-30"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "41",
+      "date": "2008-05-22"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "152",
+      "date": "2015-12-23"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "125",
+      "date": "2008-12-22"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "159",
+      "date": "2021-12-10"
+    }
+  ],
+  "in_force_basis": "Latest source-named amendment: Henda løgtingslóg kemur í gildi 1. januar 2025.",
+  "in_force": "2025-01-01"
+}
