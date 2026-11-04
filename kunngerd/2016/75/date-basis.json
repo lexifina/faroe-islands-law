@@ -1,0 +1,39 @@
+{
+  "act": "kunngerd/2016/75",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2016-06-28",
+  "published": "2016-07-01",
+  "gazette": "Kunngerðarblað 2016 A - Kunngerð 75 frá 28. juni 2016",
+  "source": "https://logir.fo/Kunngerd/75-fra-28-06-2016-um-yvirvoku-og-talming-av-lusum-a-alifiski",
+  "corrects": "8ef562afdbb5bc83dfa9b98f7aec7fc592426b17",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "106",
+      "date": "2019-07-15"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "93",
+      "date": "2021-06-03"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "124",
+      "date": "2023-11-27"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "29",
+      "date": "2023-03-02"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "118",
+      "date": "2016-11-28"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
