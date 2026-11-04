@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/2025/110",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2025-06-18",
+  "published": "2025-06-20",
+  "gazette": "Kunngerðarblað 2025 A - Kunngerð 110 frá 18. juni 2025",
+  "source": "https://logir.fo/Kunngerd/110-fra-18-06-2025-um-kommunalar-ferdavinnuaetlanir-avtalur-um-handilsliga-ferdavinnu-oa",
+  "corrects": "1ccfd1be20ae9798dd9cfe325ef1fd796d95be28",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "112",
+      "date": "2025-06-24"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
