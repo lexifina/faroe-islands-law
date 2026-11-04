@@ -1,0 +1,25 @@
+{
+  "act": "logtingslog/2015/53",
+  "status": "dated",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2015-05-12",
+  "published": "2015-05-22",
+  "gazette": "Kunngerðarblað 2015 A - Løgtingslóg 53 frá 12. mai 2015",
+  "source": "https://logir.fo/Logtingslog/53-fra-12-05-2015-um-PF-Liv-livs-og-pensionstryggingarfelag",
+  "corrects": "a9f068ab1dae78f02b4450f6865210bdc9ac9942",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "31",
+      "date": "2023-03-09"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "91",
+      "date": "2020-06-07"
+    }
+  ],
+  "in_force_basis": "Latest source-named amendment: Henda løgtingslóg kemur í gildi 1. september 2023.",
+  "in_force": "2023-09-01"
+}
