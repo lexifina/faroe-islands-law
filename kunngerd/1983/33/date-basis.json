@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/1983/33",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "1983-03-30",
+  "published": "1983-04-07",
+  "gazette": "Kunngerðarblað 1983 A - Kunngerð 33 frá 30. mars 1983",
+  "source": "https://logir.fo/Kunngerd/33-fra-30-03-1983-um-eina-standard-hyruvognsreglugerd-sum-broytt-vid-kunngerd-nr-139-fra",
+  "corrects": "54d8f4bad1e6b1440703dbb068c2df1d59c06194",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "139",
+      "date": "1990-12-07"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
