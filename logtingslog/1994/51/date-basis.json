@@ -1,0 +1,40 @@
+{
+  "act": "logtingslog/1994/51",
+  "status": "dated",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "1994-05-03",
+  "published": "1994-05-11",
+  "gazette": "Kunngerðarblað 1994 A - Hefti 10 A frá 11. mai 1994",
+  "source": "https://logir.fo/Logtingslog/51-fra-03-05-1994-um-aettleidingarstudul-sum-seinast-broytt-vid-logtingslog-nr-105-fra-11",
+  "corrects": "6001d9826cf7400c8a69c54975765a7c95d3d2ec",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "125",
+      "date": "2000-12-22"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "123",
+      "date": "2008-12-22"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "42",
+      "date": "2014-05-06"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "105",
+      "date": "2010-11-11"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "159",
+      "date": "2021-12-10"
+    }
+  ],
+  "in_force_basis": "Latest source-named amendment: Henda løgtingslóg kemur í gildi 1. januar 2022. Samstundis fer løgtingslóg nr. 47 frá 23. mars 1993 um kærunevnd í almanna-, familju- og heilsumálum úr gildi.",
+  "in_force": "2022-01-01"
+}
