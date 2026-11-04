@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/2015/95",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2015-07-02",
+  "published": "2015-07-03",
+  "gazette": "Kunngerðarblað 2015 A - Kunngerð 95 frá 2. juli 2015",
+  "source": "https://logir.fo/Kunngerd/95-fra-02-07-2015-um-hvat-ferdandi-kunnu-flyta-inn-tollfritt-og-avgjaldsfritt-til-Foroya",
+  "corrects": "bac0efac472a2e8bcefc6399d698675953b4e141",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "103",
+      "date": "2018-07-20"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
