@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/1962/5",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "1962-03-22",
+  "published": "1962-03-22",
+  "gazette": "Kunngerðarblað 1962 A - Kunngerð 5 frá 22. mars 1962",
+  "source": "https://logir.fo/Kunngerd/5-fra-22-03-1962-um-gjold-fyri-uppmaling-av-skipum-vm-sum-broytt-vid-kunngerd",
+  "corrects": "8d3081fc64719f076b405d9f1b7ca6fca2a2919a",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "90",
+      "date": "1989-09-21"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
