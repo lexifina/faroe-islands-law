@@ -1,0 +1,19 @@
+{
+  "act": "logtingslog/2003/34",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2003-03-18",
+  "published": "2003-03-28",
+  "gazette": "Kunngerðarblað 2003 A - Hefti 10 A frá 28. mars 2003",
+  "source": "https://logir.fo/Logtingslog/34-fra-18-03-2003-um-umsjon-vattanarveitan-og-eftirlit-samsvarandi-Sattmala-Sameindu-Tjoda-um-at",
+  "corrects": "cfac3725a9284049456a01b1bb1d75ea4a37f8e3",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "168",
+      "date": "2021-12-16"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
