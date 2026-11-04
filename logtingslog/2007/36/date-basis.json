@@ -1,0 +1,85 @@
+{
+  "act": "logtingslog/2007/36",
+  "status": "dated",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2007-05-03",
+  "published": "2007-05-09",
+  "gazette": "Kunngerðarblað 2007 A - Hefti 9 A frá 9. mai 2007",
+  "source": "https://logir.fo/Logtingslog/36-fra-03-05-2007-um-lestrarstudul-sum-seinast-broytt-vid-logtingslog-nr-135-fra-28",
+  "corrects": "2661b685207b7dc7f2af7835245118c0e7d03812",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "41",
+      "date": "2015-05-07"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "44",
+      "date": "2021-04-22"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "135",
+      "date": "2010-12-28"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "49",
+      "date": "2014-05-15"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "76",
+      "date": "2009-05-25"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "102",
+      "date": "2016-11-03"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "183",
+      "date": "2025-11-24"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "174",
+      "date": "2011-12-29"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "154",
+      "date": "2009-12-14"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "165",
+      "date": "2017-12-20"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "74",
+      "date": "2017-05-29"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "53",
+      "date": "2016-05-06"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "135",
+      "date": "2023-12-08"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "159",
+      "date": "2021-12-10"
+    }
+  ],
+  "in_force_basis": "Latest source-named amendment: Hendan løgtingslóg kemur í gildi 1. august 2026.",
+  "in_force": "2026-08-01"
+}
