@@ -1,0 +1,19 @@
+{
+  "act": "logtingslog/1950/1",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "1950-01-03",
+  "published": "1950-01-03",
+  "gazette": "Kunngerðarblað 1950 A - Løgtingslóg 1 frá 3. januar 1950",
+  "source": "https://logir.fo/Logtingslog/1-fra-03-01-1950-um-statistikk--om-statistik",
+  "corrects": "4701abe3ef9a1d08379c4d7ef691df27a2550036",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "149",
+      "date": "2023-12-19"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
