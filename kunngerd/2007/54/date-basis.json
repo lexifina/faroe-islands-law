@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/2007/54",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2007-05-31",
+  "published": "2007-06-08",
+  "gazette": "Kunngerðarblað 2007 A - Hefti 12 A frá 8. juni 2007",
+  "source": "https://logir.fo/Kunngerd/54-fra-31-05-2007-um-ilot-urdrattir-og-pant",
+  "corrects": "042407e175444e1e0ed5cdb572c82de16135261a",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "39",
+      "date": "2011-05-16"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
