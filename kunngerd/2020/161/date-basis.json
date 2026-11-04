@@ -1,0 +1,20 @@
+{
+  "act": "kunngerd/2020/161",
+  "status": "dated",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2020-12-09",
+  "published": "2020-12-10",
+  "gazette": "Kunngerðarblað 2020 A - Kunngerð 161 frá 9. desember 2020",
+  "source": "https://logir.fo/Kunngerd/161-fra-09-12-2020-um-iskoyti-til-gjald-fyri-veiting-hja-privatstarvandi-fysioterapeuti",
+  "corrects": "0e5a3046c68c88e869b09c227d59d606322a793c",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "104",
+      "date": "2025-05-21"
+    }
+  ],
+  "in_force_basis": "Latest source-named amendment: Henda kunngerð kemur í gildi 1. juni 2025.",
+  "in_force": "2025-06-01"
+}
