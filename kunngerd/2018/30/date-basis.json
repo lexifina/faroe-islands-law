@@ -1,0 +1,25 @@
+{
+  "act": "kunngerd/2018/30",
+  "status": "dated",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2018-04-11",
+  "published": "2018-04-13",
+  "gazette": "Kunngerðarblað 2018 A - Kunngerð 30 frá 11. apríl 2018",
+  "source": "https://logir.fo/Kunngerd/30-fra-11-04-2018-um-at-frida-avisar-leidir-i-foroyskum-sjogvi-fyri-veidu-vid",
+  "corrects": "b47f4cae27b0dd08842decddedd4d90d41f26781",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "164",
+      "date": "2020-12-09"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "117",
+      "date": "2021-07-20"
+    }
+  ],
+  "in_force_basis": "Latest source-named amendment: Henda kunngerð kemur í gildi 1. september 2021.",
+  "in_force": "2021-09-01"
+}
