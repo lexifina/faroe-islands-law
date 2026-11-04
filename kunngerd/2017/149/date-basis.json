@@ -1,0 +1,24 @@
+{
+  "act": "kunngerd/2017/149",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2017-11-27",
+  "published": "2017-12-01",
+  "gazette": "Kunngerðarblað 2017 A - Kunngerð 149 frá 27. november 2017",
+  "source": "https://logir.fo/Kunngerd/149-fra-27-11-2017-um-framleidslu-og-solu-av-matvorum-sum-ikki-eru-virkadar-a",
+  "corrects": "699ca8e3ffb22877d87381dd0b46dc6079821718",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "48",
+      "date": "2018-05-02"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "81",
+      "date": "2021-05-18"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
