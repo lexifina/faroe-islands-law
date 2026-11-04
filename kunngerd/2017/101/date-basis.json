@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/2017/101",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2017-07-12",
+  "published": "2017-07-14",
+  "gazette": "Kunngerðarblað 2017 A - Kunngerð 101 frá 12. juli 2017",
+  "source": "https://logir.fo/Kunngerd/101-fra-12-07-2017-um-uppbodssolu-av-makreli-nordhavssild-og-svartkjafti-og-botnfiski-i-Barentshavinum",
+  "corrects": "a4d104c563863c8362939a0a835fb75896b7cd92",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "117",
+      "date": "2017-08-02"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
