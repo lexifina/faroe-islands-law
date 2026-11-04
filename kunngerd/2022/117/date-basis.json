@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/2022/117",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2022-08-22",
+  "published": "2022-08-26",
+  "gazette": "Kunngerðarblað 2022 A - Kunngerð 117 frá 22. august 2022",
+  "source": "https://logir.fo/Kunngerd/117-fra-22-08-2022-fra-Sjovinnustyrinum-um-uppihaldsrum-oa-i-handilsskipum",
+  "corrects": "59c640b8ba287a66624b14e786582792f4258da8",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "28",
+      "date": "2025-03-13"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
