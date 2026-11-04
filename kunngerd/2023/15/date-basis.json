@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/2023/15",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2023-02-13",
+  "published": "2023-02-15",
+  "gazette": "Kunngerðarblað 2023 A - Kunngerð 15 frá 13. februar 2023",
+  "source": "https://logir.fo/Kunngerd/15-fra-13-02-2023-um-upplysingar-til-keypara-um-solupris-og-eindarpris",
+  "corrects": "278c67625a050f698cf6a7df5d787ec262d4789b",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "37",
+      "date": "2023-03-22"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
