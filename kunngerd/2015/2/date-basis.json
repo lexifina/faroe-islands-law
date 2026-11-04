@@ -1,0 +1,24 @@
+{
+  "act": "kunngerd/2015/2",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2015-01-13",
+  "published": "2015-01-16",
+  "gazette": "Kunngerðarblað 2015 A - Kunngerð 2 frá 13. januar 2015",
+  "source": "https://logir.fo/Kunngerd/2-fra-13-01-2015-um-parkeringskort-fyri-personar-vid-avlamni",
+  "corrects": "913b205cec82e146582caf0ccbc0b5ac0e2247f5",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "17",
+      "date": "2021-02-16"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "100",
+      "date": "2018-07-10"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
