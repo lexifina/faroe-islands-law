@@ -1,0 +1,25 @@
+{
+  "act": "logtingslog/2022/90",
+  "status": "dated",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2022-05-17",
+  "published": "2022-05-17",
+  "gazette": "Kunngerðarblað 2022 A - Løgtingslóg 90 frá 17. mai 2022",
+  "source": "https://logir.fo/Logtingslog/90-fra-17-05-2022-um-avmarkandi-tiltok-i-sambandi-vid-atgerdir-moti-Ukraina",
+  "corrects": "b01ec7df087e2db8ed3cca00903a2e75ae9396a3",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "193",
+      "date": "2025-12-04"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "82",
+      "date": "2023-06-22"
+    }
+  ],
+  "in_force_basis": "Latest source-named amendment: Henda løgtingslóg kemur í gildi 1. januar 2026.",
+  "in_force": "2026-01-01"
+}
