@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/2002/61",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2002-05-23",
+  "published": "2002-05-28",
+  "gazette": "Kunngerðarblað 2002 A - Hefti 15 A frá 28. mai 2002",
+  "source": "https://logir.fo/Kunngerd/61-fra-23-05-2002-um-at-umsita-log-um-studning-til-skipasmidjur",
+  "corrects": "7e3db8d3c9217e7b20bc5715fd8f430c3f70dac6",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "76",
+      "date": "2016-06-28"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
