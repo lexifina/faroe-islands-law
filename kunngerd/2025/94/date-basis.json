@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/2025/94",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2025-05-08",
+  "published": "2025-05-08",
+  "gazette": "Kunngerðarblað 2025 A - Kunngerð 94 frá 8. mai 2025",
+  "source": "https://logir.fo/Kunngerd/94-fra-08-05-2025-um-studul-til-bjargingarfelog-oa",
+  "corrects": "34a397c6882693f163d8f0a5e3cea7ab19ba40e2",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "76",
+      "date": "2026-08-28"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
