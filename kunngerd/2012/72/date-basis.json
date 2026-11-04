@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/2012/72",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2012-05-29",
+  "published": "2012-05-30",
+  "gazette": "Kunngerðarblað 2012 A - Hefti 23 A frá 30. mai 2012",
+  "source": "https://logir.fo/Kunngerd/72-fra-29-05-2012-fra-tading",
+  "corrects": "f46e2b0d500208c941125f56c0faafc2a2e47656",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "11",
+      "date": "2020-02-18"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
