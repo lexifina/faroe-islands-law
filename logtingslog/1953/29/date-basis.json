@@ -1,0 +1,35 @@
+{
+  "act": "logtingslog/1953/29",
+  "status": "dated",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "1953-11-26",
+  "published": "1953-11-26",
+  "gazette": "Kunngerðarblað 1953 A - Løgtingslóg 29 frá 26. november 1953",
+  "source": "https://logir.fo/Logtingslog/29-fra-26-11-1953-um-tekniskar-innleggingar--tekniske-installationer-sum-broytt-vid-logtingslog-nr",
+  "corrects": "ac455926a3859faf9acc398e96ca8df3378d2ccc",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "142",
+      "date": "1993-06-10"
+    },
+    {
+      "kind": "lov",
+      "number": "186",
+      "date": "1958-06-07"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "149",
+      "date": "2023-12-19"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "209",
+      "date": "2025-12-15"
+    }
+  ],
+  "in_force_basis": "Latest source-named amendment: Henda løgtingslóg kemur í gildi 1. januar 2026.",
+  "in_force": "2026-01-01"
+}
