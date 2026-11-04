@@ -1,0 +1,20 @@
+{
+  "act": "logtingslog/2009/74",
+  "status": "dated",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2009-05-25",
+  "published": "2009-06-10",
+  "gazette": "Kunngerðarblað 2009 A - Hefti 15 A frá 10. juni 2009",
+  "source": "https://logir.fo/Logtingslog/74-fra-25-05-2009-um-elektroniska-undirskrift",
+  "corrects": "d1ebe24e2b70611ba3e596dcd87e420ad9471df6",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "31",
+      "date": "2023-03-09"
+    }
+  ],
+  "in_force_basis": "Latest source-named amendment: Henda løgtingslóg kemur í gildi 1. september 2023.",
+  "in_force": "2023-09-01"
+}
