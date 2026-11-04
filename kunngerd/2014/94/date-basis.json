@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/2014/94",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2014-09-08",
+  "published": "2014-09-12",
+  "gazette": "Kunngerðarblað 2014 A - Kunngerð 94 frá 8. september 2014",
+  "source": "https://logir.fo/Kunngerd/94-fra-08-09-2014-um-utbugving-innan-heilsolu-og-smasolu",
+  "corrects": "812141f5e00e9183c083beff2dfb22925a8bc748",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "19",
+      "date": "2023-02-14"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
