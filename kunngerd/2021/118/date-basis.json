@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/2021/118",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2021-07-20",
+  "published": "2021-07-23",
+  "gazette": "Kunngerðarblað 2021 A - Kunngerð 118 frá 20. juli 2021",
+  "source": "https://logir.fo/Kunngerd/118-fra-20-07-2021-um-vernd-av-ungfiski-og-hamark-fyri-iblanding-av-ungfiski",
+  "corrects": "91643dff5e210f40d06a8a5e848a1478513ccfc4",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "25",
+      "date": "2024-04-16"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
