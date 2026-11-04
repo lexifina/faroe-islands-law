@@ -1,0 +1,19 @@
+{
+  "act": "logtingslog/2009/107",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2009-08-17",
+  "published": "2009-08-31",
+  "gazette": "Kunngerðarblað 2009 A - Hefti 22 A frá 19. august 2009",
+  "source": "https://logir.fo/Logtingslog/107-fra-17-08-2009-um-val-til-kirkjurad-prostadomisrad-og-stiftsstjorn-sum-brott-vi-logingslog",
+  "corrects": "a7e3c69bd6ae093c0b76a1364c483cc5bcfbb804",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "10",
+      "date": "2010-02-26"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
