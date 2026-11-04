@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/2011/84",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2011-06-07",
+  "published": "2011-06-10",
+  "gazette": "Kunngerðarblað 2011 A - Hefti 23 A frá 10. juni 2011",
+  "source": "https://logir.fo/Kunngerd/84-fra-07-06-2011-fra-rakstrarjattan",
+  "corrects": "8743a56fa7cb30c5db6ccbe0ba89419b53422d6d",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "16",
+      "date": "2024-03-19"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
