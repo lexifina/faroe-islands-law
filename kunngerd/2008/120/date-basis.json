@@ -1,0 +1,20 @@
+{
+  "act": "kunngerd/2008/120",
+  "status": "dated",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2008-12-19",
+  "published": "2008-12-29",
+  "gazette": "Kunngerðarblað 2008 A - Hefti 30 A frá 29. desember 2008",
+  "source": "https://logir.fo/Kunngerd/120-fra-19-12-2008-um-aseting-av-afturberingsprosenti-til-reidaravirkir-sum-hava-skip-id-eru",
+  "corrects": "6ae7481b36ed4ee11bbfa647b36c6aa9c5283e7d",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "131",
+      "date": "2013-12-10"
+    }
+  ],
+  "in_force_basis": "Latest source-named amendment: Hendan kunngerð kemur í gildi 1. januar 2014.",
+  "in_force": "2014-01-01"
+}
