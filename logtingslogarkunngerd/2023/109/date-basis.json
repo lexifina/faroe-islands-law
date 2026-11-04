@@ -1,0 +1,45 @@
+{
+  "act": "logtingslogarkunngerd/2023/109",
+  "status": "dated",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2023-09-19",
+  "published": "2023-10-12",
+  "gazette": "Kunngerðarblað 2023 A - LLK 109 frá 19. september 2023",
+  "source": "https://logir.fo/Logtingslogarkunngerd/109-fra-19-09-2023-um-landsskatt-og-kommunuskatt",
+  "corrects": "251fa84acfe9a76d1a8d317b03a036748cc2fc1a",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "39",
+      "date": "2024-05-16"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "53",
+      "date": "2026-06-01"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "145",
+      "date": "2024-12-20"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "163",
+      "date": "2023-12-20"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "75",
+      "date": "2025-04-30"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "48",
+      "date": "2026-05-29"
+    }
+  ],
+  "in_force_basis": "Latest source-named amendment: Hendan løgtingslóg kemur í gildi 1. september 2026.",
+  "in_force": "2026-09-01"
+}
