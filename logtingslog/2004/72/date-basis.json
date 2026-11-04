@@ -1,0 +1,19 @@
+{
+  "act": "logtingslog/2004/72",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2004-11-16",
+  "published": "2004-11-18",
+  "gazette": "Kunngerðarblað 2004 A - Hefti 25 A frá 18. november 2004",
+  "source": "https://logir.fo/Logtingslog/72-fra-16-11-2004-um-handilstiltok-motvegis-Somaliu",
+  "corrects": "a3cc61fdce066d3d3fb6674971493d86d4b3789e",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "168",
+      "date": "2021-12-16"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
