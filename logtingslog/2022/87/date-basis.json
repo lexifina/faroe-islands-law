@@ -1,0 +1,24 @@
+{
+  "act": "logtingslog/2022/87",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2022-05-16",
+  "published": "2022-05-17",
+  "gazette": "Kunngerðarblað 2022 A - Løgtingslóg 87 frá 16. mai 2022",
+  "source": "https://logir.fo/Logtingslog/87-fra-16-05-2022-um-foreldramyndugleika-og-samveru",
+  "corrects": "27394229e052a6e66e0e9189c9b05e332871aa37",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "115",
+      "date": "2024-12-09"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "144",
+      "date": "2023-12-15"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
