@@ -1,0 +1,19 @@
+{
+  "act": "logtingslog/2013/154",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2013-12-20",
+  "published": "2013-12-22",
+  "gazette": "Kunngerðarblað 2013 A - Løgtingslóg 154 frá 20. desember 2013",
+  "source": "https://logir.fo/Logtingslog/154-fra-20-12-2013-um-serstakar-treytir-fyri-fiskiskap-eftir-nordhavssild-og-makreli-i-2014",
+  "corrects": "770e88a1dceb402049ceadb96814d0b1978fcda8",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "77",
+      "date": "2014-06-04"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
