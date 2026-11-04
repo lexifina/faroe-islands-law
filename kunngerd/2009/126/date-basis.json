@@ -1,0 +1,20 @@
+{
+  "act": "kunngerd/2009/126",
+  "status": "dated",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2009-09-28",
+  "published": "2009-09-01",
+  "gazette": "Kunngerðarblað 2009 A - Hefti 25 A frá 30. september 2009",
+  "source": "https://logir.fo/Kunngerd/126-fra-28-09-2009-fra-utgerd-hja-ferdandi-a-motorsukklum-og-lendisakforum-sum-broytt-vid",
+  "corrects": "eb4434704319276359fc8ace465da4c2b3a02d5f",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "55",
+      "date": "2012-05-11"
+    }
+  ],
+  "in_force_basis": "Latest source-named amendment: Hendan kunngerð kemur í gildi 1. juni 2012.",
+  "in_force": "2012-06-01"
+}
