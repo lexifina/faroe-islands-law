@@ -1,0 +1,70 @@
+{
+  "act": "logtingslog/1993/193",
+  "status": "dated",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "1993-12-10",
+  "published": "1993-12-17",
+  "gazette": "Kunngerðarblað 1993 A - Hefti 28 A frá 17. desember 1993",
+  "source": "https://logir.fo/Logtingslog/193-fra-10-12-1993-um-lonarhaeddaravgjald-sum-seinast-broytt-vid-logtingslog-nr-166-fra-22",
+  "corrects": "bf70531733313b4b03b85110dc89b83ff2582a22",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "39",
+      "date": "2009-04-28"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "130",
+      "date": "2012-12-14"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "51",
+      "date": "2006-05-16"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "166",
+      "date": "2009-12-22"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "121",
+      "date": "2003-12-01"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "49",
+      "date": "2006-05-16"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "95",
+      "date": "1998-12-28"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "31",
+      "date": "2023-03-09"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "29",
+      "date": "2005-04-08"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "159",
+      "date": "2021-12-10"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "91",
+      "date": "2020-06-07"
+    }
+  ],
+  "in_force_basis": "Latest source-named amendment: Henda løgtingslóg kemur í gildi 1. september 2023.",
+  "in_force": "2023-09-01"
+}
