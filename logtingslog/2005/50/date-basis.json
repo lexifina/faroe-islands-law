@@ -1,0 +1,19 @@
+{
+  "act": "logtingslog/2005/50",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2005-05-09",
+  "published": "2005-05-12",
+  "gazette": "Kunngerðarblað 2005 A - Hefti 13 A frá 12. mai 2005",
+  "source": "https://logir.fo/Logtingslog/50-fra-09-05-2005-um-serskula",
+  "corrects": "e0004e8220d6cf029d9e935eed845cc8ec10e257",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "47",
+      "date": "2016-05-06"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
