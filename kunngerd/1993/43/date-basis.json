@@ -1,0 +1,24 @@
+{
+  "act": "kunngerd/1993/43",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "1993-03-24",
+  "published": "1993-03-31",
+  "gazette": "Kunngerðarblað 1993 A - Hefti 7 A frá 31. mars 1993",
+  "source": "https://logir.fo/Kunngerd/43-fra-24-03-1993-um-afturgjaldsskyldu-vidvikjandi-utreidslum-til-egnan-bustad-sum-seinast-broytt-vid",
+  "corrects": "20a6626156ce527f392ab4ecfc9799e9effb03b6",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "93",
+      "date": "2006-10-17"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "143",
+      "date": "1995-09-21"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
