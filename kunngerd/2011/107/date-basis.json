@@ -1,0 +1,74 @@
+{
+  "act": "kunngerd/2011/107",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2011-08-25",
+  "published": "2011-08-31",
+  "gazette": "Kunngerðarblað 2011 A - Hefti 32 A frá 31. august 2011",
+  "source": "https://logir.fo/Kunngerd/107-fra-25-08-2011-fra-lestrarstudul",
+  "corrects": "7747c944e2254dec5738a74672c0e585085070fe",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "121",
+      "date": "2017-08-18"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "147",
+      "date": "2025-09-17"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "157",
+      "date": "2025-10-15"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "83",
+      "date": "2016-08-16"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "107",
+      "date": "2019-07-16"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "116",
+      "date": "2020-07-09"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "140",
+      "date": "2021-10-20"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "91",
+      "date": "2014-08-29"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "97",
+      "date": "2013-07-02"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "14",
+      "date": "2026-02-03"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "88",
+      "date": "2026-10-19"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "146",
+      "date": "2018-11-19"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
