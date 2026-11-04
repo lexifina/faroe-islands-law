@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/2017/1",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2017-01-04",
+  "published": "2017-01-06",
+  "gazette": "Kunngerðarblað 2017 A - Kunngerð 1 frá 4. januar 2017",
+  "source": "https://logir.fo/Kunngerd/1-fra-04-01-2017-um-skraseting-av-hyruvognum-og-skulaakforum-uttan-skrasetingargjald",
+  "corrects": "2b03e94ba0b63171fce29e5ceac5853683fcc836",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "99",
+      "date": "2022-06-08"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
