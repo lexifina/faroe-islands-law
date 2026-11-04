@@ -1,0 +1,74 @@
+{
+  "act": "kunngerd/2004/63",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2004-09-16",
+  "published": "2004-10-01",
+  "gazette": "Kunngerðarblað 2004 A - Hefti 20 A frá 1. oktober 2004",
+  "source": "https://logir.fo/Kunngerd/63-fra-16-09-2004-um-sjalvbodna-trygging-sum-seinast-broytt-vid-kunngerd-nr-17-fra",
+  "corrects": "634c7de46b68ff1aa73105b7418bd22d2dcdec63",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "31",
+      "date": "2016-04-15"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "18",
+      "date": "2015-03-23"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "24",
+      "date": "2005-03-30"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "16",
+      "date": "2006-03-21"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "20",
+      "date": "2007-03-13"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "6",
+      "date": "2008-03-10"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "24",
+      "date": "2009-03-24"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "13",
+      "date": "2010-03-02"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "17",
+      "date": "2011-02-25"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "30",
+      "date": "2012-03-29"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "24",
+      "date": "2013-04-09"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "16",
+      "date": "2014-03-27"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
