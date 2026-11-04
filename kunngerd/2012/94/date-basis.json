@@ -1,0 +1,24 @@
+{
+  "act": "kunngerd/2012/94",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2012-09-21",
+  "published": "2012-10-03",
+  "gazette": "Kunngerðarblað 2012 A - Hefti 32 A frá 3. oktober 2012",
+  "source": "https://logir.fo/Kunngerd/94-fra-21-09-2012-fra-breidd-longd-haedd-vekt-og-astryst-a-akforum",
+  "corrects": "2016c817e4ac64795ba5e68a422ca0a4919ce9de",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "151",
+      "date": "2021-12-01"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "58",
+      "date": "2017-05-16"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
