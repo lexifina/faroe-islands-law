@@ -1,0 +1,19 @@
+{
+  "act": "logtingslog/1973/33",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "1973-06-26",
+  "published": "1973-07-05",
+  "gazette": "Kunngerðarblað 1973 A - Løgtingslóg 33 frá 26. juni 1973",
+  "source": "https://logir.fo/Logtingslog/33-fra-26-06-1973-um-sendinevnd-Foroya-til-Norrona-radid-om-Faeroernes-delegation-til-Nordisk",
+  "corrects": "325eb2e0ff5a5624a28183c98e857ebc7df9865b",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "42",
+      "date": "1984-05-10"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
