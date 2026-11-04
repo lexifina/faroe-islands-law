@@ -1,0 +1,25 @@
+{
+  "act": "logtingslogarkunngerd/2024/8",
+  "status": "dated",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2024-02-20",
+  "published": "2024-02-22",
+  "gazette": "Kunngerðarblað 2024 A - Løgtingslógarkunngerð 8 frá 20. februar 2024",
+  "source": "https://logir.fo/Logtingslogarkunngerd/8-fra-20-02-2024-um-revsing-Revsilogin",
+  "corrects": "55d7ce2df1403591e60b954958aeb21d69d53a6c",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "210",
+      "date": "2025-12-15"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "83",
+      "date": "2025-05-02"
+    }
+  ],
+  "in_force_basis": "Latest source-named amendment: Henda løgtingslóg kemur í gildi 1. januar 2026.",
+  "in_force": "2026-01-01"
+}
