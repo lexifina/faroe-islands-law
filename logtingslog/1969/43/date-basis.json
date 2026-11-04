@@ -1,0 +1,40 @@
+{
+  "act": "logtingslog/1969/43",
+  "status": "dated",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "1969-05-22",
+  "published": "1969-05-22",
+  "gazette": "Kunngerðarblað 1969 A - Løgtingslóg 43 frá 22. mai 1969",
+  "source": "https://logir.fo/Logtingslog/43-fra-22-05-1969-um-vapn-vm--om-vaben-mv-sum-broytt-vid-logtingslog",
+  "corrects": "3dfa7e6f4da58eb006fd13723ca44d3567075941",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "158",
+      "date": "2020-11-20"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "81",
+      "date": "2015-05-22"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "54",
+      "date": "1980-05-12"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "31",
+      "date": "2022-03-17"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "91",
+      "date": "2020-06-07"
+    }
+  ],
+  "in_force_basis": "Latest source-named amendment: Henda løgtingslóg kemur í gildi 1. juli 2022 og samstundis fara løgtingslóg nr. 110 frá 13. desember 2006 um kærunevnd í lendismálum og løgtingslóg nr. 17 frá 8. mai 2008 um Vinnukærunevnd úr gildi.",
+  "in_force": "2022-07-01"
+}
