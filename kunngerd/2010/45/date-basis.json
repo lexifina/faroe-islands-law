@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/2010/45",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2010-05-11",
+  "published": "2010-05-14",
+  "gazette": "Kunngerðarblað 2010 A - Hefti 12 A frá 14. mai 2010",
+  "source": "https://logir.fo/Kunngerd/45-fra-11-05-2010-um-utgjald-av-burturbeiningargjaldi-a-motorakforum",
+  "corrects": "2d54fcd08cbe788ea6599e565e40f45fbb219502",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "125",
+      "date": "2018-09-10"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
