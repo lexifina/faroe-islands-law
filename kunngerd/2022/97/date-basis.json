@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/2022/97",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2022-06-07",
+  "published": "2022-06-10",
+  "gazette": "Kunngerðarblað 2022 A - Kunngerð 97 frá 7. juni 2022",
+  "source": "https://logir.fo/Kunngerd/97-fra-07-06-2022-um-fiskiskap-eftir-hummara-til-husbruks",
+  "corrects": "2f85bdd026f6dd94ffdf4c89014d889b1d2a4a4d",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "47",
+      "date": "2024-05-27"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
