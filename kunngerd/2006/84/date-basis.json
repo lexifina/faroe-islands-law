@@ -1,0 +1,39 @@
+{
+  "act": "kunngerd/2006/84",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2006-08-17",
+  "published": "2006-08-18",
+  "gazette": "Kunngerðarblað 2006 A - Hefti 17 A frá 18. august 2006",
+  "source": "https://logir.fo/Kunngerd/84-fra-17-08-2006-um-visitasjonsnevnd-i-sjukrahusverkinum-sum-broytt-vid-kunngerd-nr-153-fra",
+  "corrects": "3e0e503ed0189b740b2a50d4cb25b23c61fbc3fd",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "117",
+      "date": "2012-12-04"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "141",
+      "date": "2013-12-18"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "141",
+      "date": "2020-09-29"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "153",
+      "date": "2009-12-03"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "10",
+      "date": "2023-02-06"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
