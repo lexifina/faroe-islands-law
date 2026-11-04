@@ -1,0 +1,24 @@
+{
+  "act": "kunngerd/2021/100",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2021-06-17",
+  "published": "2021-06-18",
+  "gazette": "Kunngerðarblað 2021 A - Kunngerð 100 frá 17. juni 2021",
+  "source": "https://logir.fo/Kunngerd/100-fra-17-06-2021-um-utbugving-av-sjukraroktarfrodingum",
+  "corrects": "a9d57e222b2f68410b48fd40cd4500580258677f",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "109",
+      "date": "2021-06-25"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "24",
+      "date": "2025-02-28"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
