@@ -1,0 +1,24 @@
+{
+  "act": "kunngerd/2016/1",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2016-01-04",
+  "published": "2016-01-05",
+  "gazette": "Kunngerðarblað 2016 A - Kunngerð 1 frá 4. januar 2016",
+  "source": "https://logir.fo/Kunngerd/1-fra-04-01-2016-um-frekvensgjold-og-omaksgjold-a-radiosamskiftisokinum",
+  "corrects": "50ee9444466baf661b409a11e0b7d2c0714104cf",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "92",
+      "date": "2022-05-16"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "95",
+      "date": "2022-05-24"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
