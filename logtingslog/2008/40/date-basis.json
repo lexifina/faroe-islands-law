@@ -1,0 +1,19 @@
+{
+  "act": "logtingslog/2008/40",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2008-05-21",
+  "published": "2008-06-02",
+  "gazette": "Kunngerðarblað 2008 A - Hefti 10 A frá 2. juni 2008",
+  "source": "https://logir.fo/Logtingslog/40-fra-21-05-2008-um-at-leggja-virksemid-hja-Vaga-Floghavn-i-PF-Vaga-Floghavn",
+  "corrects": "5e8d393274bdaa540e3be9fe4d4ab049e806d43e",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "15",
+      "date": "2010-03-19"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
