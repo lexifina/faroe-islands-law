@@ -1,0 +1,60 @@
+{
+  "act": "logtingslog/2015/160",
+  "status": "dated",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2015-12-24",
+  "published": "2015-12-28",
+  "gazette": "Kunngerðarblað 2015 A - Løgtingslóg 160 frá 24. desember 2015",
+  "source": "https://logir.fo/Logtingslog/160-fra-24-12-2015-um-um-familjuiskoyti",
+  "corrects": "6539935fb23a651963eb0bb041c2301dfabb987b",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "65",
+      "date": "2019-05-09"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "136",
+      "date": "2022-10-25"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "42",
+      "date": "2023-03-29"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "162",
+      "date": "2023-12-20"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "167",
+      "date": "2017-12-20"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "187",
+      "date": "2018-12-21"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "18",
+      "date": "2020-03-10"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "53",
+      "date": "2026-06-01"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "159",
+      "date": "2021-12-10"
+    }
+  ],
+  "in_force_basis": "Latest source-named amendment: Hendan løgtingslóg kemur í gildi 1. september 2026.",
+  "in_force": "2026-09-01"
+}
