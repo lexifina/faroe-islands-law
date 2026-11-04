@@ -1,0 +1,20 @@
+{
+  "act": "kunngerd/1993/186",
+  "status": "dated",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "1993-11-05",
+  "published": "1993-11-09",
+  "gazette": "Kunngerðarblað 1993 A - Hefti 26 A frá 9. november 1993",
+  "source": "https://logir.fo/Kunngerd/186-fra-05-11-1993-um-spillvatnsevju-sum-broytt-vid-kunngerd-nr-90-fra-28-september",
+  "corrects": "dab7905e83a5f568e301f93fcc878846563449d1",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "90",
+      "date": "2007-09-28"
+    }
+  ],
+  "in_force_basis": "Latest source-named amendment: Henda kunngerð kemur í gildi 1. oktober 2007.",
+  "in_force": "2007-10-01"
+}
