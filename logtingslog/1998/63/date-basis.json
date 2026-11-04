@@ -1,0 +1,44 @@
+{
+  "act": "logtingslog/1998/63",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "1998-07-03",
+  "published": "1998-07-03",
+  "gazette": "Kunngerðarblað 1998 A - Hefti 12 A frá 7. juli 1998",
+  "source": "https://logir.fo/Logtingslog/63-fra-03-07-1998-um-manning-av-skipum-sum-broytt-vid-logtingslog-nr-75-fra",
+  "corrects": "9ee1e2143025e108a4091f3a43a12dd9bdccfe75",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "71",
+      "date": "2011-05-30"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "52",
+      "date": "2015-05-12"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "51",
+      "date": "2019-05-07"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "31",
+      "date": "2008-05-19"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "75",
+      "date": "2009-05-25"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "168",
+      "date": "2021-12-16"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
