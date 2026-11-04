@@ -1,0 +1,19 @@
+{
+  "act": "logtingslog/2006/118",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2006-12-20",
+  "published": "2006-12-29",
+  "gazette": "Kunngerðarblað 2006 A - Hefti 27 A frá 29. desember 2006",
+  "source": "https://logir.fo/Logtingslog/118-fra-20-12-2006-um-lan-til-bygging-av-ellis-og-roktarheimi-i-Vagi-sum",
+  "corrects": "cd15c31aaffaa34a74a8a3b22dab7acaaf05ced3",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "56",
+      "date": "2009-05-25"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
