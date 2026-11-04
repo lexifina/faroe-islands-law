@@ -1,0 +1,29 @@
+{
+  "act": "logtingslog/2012/22",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2012-03-16",
+  "published": "2012-03-23",
+  "gazette": "Kunngerðarblað 2012 A - Hefti 11 A frá 23. mars 2012",
+  "source": "https://logir.fo/Logtingslog/22-fra-16-03-2012-fra-jardhitaskipanir",
+  "corrects": "5251bc90b68626b85a3d7878b4ef458545941b20",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "82",
+      "date": "2017-05-29"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "58",
+      "date": "2025-04-11"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "31",
+      "date": "2023-03-09"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
