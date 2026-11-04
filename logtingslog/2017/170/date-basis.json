@@ -1,0 +1,24 @@
+{
+  "act": "logtingslog/2017/170",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2017-12-20",
+  "published": "2017-12-22",
+  "gazette": "Kunngerðarblað 2017 A - Løgtingslóg 170 frá 20. desember 2017",
+  "source": "https://logir.fo/Logtingslog/170-fra-20-12-2017-um-afturbering-av-utreidslum-til-filmsframleidslu-i-Foroyum",
+  "corrects": "9ad10db79cbe7a2d7172a9005568774bc7612a27",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "62",
+      "date": "2023-05-22"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "117",
+      "date": "2023-10-26"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
