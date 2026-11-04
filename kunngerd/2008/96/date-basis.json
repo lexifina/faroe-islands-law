@@ -1,0 +1,30 @@
+{
+  "act": "kunngerd/2008/96",
+  "status": "dated",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2008-11-11",
+  "published": "2008-11-20",
+  "gazette": "Kunngerðarblað 2008 A - Hefti 25 A frá 20. november 2008",
+  "source": "https://logir.fo/Kunngerd/96-fra-11-11-2008-um-studul-til-hoyritol-sum-broytt-vid-kunngerd-nr-116-fra",
+  "corrects": "8521a957d353f6b1d2c0c6a8a7709a0c644170cc",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "21",
+      "date": "2013-04-03"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "218",
+      "date": "2020-12-28"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "116",
+      "date": "2010-12-14"
+    }
+  ],
+  "in_force_basis": "Latest source-named amendment: Henda kunngerð kemur í gildi 1. januar 2021.",
+  "in_force": "2021-01-01"
+}
