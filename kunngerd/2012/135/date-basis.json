@@ -1,0 +1,24 @@
+{
+  "act": "kunngerd/2012/135",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2012-12-17",
+  "published": "2012-12-20",
+  "gazette": "Kunngerðarblað 2012 A - Hefti 44 A frá 20. desember 2012",
+  "source": "https://logir.fo/Kunngerd/2012-fra-17-12-2012-um-raett-til-veitingar-fra-Heilsutrygd-fyri-personar-sum-fyribils-uppihalda",
+  "corrects": "72f197b01b97aff6f8229cb9a9a792fad732707d",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "25",
+      "date": "2016-04-04"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "7",
+      "date": "2023-02-06"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
