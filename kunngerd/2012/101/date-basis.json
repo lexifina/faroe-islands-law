@@ -1,0 +1,24 @@
+{
+  "act": "kunngerd/2012/101",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2012-10-15",
+  "published": "2012-10-17",
+  "gazette": "Kunngerðarblað 2012 A - Hefti 34 A frá 17. oktober 2012",
+  "source": "https://logir.fo/Kunngerd/101-fra-15-10-2012-fra-fyriskipanir-i-sambandi-vid-jardhitaskipan",
+  "corrects": "b62a964fbb0327ad8cf544282b29d3b17bdc60e4",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "118",
+      "date": "2017-07-31"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "69",
+      "date": "2025-04-30"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
