@@ -1,0 +1,25 @@
+{
+  "act": "kunngerd/2021/98",
+  "status": "dated",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2021-06-17",
+  "published": "2021-06-18",
+  "gazette": "Kunngerðarblað 2021 A - Kunngerð 98 frá 17. juni 2021",
+  "source": "https://logir.fo/Kunngerd/98-fra-17-06-2021-um-upptoku-til-lestur-a-Frodskaparsetri-Foroya",
+  "corrects": "8d886e63ad73f945249ed387b83835bc7ae33876",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "185",
+      "date": "2025-11-25"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "106",
+      "date": "2021-06-25"
+    }
+  ],
+  "in_force_basis": "Latest source-named amendment: Henda kunngerð kemur í gildi 1. mars 2026.",
+  "in_force": "2026-03-01"
+}
