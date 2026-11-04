@@ -1,0 +1,24 @@
+{
+  "act": "kunngerd/2025/148",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2025-09-25",
+  "published": "2025-09-26",
+  "gazette": "Kunngerðarblað 2025 A - Kunngerð 148 frá 25. september 2025",
+  "source": "https://logir.fo/Kunngerd/148-fra-25-09-2025-um-okeypis-koppseting-imoti-avisum-smittandi-sjukum-oa",
+  "corrects": "54995513dc651fe9e9e976ffbf461089e3757c55",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "163",
+      "date": "2025-10-24"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "64",
+      "date": "2026-07-06"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
