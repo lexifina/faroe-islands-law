@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/1987/14",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "1987-02-16",
+  "published": "1987-03-10",
+  "gazette": "Kunngerðarblað 1987 A - Kunngerð 14 frá 16. februar 1987",
+  "source": "https://logir.fo/Kunngerd/14-fra-16-02-1987-um-fritidarlon-sum-broytt-vid-kunngerd-nr-100-fra-12-august",
+  "corrects": "248c1b3e6606e897ceaf98fb3e6cc670d0a23bce",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "100",
+      "date": "1988-08-12"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
