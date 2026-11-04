@@ -1,0 +1,24 @@
+{
+  "act": "logtingslog/2005/60",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2005-05-17",
+  "published": "2005-05-19",
+  "gazette": "Kunngerðarblað 2005 A - Hefti 14 A frá 19. mai 2005",
+  "source": "https://logir.fo/Logtingslog/60-fra-17-05-2005-um-studul-til-mentan-og-list-vm",
+  "corrects": "58651fc3b600697e678f0e03a7622c5077433fc3",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "45",
+      "date": "2014-05-15"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "34",
+      "date": "2015-04-30"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
