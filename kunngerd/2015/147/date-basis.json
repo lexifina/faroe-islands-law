@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/2015/147",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2015-12-18",
+  "published": "2015-12-23",
+  "gazette": "Kunngerðarblað 2015 A - Kunngerð 147 frá 18. desember 2015",
+  "source": "https://logir.fo/Kunngerd/147-fra-18-12-2015-um-krov-til-skattliga-arsroknskapin",
+  "corrects": "c9e2cba454b4ab0ee67c1354b67b9e08cd06db0f",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "12",
+      "date": "2018-02-07"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
