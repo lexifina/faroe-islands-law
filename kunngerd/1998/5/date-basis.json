@@ -1,0 +1,20 @@
+{
+  "act": "kunngerd/1998/5",
+  "status": "dated",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "1998-01-21",
+  "published": "1998-01-26",
+  "gazette": "Kunngerðarblað 1998 A - Hefti 1 A frá 26. januar 1998",
+  "source": "https://logir.fo/Kunngerd/5-fra-21-01-1998-um-umbyti-av-koyrikorti-sum-broytt-vid-kunngerd-nr-134-fra",
+  "corrects": "a1f2ab972852ea646103278107191cd96390b7c4",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "134",
+      "date": "2000-12-22"
+    }
+  ],
+  "in_force_basis": "Latest source-named amendment: Henda kunngerð kemur í gildi 1. januar 2001.",
+  "in_force": "2001-01-01"
+}
