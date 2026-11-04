@@ -1,0 +1,19 @@
+{
+  "act": "logtingslog/1983/63",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "1983-06-23",
+  "published": "1983-06-28",
+  "gazette": "Kunngerðarblað 1983 A - Løgtingslóg 63 frá 23. juni 1983",
+  "source": "https://logir.fo/Logtingslog/63-fra-23-06-1983-um-bustadarhus-til-folk-i-utbugving--om-kollegier-til-folk",
+  "corrects": "ba9c4a8cffc230d2343fcddb09bce6e2f9f7fb95",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "127",
+      "date": "1988-10-25"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
