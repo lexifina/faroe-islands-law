@@ -1,0 +1,19 @@
+{
+  "act": "logtingslog/2014/30",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2014-04-14",
+  "published": "2014-04-18",
+  "gazette": "Kunngerðarblað 2014 A - Løgtingslóg 30 frá 14. apríl 2014",
+  "source": "https://logir.fo/Logtingslog/30-fra-14-04-2014-um-at-stovna-partafelag-og-at-byggja-og-reka-undirsjovartunlar-millum",
+  "corrects": "227f120b5381c66db4b96af26806fa6205bba672",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "54",
+      "date": "2016-05-06"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
