@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/2014/23",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2014-04-07",
+  "published": "2014-04-11",
+  "gazette": "Kunngerðarblað 2014 A - Kunngerð 23 frá 7. apríl 2014",
+  "source": "https://logir.fo/Kunngerd/23-fra-07-04-2014-um-fakligan-forleika-hja-laerarum-i-gymnasialu-midnamsutbugvingunum",
+  "corrects": "fa3f55dbd7367e118576fd7bd4986a2e411610cc",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "119",
+      "date": "2019-07-19"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
