@@ -1,0 +1,44 @@
+{
+  "act": "logtingslog/1971/50",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "1971-12-23",
+  "published": "1971-12-28",
+  "gazette": "Kunngerðarblað 1971 A - Løgtingslóg 50 frá 23. desember 1971",
+  "source": "https://logir.fo/Logtingslog/50-fra-23-12-1971-um-ilogugrunnar-sum-seinast-broytt-vid-logtingslog-nr-180-fra-18",
+  "corrects": "07859ab4319ea1e3583159f98a1402f96e89108d",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "180",
+      "date": "1992-12-18"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "58",
+      "date": "1987-05-08"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "31",
+      "date": "1989-04-20"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "77",
+      "date": "1986-06-12"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "6",
+      "date": "1977-02-11"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "53",
+      "date": "1982-05-06"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
