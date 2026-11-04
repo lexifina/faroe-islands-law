@@ -1,0 +1,25 @@
+{
+  "act": "kunngerd/2016/80",
+  "status": "dated",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2016-07-15",
+  "published": "2016-07-19",
+  "gazette": "Kunngerðarblað 2016 A - Kunngerð 80 frá 15. juli 2016",
+  "source": "https://logir.fo/Kunngerd/80-fra-15-07-2016-fra-Sjovinnustyrinum-um-arbeidsumhvorvi-umbord-a-skipum",
+  "corrects": "5531dfc01ad1e0d5213f6705c2852cc96e341776",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "81",
+      "date": "2016-07-19"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "97",
+      "date": "2018-07-06"
+    }
+  ],
+  "in_force_basis": "Latest source-named amendment: Henda kunngerð kemur í gildi 15. juli 2018.",
+  "in_force": "2018-07-15"
+}
