@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/2018/73",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2018-05-08",
+  "published": "2018-05-11",
+  "gazette": "Kunngerðarblað 2018 A - Kunngerð 73 frá 8. mai 2018",
+  "source": "https://logir.fo/Kunngerd/73-fra-08-05-2018-um-einstaklingatilskot-til-heilivag",
+  "corrects": "469bb5f36d458c3e73b5036362837afeb4e90e03",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "9",
+      "date": "2023-02-06"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
