@@ -1,0 +1,29 @@
+{
+  "act": "logtingslog/1984/57",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "1984-06-05",
+  "published": "1984-06-21",
+  "gazette": "Kunngerðarblað 1984 A - Løgtingslóg 57 frá 5. juni 1984",
+  "source": "https://logir.fo/Logtingslog/57-fra-05-06-1984-um-hvalaveidu-sum-seinast-broytt-vid-logtingslog-nr-54-fra-20051996",
+  "corrects": "44b22715eb7fc4950fb7409564ea9766275566c7",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "92",
+      "date": "1995-06-13"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "41",
+      "date": "1986-05-02"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "54",
+      "date": "1996-05-20"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
