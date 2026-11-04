@@ -1,0 +1,29 @@
+{
+  "act": "kunngerd/2010/31",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2010-04-27",
+  "published": "2010-04-29",
+  "gazette": "Kunngerðarblað 2010 A - Hefti 9 A frá 29. apríl 2010",
+  "source": "https://logir.fo/Kunngerd/31-fra-27-04-2010-um-umsiting-av-ogn-hja-omyndugum-og-personum-undir-verju",
+  "corrects": "3bbfa695bf5db3aa757e5dafca64839f335f9f5b",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "28",
+      "date": "2023-03-01"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "37",
+      "date": "2020-03-31"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "35",
+      "date": "2019-04-08"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
