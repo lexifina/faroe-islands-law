@@ -1,0 +1,19 @@
+{
+  "act": "logtingslog/1982/104",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "1982-10-19",
+  "published": "1982-10-21",
+  "gazette": "Kunngerðarblað 1982 A - Løgtingslóg 104 frá 19. oktober 1982",
+  "source": "https://logir.fo/Logtingslog/104-fra-19-10-1982-um-hyruvognskoyring--om-hyrekorsel-sum-broytt-vid-logtingslog-nr-69",
+  "corrects": "60e3331f5c776a940fcb526f3b6312c83dfdec55",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "69",
+      "date": "1990-06-12"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
