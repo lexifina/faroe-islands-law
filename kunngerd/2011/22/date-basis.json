@@ -1,0 +1,25 @@
+{
+  "act": "kunngerd/2011/22",
+  "status": "dated",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2011-03-28",
+  "published": "2011-03-30",
+  "gazette": "Kunngerðarblað 2011 A - Hefti 8 A frá 30. mars 2011",
+  "source": "https://logir.fo/Kunngerd/22-fra-28-03-2011-um-iskoyti-til-gjald-fyri-veiting-hja-privatstarvandi-ergoterapeuti",
+  "corrects": "95e850a3816fbb4f2a745286a69920207a0bafc5",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "28",
+      "date": "2016-04-04"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "103",
+      "date": "2025-05-27"
+    }
+  ],
+  "in_force_basis": "Latest source-named amendment: Henda kunngerð kemur í gildi 1. juni 2025.",
+  "in_force": "2025-06-01"
+}
