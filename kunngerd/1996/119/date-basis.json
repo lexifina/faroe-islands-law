@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/1996/119",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "1996-10-23",
+  "published": "1996-11-01",
+  "gazette": "Kunngerðarblað 1996 A - Hefti 19 A frá 1. november 1996",
+  "source": "https://logir.fo/Kunngerd/119-fra-23-10-1996-um-virksemid-hja-Ileggingargrunninum-fyri-Foroyar",
+  "corrects": "18787f434aaeef563d90834d16ef973657b58d38",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "74",
+      "date": "2026-08-20"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
