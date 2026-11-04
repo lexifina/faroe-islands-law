@@ -1,0 +1,24 @@
+{
+  "act": "kunngerd/2020/8",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2020-02-11",
+  "published": "2020-02-14",
+  "gazette": "Kunngerðarblað 2020 A - Kunngerð 8 frá 11. februar 2020",
+  "source": "https://logir.fo/Kunngerd/8-fra-11-02-2020-um-loyvi-til-royndarfiskiskap",
+  "corrects": "3e72c01e27eef94ef987656097db629de0e4f8af",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "168",
+      "date": "2022-12-21"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "123",
+      "date": "2020-07-23"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
