@@ -1,0 +1,20 @@
+{
+  "act": "kunngerd/2023/51",
+  "status": "dated",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2023-04-19",
+  "published": "2023-04-20",
+  "gazette": "Kunngerðarblað 2023 A - Kunngerð 51 frá 19. apríl 2023",
+  "source": "https://logir.fo/Kunngerd/51-fra-19-04-2023-um-taenastugjold-fyri-tollavgreidslur-otil-uttanfyri-avgreidslutid",
+  "corrects": "fe8a347f115c4cbcdf02f46c3914622be64df1a7",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "14",
+      "date": "2025-02-25"
+    }
+  ],
+  "in_force_basis": "Latest source-named amendment: Henda kunngerð kemur í gildi 1. mars 2025”.",
+  "in_force": "2025-03-01"
+}
