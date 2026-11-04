@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/2021/6",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2021-01-13",
+  "published": "2021-01-15",
+  "gazette": "Kunngerðarblað 2021 A - Kunngerð 6 frá 13. januar 2021",
+  "source": "https://logir.fo/Kunngerd/6-fra-13-01-2021-um-krov-til-innflutning-utflutning-goymslu-oa-av-vapnum-og-lodri",
+  "corrects": "dff64700935e0a8ba90fb87a1e8971396a53bc2d",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "42",
+      "date": "2022-04-06"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
