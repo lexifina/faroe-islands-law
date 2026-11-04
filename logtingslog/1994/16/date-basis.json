@@ -1,0 +1,19 @@
+{
+  "act": "logtingslog/1994/16",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "1994-01-27",
+  "published": "1994-02-15",
+  "gazette": "Kunngerðarblað 1994 A - Hefti 3 A frá 15. februar 1994",
+  "source": "https://logir.fo/Logtingslog/16-fra-27-01-1994-um-forbod-moti-handli-vid-Irak--om-forbud-mod-handel",
+  "corrects": "bc102d110d8a0332175d6b76fbcaa18db91ee146",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "168",
+      "date": "2021-12-16"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
