@@ -1,0 +1,49 @@
+{
+  "act": "kunngerd/2004/19",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2004-05-14",
+  "published": "2004-05-21",
+  "gazette": "Kunngerðarblað 2004 A - Hefti 8 A frá 21. mai 2004",
+  "source": "https://logir.fo/Kunngerd/19-fra-14-05-2004-um-personliga-vidbot-sambaert-almannapensjonslogini-sum-seinast-broytt-vid-kunngerd-nr",
+  "corrects": "a87807679940c33d9e8849d8f6dab619bede4845",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "139",
+      "date": "2022-11-03"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "92",
+      "date": "2005-06-23"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "43",
+      "date": "2023-03-24"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "46",
+      "date": "2019-04-29"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "27",
+      "date": "2005-04-06"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "10",
+      "date": "2015-02-10"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "7",
+      "date": "2024-02-15"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
