@@ -1,0 +1,20 @@
+{
+  "act": "logtingslog/2014/136",
+  "status": "dated",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2014-12-19",
+  "published": "2014-12-23",
+  "gazette": "Kunngerðarblað 2014 A - Løgtingslóg 136 frá 19. desember 2014",
+  "source": "https://logir.fo/Logtingslog/136-fra-19-12-2014-um-endurgjald-til-kommunur-vegna-fradrattir-og-serskattaskipanir",
+  "corrects": "5ed47f9b510857e151948dd91aadd7194139dcb8",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "158",
+      "date": "2023-12-20"
+    }
+  ],
+  "in_force_basis": "Latest source-named amendment: Henda løgtingslóg kemur í gildi 1. januar 2024.",
+  "in_force": "2024-01-01"
+}
