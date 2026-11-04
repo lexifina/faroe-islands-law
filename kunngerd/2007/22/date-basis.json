@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/2007/22",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2007-03-14",
+  "published": "2007-03-16",
+  "gazette": "Kunngerðarblað 2007 A - Hefti 6 A frá 16. mars 2007",
+  "source": "https://logir.fo/Kunngerd/22-fra-14-03-2007-um-roknskaparverk-landsins-o-t",
+  "corrects": "5aecf15c42f15e82590fd2e9a0ac1e6b6821dae3",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "110",
+      "date": "2017-07-14"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
