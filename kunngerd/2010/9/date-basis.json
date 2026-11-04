@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/2010/9",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2010-02-19",
+  "published": "2010-02-22",
+  "gazette": "Kunngerðarblað 2010 A - Hefti 3 A frá 22. februar 2010",
+  "source": "https://logir.fo/Kunngerd/9-fra-19-02-2010-um-skipan-av-sjukraflutningstaenastuni",
+  "corrects": "388e332a8ab1e7a187e1829069578311a6f7fc5e",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "138",
+      "date": "2020-09-24"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
