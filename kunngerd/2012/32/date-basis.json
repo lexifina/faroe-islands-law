@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/2012/32",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2012-04-12",
+  "published": "2012-04-18",
+  "gazette": "Kunngerðarblað 2012 A - Hefti 15 A frá 18. apríl 2012",
+  "source": "https://logir.fo/Kunngerd/32-fra-12-04-2012-fra-iskoyti-til-brillustell-og-brilluglos",
+  "corrects": "3d2bb3c24dbc333c9c5b2066e0d19d097a6b911a",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "78",
+      "date": "2018-05-24"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
