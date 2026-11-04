@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/2005/123",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2005-11-25",
+  "published": "2005-11-30",
+  "gazette": "Kunngerðarblað 2005 A - Hefti 32 A frá 30. november 2005",
+  "source": "https://logir.fo/Kunngerd/123-fra-25-11-2005-um-burturbeining-av-kloakkspillivatni-fra-skipum-oo",
+  "corrects": "fd8622e43a7886ae460a8bd8b005f5abe9878efb",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "131",
+      "date": "2017-09-18"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
