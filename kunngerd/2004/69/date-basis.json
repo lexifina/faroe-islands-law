@@ -1,0 +1,24 @@
+{
+  "act": "kunngerd/2004/69",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2004-10-13",
+  "published": "2004-10-29",
+  "gazette": "Kunngerðarblað 2004 A - Hefti 23 A frá 29. oktober 2004",
+  "source": "https://logir.fo/Kunngerd/69-fra-13-10-2004-um-adressur",
+  "corrects": "b3711f8aa11d6dab390d3c727ec45514d159144d",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "40",
+      "date": "2011-05-16"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "17",
+      "date": "2012-02-21"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
