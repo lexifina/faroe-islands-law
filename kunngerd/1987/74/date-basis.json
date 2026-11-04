@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/1987/74",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "1987-06-29",
+  "published": "1987-07-09",
+  "gazette": "Kunngerðarblað 1987 A - Kunngerð 74 frá 29. juni 1987",
+  "source": "https://logir.fo/Kunngerd/74-fra-29-06-1987-um-reglur-fyri-brunarad-sum-broytt-vid-kunngerd-nr-31-fra",
+  "corrects": "79aca547f73dfd14e990ea75198c7818b7ae6d36",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "31",
+      "date": "1993-03-02"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
