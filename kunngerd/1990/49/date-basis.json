@@ -1,0 +1,20 @@
+{
+  "act": "kunngerd/1990/49",
+  "status": "dated",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "1990-04-02",
+  "published": "1990-04-06",
+  "gazette": "Kunngerðarblað 1990 A - Hefti 8 A frá 6. apríl 1990",
+  "source": "https://logir.fo/Kunngerd/49-fra-02-04-1990-um-umhvorvisgokenning-av-brennistodum-og-tyrvingarplassum-sum-broytt-vid-kunngerd-nr",
+  "corrects": "5d64bcb71dafe30423ef5a105daf078e70f86cd0",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "90",
+      "date": "2007-09-28"
+    }
+  ],
+  "in_force_basis": "Latest source-named amendment: Hendan kunngerð kemur í gildi 1. oktober 2007.",
+  "in_force": "2007-10-01"
+}
