@@ -1,0 +1,50 @@
+{
+  "act": "logtingslog/1996/71",
+  "status": "dated",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "1996-05-20",
+  "published": "1996-05-31",
+  "gazette": "Kunngerðarblað 1996 A - Hefti 9 A frá 31. mai 1996",
+  "source": "https://logir.fo/Logtingslog/71-fra-20-05-1996-um-barnagjald-til-einsamallar-uppihaldarar-v-fl-sum-seinast-broytt-vid",
+  "corrects": "2962cfdec11f73987cb4ae6d4211d57e3b9de7d9",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "104",
+      "date": "2016-11-03"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "6",
+      "date": "2001-01-25"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "16",
+      "date": "2011-03-02"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "25",
+      "date": "1997-03-14"
+    },
+    {
+      "kind": "",
+      "number": "23",
+      "date": "1999-04-21"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "38",
+      "date": "2008-05-21"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "159",
+      "date": "2021-12-10"
+    }
+  ],
+  "in_force_basis": "Latest source-named amendment: Henda løgtingslóg kemur í gildi 1. januar 2022. Samstundis fer løgtingslóg nr. 47 frá 23. mars 1993 um kærunevnd í almanna-, familju- og heilsumálum úr gildi.",
+  "in_force": "2022-01-01"
+}
