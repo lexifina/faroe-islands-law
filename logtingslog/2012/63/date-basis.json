@@ -1,0 +1,70 @@
+{
+  "act": "logtingslog/2012/63",
+  "status": "dated",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2012-05-15",
+  "published": "2012-05-23",
+  "gazette": "Kunngerðarblað 2012 A - Hefti 21 A frá 23. mai 2012",
+  "source": "https://logir.fo/Logtingslog/63-fra-15-05-2012-um-arbeidsfremjandi-tiltok-sum-broytt-vid-logtingslog-nr-142-fra-20",
+  "corrects": "c8ad159384bafdcb466cb8faf5dda59233e52faa",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "187",
+      "date": "2020-12-18"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "142",
+      "date": "2013-12-18"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "70",
+      "date": "2015-05-22"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "76",
+      "date": "2017-05-29"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "142",
+      "date": "2012-12-20"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "132",
+      "date": "2016-12-20"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "53",
+      "date": "2026-06-01"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "138",
+      "date": "2015-12-16"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "152",
+      "date": "2018-12-12"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "103",
+      "date": "2017-07-13"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "159",
+      "date": "2021-12-10"
+    }
+  ],
+  "in_force_basis": "Latest source-named amendment: Hendan løgtingslóg kemur í gildi 1. september 2026.",
+  "in_force": "2026-09-01"
+}
