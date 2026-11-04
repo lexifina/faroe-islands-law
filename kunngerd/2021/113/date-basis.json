@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/2021/113",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2021-07-07",
+  "published": "2021-07-12",
+  "gazette": "Kunngerðarblað 2021 A - Kunngerð 113 frá 7. juli 2021",
+  "source": "https://logir.fo/Kunngerd/113-fra-07-07-2021-um-tolleftirlit",
+  "corrects": "d6e1835725f90a5a9c96683de41fba9f0bd353b3",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "107",
+      "date": "2025-06-10"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
