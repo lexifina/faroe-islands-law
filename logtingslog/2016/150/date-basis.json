@@ -1,0 +1,30 @@
+{
+  "act": "logtingslog/2016/150",
+  "status": "dated",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2016-12-23",
+  "published": "2016-12-27",
+  "gazette": "Kunngerðarblað 2016 A - Løgtingslóg 150 frá 23. desember 2016",
+  "source": "https://logir.fo/Logtingslog/150-fra-23-12-2016-serstakar-treytir-fyri-fiskiskapi-eftir-makreli-nordhavssild-og-svartkjafti-og",
+  "corrects": "2b6b06d9fdd6aa53a8045db33e8f4aba0c1539f0",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "91",
+      "date": "2017-06-06"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "158",
+      "date": "2017-12-18"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "91",
+      "date": "2020-06-07"
+    }
+  ],
+  "in_force_basis": "Latest source-named amendment: Henda løgtingslóg kemur í gildi 1. januar 2021.",
+  "in_force": "2021-01-01"
+}
