@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/2013/107",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2013-08-13",
+  "published": "2013-08-16",
+  "gazette": "Kunngerðarblað 2013 A - Kunngerð 107 frá 13. august 2013",
+  "source": "https://logir.fo/Kunngerd/107-fra-13-08-2013-um-atekning-og-studul-til-mentanarsogulig-skip",
+  "corrects": "6d351ad641c4649984a908bf5887259621713f4e",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "124",
+      "date": "2016-12-06"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
