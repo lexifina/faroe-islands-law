@@ -1,0 +1,29 @@
+{
+  "act": "kunngerd/2019/82",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2019-06-14",
+  "published": "2019-06-18",
+  "gazette": "Kunngerðarblað 2019 A - Kunngerð 82 frá 14. juni 2019",
+  "source": "https://logir.fo/Kunngerd/82-fra-14-06-2019-um-tillutan-av-aliloyvum",
+  "corrects": "20a0043d989f27a35122398f57b812e3e4bf0183",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "77",
+      "date": "2024-07-08"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "31",
+      "date": "2025-03-19"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "89",
+      "date": "2019-06-26"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
