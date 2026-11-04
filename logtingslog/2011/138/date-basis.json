@@ -1,0 +1,20 @@
+{
+  "act": "logtingslog/2011/138",
+  "status": "dated",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2011-10-06",
+  "published": "2011-10-14",
+  "gazette": "Kunngerðarblað 2011 A - Hefti 39 A frá 14. oktober 2011",
+  "source": "https://logir.fo/Logtingslog/138-fra-06-10-2011-fra-lutaibudafelog",
+  "corrects": "732c0f235bcd5e6d2f53c1ccc2b96f93aa2559fb",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "31",
+      "date": "2023-03-09"
+    }
+  ],
+  "in_force_basis": "Latest source-named amendment: Henda løgtingslóg kemur í gildi 1. september 2023.",
+  "in_force": "2023-09-01"
+}
