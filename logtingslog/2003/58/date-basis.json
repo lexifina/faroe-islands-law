@@ -1,0 +1,25 @@
+{
+  "act": "logtingslog/2003/58",
+  "status": "dated",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2003-04-22",
+  "published": "2003-05-01",
+  "gazette": "Kunngerðarblað 2003 A - Hefti 14 A frá 1. mai 2003",
+  "source": "https://logir.fo/Logtingslog/58-fra-22-04-2003-um-innflutning-og-hald-av-vandamiklum-djorum-oo-sum-broytt-vid",
+  "corrects": "318ed0d691a50ba63fa3ed5f5dfa80f8adfe7fbc",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "18",
+      "date": "2008-05-08"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "31",
+      "date": "2022-03-17"
+    }
+  ],
+  "in_force_basis": "Latest source-named amendment: Henda løgtingslóg kemur í gildi 1. juli 2022 og samstundis fara løgtingslóg nr. 110 frá 13. desember 2006 um kærunevnd í lendismálum og løgtingslóg nr. 17 frá 8. mai 2008 um Vinnukærunevnd úr gildi.",
+  "in_force": "2022-07-01"
+}
