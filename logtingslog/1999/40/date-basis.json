@@ -1,0 +1,25 @@
+{
+  "act": "logtingslog/1999/40",
+  "status": "dated",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "1999-04-23",
+  "published": "1999-05-04",
+  "gazette": "Kunngerðarblað 1999 A - Hefti 7 A frá 4. mai 1999",
+  "source": "https://logir.fo/Logtingslog/40-fra-23-04-1999-um-djoralaeknavirksemi-vm-sum-broytt-vid-logtingslog-nr-18-fra-8",
+  "corrects": "7f4bc3ca60f2bffe2bac15318b718673cdb323d6",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "18",
+      "date": "2008-05-08"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "31",
+      "date": "2022-03-17"
+    }
+  ],
+  "in_force_basis": "Latest source-named amendment: Henda løgtingslóg kemur í gildi 1. juli 2022 og samstundis fara løgtingslóg nr. 110 frá 13. desember 2006 um kærunevnd í lendismálum og løgtingslóg nr. 17 frá 8. mai 2008 um Vinnukærunevnd úr gildi.",
+  "in_force": "2022-07-01"
+}
