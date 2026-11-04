@@ -1,0 +1,29 @@
+{
+  "act": "logtingslog/2020/105",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2020-06-29",
+  "published": "2020-07-02",
+  "gazette": "Kunngerðarblað 2020 A - Løgtingslóg 105 frá 29. juni 2020",
+  "source": "https://logir.fo/Logtingslog/105-fra-29-06-2020-um-skatting-av-vinningi-fra-solu-av-veidiraettindum",
+  "corrects": "07b53e1144b7b3cce0f0a25645847788615ba9ba",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "94",
+      "date": "2022-05-23"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "159",
+      "date": "2021-12-10"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "149",
+      "date": "2023-12-19"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
