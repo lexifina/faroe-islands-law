@@ -1,0 +1,39 @@
+{
+  "act": "kunngerd/2001/24",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2001-03-16",
+  "published": "2001-03-17",
+  "gazette": "Kunngerðarblað 2001 A - Hefti 7 A frá 17. mars 2001",
+  "source": "https://logir.fo/Kunngerd/24-fra-16-03-2001-um-veterinert-eftirlit-vid-innflutningi-av-matvorum-ur-djorum-sum-seinast",
+  "corrects": "190d0b0b36c3e0616086e383a32ee633c946cab6",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "119",
+      "date": "2011-09-14"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "4",
+      "date": "2022-01-12"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "128",
+      "date": "2001-09-21"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "11",
+      "date": "2006-03-08"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "202",
+      "date": "2020-12-22"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
