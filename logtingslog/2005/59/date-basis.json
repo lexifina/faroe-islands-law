@@ -1,0 +1,30 @@
+{
+  "act": "logtingslog/2005/59",
+  "status": "dated",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2005-05-17",
+  "published": "2005-05-19",
+  "gazette": "Kunngerðarblað 2005 A - Hefti 14 A frá 19. mai 2005",
+  "source": "https://logir.fo/Logtingslog/59-fra-17-05-2005-um-verju-av-havumhvorvinum",
+  "corrects": "642bb312bb45853211f90285ac7eb0e66087df61",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "64",
+      "date": "2013-05-17"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "91",
+      "date": "2020-06-07"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "58",
+      "date": "2011-05-26"
+    }
+  ],
+  "in_force_basis": "Latest source-named amendment: Henda løgtingslóg kemur í gildi 1. januar 2021.",
+  "in_force": "2021-01-01"
+}
