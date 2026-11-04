@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/2005/110",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2005-09-28",
+  "published": "2005-08-29",
+  "gazette": "Kunngerðarblað 2005 A - Hefti 25 A frá 29. september 2005",
+  "source": "https://logir.fo/Kunngerd/110-fra-28-09-2005-um-postkassar-postrivur-og-postkassastodir-sum-broytt-vid-kunngerd-nr-83",
+  "corrects": "57ac90fba0e2a89e2b341ad737421a9662fad4da",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "83",
+      "date": "2007-08-23"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
