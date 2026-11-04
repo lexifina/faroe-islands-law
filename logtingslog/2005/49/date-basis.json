@@ -1,0 +1,19 @@
+{
+  "act": "logtingslog/2005/49",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2005-05-09",
+  "published": "2005-05-12",
+  "gazette": "Kunngerðarblað 2005 A - Hefti 13 A frá 12. mai 2005",
+  "source": "https://logir.fo/Logtingslog/49-fra-09-05-2005-um-stuttar-framhaldsutbugvingar-a-yrkisskulum",
+  "corrects": "0e4f30591892a91fb635b67a77079c40482d95bb",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "88",
+      "date": "2015-05-22"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
