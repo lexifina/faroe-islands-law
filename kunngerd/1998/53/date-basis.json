@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/1998/53",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "1998-04-24",
+  "published": "1998-04-27",
+  "gazette": "Kunngerðarblað 1998 A - Hefti 9 A frá 27. apríl 1998",
+  "source": "https://logir.fo/Kunngerd/53-fra-24-04-1998-um-kommunala-barna-og-ungdomstannrokt",
+  "corrects": "17a2a8cc48397224a31309ea12d24e2cc71f8916",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "10",
+      "date": "2017-02-14"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
