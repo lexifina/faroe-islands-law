@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/2019/7",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2019-02-07",
+  "published": "2019-02-08",
+  "gazette": "Kunngerðarblað 2019 A - Kunngerð 7 frá 7. februar 2019",
+  "source": "https://logir.fo/Kunngerd/7-fra-07-02-2019-um-menningarkvotur-av-makreli-nordhavssild-og-svartkjafti-til-menningaraetlanir-i-avisum",
+  "corrects": "ca6304bdbedc4b4e0250f767f8dfd680a10731ab",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "30",
+      "date": "2019-03-19"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
