@@ -1,0 +1,20 @@
+{
+  "act": "logtingslog/2005/29",
+  "status": "dated",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2005-04-08",
+  "published": "2005-04-13",
+  "gazette": "Kunngerðarblað 2005 A - Hefti 10 A frá 13. apríl 2005",
+  "source": "https://logir.fo/Logtingslog/29-fra-08-04-2005-um-umskipan-av-landsskatta-mvg-og-tollskuld-vm-hja-folki",
+  "corrects": "62f45b737e6cb083ff05a189a95b95abfafb77df",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "31",
+      "date": "2022-03-17"
+    }
+  ],
+  "in_force_basis": "Latest source-named amendment: Henda løgtingslóg kemur í gildi 1. juli 2022 og samstundis fara løgtingslóg nr. 110 frá 13. desember 2006 um kærunevnd í lendismálum og løgtingslóg nr. 17 frá 8. mai 2008 um Vinnukærunevnd úr gildi.",
+  "in_force": "2022-07-01"
+}
