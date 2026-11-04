@@ -1,0 +1,24 @@
+{
+  "act": "logtingslog/1955/26",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "1955-08-17",
+  "published": "1955-08-17",
+  "gazette": "Kunngerðarblað 1955 A - Løgtingslóg 26 frá 17. august 1955",
+  "source": "https://logir.fo/Logtingslog/26-fra-17-08-1955-um-Foroya-Natturugripasavn-sum-seinast-broytt-vid-logtingslog-nr-66-fra",
+  "corrects": "b95fbef0c32276120faab6eaeb895a1baa94debb",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "66",
+      "date": "2000-05-10"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "69",
+      "date": "1986-06-05"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
