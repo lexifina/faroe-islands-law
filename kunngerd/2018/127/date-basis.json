@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/2018/127",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2018-09-12",
+  "published": "2018-09-21",
+  "gazette": "Kunngerðarblað 2018 A - Kunngerð 127 frá 12. september 2018",
+  "source": "https://logir.fo/Kunngerd/127-fra-12-09-2018-um-serundirvising-sernamsfrodilig-atok-og-sernamsfrodiligan-studul",
+  "corrects": "148e33ab25648b35490d357c68b4b8cedc151809",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "23",
+      "date": "2019-03-19"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
