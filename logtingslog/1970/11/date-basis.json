@@ -1,0 +1,49 @@
+{
+  "act": "logtingslog/1970/11",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "1970-04-03",
+  "published": "1970-04-03",
+  "gazette": "Kunngerðarblað 1970 A - Løgtingslóg 11 frá 3. apríl 1970",
+  "source": "https://logir.fo/Logtingslog/11-fra-03-04-1970-um-eigaraibudir-sum-seinast-broytt-vid-logtingslog-nr-55-fra-25",
+  "corrects": "ad5fe78ed7627d4ae73918e0bfb78291bb644ddd",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "41",
+      "date": "2022-04-04"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "33",
+      "date": "1988-05-26"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "63",
+      "date": "1962-12-11"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "82",
+      "date": "1970-11-18"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "12",
+      "date": "2013-02-11"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "55",
+      "date": "2009-05-25"
+    },
+    {
+      "kind": "løgtingslóg",
+      "number": "31",
+      "date": "2022-03-17"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
