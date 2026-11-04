@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/2008/90",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2008-10-28",
+  "published": "2008-10-31",
+  "gazette": "Kunngerðarblað 2008 A - Hefti 22 A frá 31. oktober 2008",
+  "source": "https://logir.fo/Kunngerd/90-fra-28-10-2008-um-studul-til-mentan-og-list",
+  "corrects": "a9ecc45f40f8b6ff454b6cd7f6de677c57ddd7cf",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "95",
+      "date": "2016-09-12"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
