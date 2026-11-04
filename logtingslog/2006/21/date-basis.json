@@ -1,0 +1,19 @@
+{
+  "act": "logtingslog/2006/21",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2006-04-11",
+  "published": "2006-04-12",
+  "gazette": "Kunngerðarblað 2006 A - Hefti 9 A frá 12. apríl 2006",
+  "source": "https://logir.fo/Logtingslog/21-fra-11-04-2006-um-mal-id-hoyra-undir-fasta-gerdarraettin-sum-broytt-vid-logtingslog",
+  "corrects": "a8e1cc0b980cd2880322dd810681512d63816ded",
+  "source_dates": [
+    {
+      "kind": "løgtingslóg",
+      "number": "40",
+      "date": "2007-05-08"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
