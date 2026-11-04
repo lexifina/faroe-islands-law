@@ -1,0 +1,29 @@
+{
+  "act": "kunngerd/2005/20",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2005-03-14",
+  "published": "2005-03-15",
+  "gazette": "Kunngerðarblað 2005 A - Hefti 7 A frá 15. mars 2005",
+  "source": "https://logir.fo/Kunngerd/20-fra-14-03-2005-um-koppseting-fyri-ILA-Infectious-salmon-anaemia-ISA-sum-seinast-broytt",
+  "corrects": "22fcdbe157d66c931c6c2eb4c77f3ea45bd3ca76",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "96",
+      "date": "2010-10-28"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "22",
+      "date": "2005-03-16"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "13",
+      "date": "2008-04-22"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
