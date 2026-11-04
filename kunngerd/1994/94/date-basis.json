@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/1994/94",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "1994-06-15",
+  "published": "1994-07-06",
+  "gazette": "Kunngerðarblað 1994 A - Hefti 14 A frá 6. juli 1994",
+  "source": "https://logir.fo/Kunngerd/94-fra-15-06-1994-um-eldfiman-log",
+  "corrects": "19c1340ecbe2d959ac9cab1c07b1e4e24a2bbcfa",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "111",
+      "date": "2019-07-17"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
