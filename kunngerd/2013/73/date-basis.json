@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/2013/73",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2013-05-31",
+  "published": "2013-06-07",
+  "gazette": "Kunngerðarblað 2013 A - Kunngerð 73 frá 31. mai 2013",
+  "source": "https://logir.fo/Kunngerd/73-fra-31-05-2013-um-provtalsstiga-og-doming",
+  "corrects": "533c25a342b868c44fca277a7c537c358ba9b8c4",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "124",
+      "date": "2013-11-13"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
