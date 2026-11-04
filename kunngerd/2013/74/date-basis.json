@@ -1,0 +1,19 @@
+{
+  "act": "kunngerd/2013/74",
+  "status": "text-as-of",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2013-06-03",
+  "published": "2013-06-07",
+  "gazette": "Kunngerðarblað 2013 A - Kunngerð 74 frá 3. juni 2013",
+  "source": "https://logir.fo/Kunngerd/74-fra-03-06-2013-um-skrivstovuutbugving-vid-grein-innan-fyrisiting",
+  "corrects": "81e3cb1c4105677f27a497cda57a167119b3eb6d",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "18",
+      "date": "2023-02-14"
+    }
+  ],
+  "in_force_basis": "The source gives no date for this consolidated version; commencement of the full current text is unresolved. Source enactment, publication and amendment dates are retained separately."
+}
