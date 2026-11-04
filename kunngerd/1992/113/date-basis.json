@@ -1,0 +1,60 @@
+{
+  "act": "kunngerd/1992/113",
+  "status": "dated",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "1992-07-01",
+  "published": "1992-07-17",
+  "gazette": "Kunngerðarblað 1992 A - Hefti 23 A frá 17. juli 1992",
+  "source": "https://logir.fo/Kunngerd/113-fra-01-07-1992-um-aseting-av-soluprisi-a-heilivagi-sum-seinast-broytt-vid-kunngerd",
+  "corrects": "a48e5041062d941b93b8537197959ffae462b8ff",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "17",
+      "date": "1997-03-10"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "70",
+      "date": "2009-05-28"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "81",
+      "date": "2010-06-28"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "137",
+      "date": "2014-12-22"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "40",
+      "date": "2016-05-02"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "72",
+      "date": "2018-05-07"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "10",
+      "date": "2020-02-13"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "142",
+      "date": "2024-12-20"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "41",
+      "date": "2012-05-08"
+    }
+  ],
+  "in_force_basis": "Latest source-named amendment: Henda kunngerð kemur í gildi 1. januar 2025.",
+  "in_force": "2025-01-01"
+}
