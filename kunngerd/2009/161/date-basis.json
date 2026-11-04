@@ -1,0 +1,30 @@
+{
+  "act": "kunngerd/2009/161",
+  "status": "dated",
+  "first_law": null,
+  "text_as_of": "2026-10-29",
+  "enacted": "2009-12-17",
+  "published": "2009-12-18",
+  "gazette": "Kunngerðarblað 2009 A - Hefti 33 A frá 18. desember 2009",
+  "source": "https://logir.fo/Kunngerd/161-fra-17-12-2009-um-utgjald-vm-av-arbeidsloysisstudli-til-arbeidsleys-a-fiskavirkjum",
+  "corrects": "fc0270127608ce659f036df64f69bafd9f634362",
+  "source_dates": [
+    {
+      "kind": "kunngerð",
+      "number": "99",
+      "date": "2023-09-06"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "11",
+      "date": "2025-02-12"
+    },
+    {
+      "kind": "kunngerð",
+      "number": "225",
+      "date": "2025-12-22"
+    }
+  ],
+  "in_force_basis": "Latest source-named amendment: Henda kunngerð kemur í gildi 1. januar 2026.",
+  "in_force": "2026-01-01"
+}
