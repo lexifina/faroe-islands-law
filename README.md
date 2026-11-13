@@ -1,29 +1,44 @@
-# The laws of the Faroe Islands
+# Lógir Føroya
+
+**Føroyskt** · [English](README.en.md)
 
 <picture>
-<source media="(prefers-color-scheme: dark)" srcset="data/effort-dark.svg">
-<img alt="Faroese law in this repository: what it holds, changes by the year they took effect, completeness against the official sources, and the correctness of what is held" src="data/effort-light.svg" width="880">
+<source media="(prefers-color-scheme: dark)" srcset="data/fo/effort-dark.svg">
+<img alt="Føroysk lóggáva í hesi goymsluni: innihald, broytingar eftir árinum, tær komu í gildi, hvussu fullfíggjað hon er eftir almennum keldum og hvussu rætt innihaldið er" src="data/fo/effort-light.svg" width="880">
 </picture>
 
-Part of [lexifina/global-law](https://github.com/lexifina/global-law), one git history for every country's law: this is Faroe Islands' national law, which global-law reads at `faroe-islands/national/acts/`.
+Partur av [lexifina/global-law](https://github.com/lexifina/global-law), eini git-søgu fyri lóggávuna í øllum londum: hetta er landslóggáva Føroya, sum global-law lesur í `faroe-islands/national/acts/`.
 
-This record preserves 1,329 official current-text acts listed by Lógasavnið (logir.fo) as in force on 29 October 2026: 444 Løgtingslógir, 882 Kunngerðir and 3 Løgtingslógarkunngerðir. The texts are Faroese and, where the source uses it, Danish. Each act has one observed current text, divided into provision and textual-annex files in the reading order in `index.txt`. Earlier wording is not reconstructed.
+Hetta savnið varðveitir 1.329 almennar lógir og kunngerðir í núgaldandi orðing, sum Lógasavnið (logir.fo) vísti sum galdandi 29. oktober 2026: 444 løgtingslógir, 882 kunngerðir og 3 løgtingslógarkunngerðir. Tekstirnir eru á føroyskum og, har sum keldan brúkar tað, á donskum. Fyri hvørt skjal er ein núgaldandi tekstur eygleiddur, býttur sundur í fílur við ásetingum og tekstfylgiskjølum í teirri lesiraðfylgju, sum `index.txt` gevur. Eldri orðingar eru ikki endurskapaðar.
 
-The source-date correction set preserves every existing law-text file and original commit. It corrects the date claim through labelled append-only metadata records linked by `Corrects` and `Supersedes`.
+Rættingarnar av dagfestingunum eftir keldunum varðveita allar verandi fílur við lógartekstum og allar upprunaligar goymingar (commits). Tær rætta dagfestingarnar við merktum metadátaskrásetingum, sum bert verða løgdar afturat og eru tengdar saman við `Corrects` og `Supersedes`.
 
-| Current-text date status | Acts | Meaning |
+| Støða á dagfesting av núgaldandi teksti | Skjøl | Týdningur |
 | --- | ---: | --- |
-| Source-dated | 659 | `In-force` is established from the act's commencement clause or the latest source-named amendment. |
-| Observation only | 262 | `Text-as-of: 2026-10-29`; entry into force of the full current text is unresolved. No `In-force` date is assigned. |
-| Held | 408 | Date ambiguity or source images require further examination. Observed text remains accessible; no verified commencement is claimed. |
+| Dagfest eftir keldu | 659 | `In-force` er staðfest út frá gildiskomuásetingini í skjalinum ella seinastu broytingini, sum keldan nevnir. |
+| Bert eygleiðing | 262 | `Text-as-of: 2026-10-29`; tað er ikki avgreitt, nær allur núgaldandi teksturin kom í gildi. Eingin `In-force`-dagur er settur. |
+| Hildið aftur | 408 | Óvissa um dagfestingina ella myndir í keldunum krevja nærri kanning. Eygleiddi teksturin er framvegis atkomuligur; einki verður sagt um váttaða gildiskomu. |
 
-`data/source-dates.json` retains source enactment, gazette publication and named amendment dates separately. An observation date is never an entry-into-force date. Source-dated current wording does not establish earlier wording; the record contains only the supplied current text. The source-date records correct the legal commencement claims; the observation reader preserves access to every original observed version. The unchanged historical commits remain visible in git.
+`data/source-dates.json` goymir hvørja sær dagfestingarnar fyri samtykt, kunngerð í Kunngerðablaðnum og broytingar, sum keldan nevnir við navni. Ein eygleiðingardagur er ongantíð ein gildiskomudagur. Ein núgaldandi orðing, sum er dagfest eftir keldu, staðfestir einki um eldri orðingar; savnið inniheldur bert tann núgaldandi tekstin, sum keldan veitti. Skrásetingarnar av keldudagfestingunum rætta upplýsingarnar um rættarliga gildiskomu; eygleiðingarlesarin varðveitir atgongd til hvørja upprunaliga eygleidda útgávu. Tær óbroyttu søguligu goymingarnar (commits) síggjast framvegis í git.
 
-Use `python tools/in_force_on.py YYYY-MM-DD ACT-PATH [UNIT]` to read a supported record. The observation reader preserves the published version-selection behavior. Date holds remain visible in metadata and do not remove existing observations; output does not certify legal effect. Consult the source-date records separately for commencement evidence.
+Brúka `python tools/in_force_on.py YYYY-MM-DD ACT-PATH [UNIT]` til at lesa eitt skjal, sum amboðið stuðlar. Eygleiðingarlesarin velur útgávur á sama hátt, sum áður er almannakunngjørt. Dagfestingar, sum eru hildnar aftur, síggjast framvegis í metadátunum og taka ikki verandi eygleiðingar burtur; úrslitið váttar ikki rættarvirknað. Hygg serskilt at skrásetingunum av keldudagfestingunum fyri prógv um gildiskomu.
 
-There are 31 image-bearing source acts with 107 image references in the observed pages. Those acts are held; this text record does not claim they are complete. The other unresolved date cases are identified in `data/source-dates.json`. This is a partial record, and current coverage beyond the source listing dated 29 October 2026 has not been established.
+31 skjøl í keldunum hava myndir, við 107 tilvísingum til myndir á teimum eygleiddu síðunum. Hesi skjøl eru hildin aftur; hetta tekstsavnið sigur ikki, at tey eru fullfíggjað. Hini óavgreiddu dagfestingarmálini eru tilskilað í `data/source-dates.json`. Hetta er eitt ófullfíggjað savn, og tað er ikki staðfest, hvussu nógv tað fevnir um útyvir yvirlitið í keldunum frá 29. oktober 2026.
 
-The statutory text comes from Lógasavnið and is unchanged. Source dates and quotations are retained as supplied. Metadata and tools were prepared with AI assistance and reviewed against official source pages. Lógasavnið states that the text published in Kunngerðablaðið is authoritative.
+Lógartekstirnir koma úr Lógasavninum og eru óbroyttir. Dagfestingar og sitat úr keldunum eru varðveitt, sum tey vórðu veitt. Metadáta og amboð vórðu gjørd við hjálp frá vitlíki og eftirkannað móti almennu keldusíðunum. Lógasavnið sigur, at tað er teksturin, sum er kunngjørdur í Kunngerðablaðnum, ið er galdandi.
 
-## Licence
-Source: Lógasavnið, https://logir.fo, the Faroese law collection published by Løgmansskrivstovan. The site's footer reads "© Øll rættindi tilskilað" (all rights reserved), but official texts are not protected by copyright in the Faroe Islands: Løgtingslóg nr. 30 frá 30. apríl 2015 um upphavsrætt (Upphavsrættarlógin), § 9, stk. 1, as published on logir.fo (`logtingslog/2015/30/paragraf-9.md`), reads: "Lógir, kunngerðir, rundskriv frá myndugleikum, reglugerðir, dómar og onnur líknandi skjøl, sum tað almenna letur gera, eru ikki vard av upphavsrætti." (Laws, executive orders, circulars from the authorities, regulations, judgments and other similar documents that public authorities have made are not protected by copyright.) Under stk. 2, independent contributions to such documents stay protected, but may be reproduced together with them. The reservation on the site may cover its own material (design, software, editorial apparatus). The wording of the acts was not changed; it was only split into files and lines.  Lexifina's own contributions (the tools, the arrangement and the commit messages) are CC0. See [`LICENSE`](LICENSE).
+## Nýtsluloyvi
+Kelda: Lógasavnið, https://logir.fo, føroyska lógarsavnið, sum Løgmansskrivstovan gevur út. Niðast á heimasíðuni stendur "© Øll rættindi tilskilað", men almennir tekstir eru ikki vardir av upphavsrætti í Føroyum: Løgtingslóg nr. 30 frá 30. apríl 2015 um upphavsrætt (Upphavsrættarlógin), § 9, stk. 1, sum hon er kunngjørd á logir.fo (`logtingslog/2015/30/paragraf-9.md`), ljóðar soleiðis: "Lógir, kunngerðir, rundskriv frá myndugleikum, reglugerðir, dómar og onnur líknandi skjøl, sum tað almenna letur gera, eru ikki vard av upphavsrætti." Eftir stk. 2 eru sjálvstøðug íkøst í slík skjøl framvegis vard, men tey kunnu endurgevast saman við skjølunum. Fyrivarnið á heimasíðuni kann fevna um tilfar, sum heimasíðan sjálv eigur (sniðgeving, ritbúnað, ritstjórnarligt tilfar). Orðingin í skjølunum er ikki broytt; hon er bert býtt sundur í fílur og linjur. Íkøst Lexifina sjálvs (amboðini, skipanin og lýsingarnar av goymingunum) eru CC0. Sí [`LICENSE`](LICENSE).
+
+Hetta er ein umseting av ensku útgávuni ([README.en.md](README.en.md)); um tær eru ólíkar, er tað enska útgávan, sum galdur.
+
+## Meira
+
+Úr goymsluni [lexifina/global-law](https://github.com/lexifina/global-law) (á enskum):
+
+- [FEATURES.md](https://github.com/lexifina/global-law/blob/main/FEATURES.md): allir eginleikar og hvat hvørt savn má stuðla (`git blame`, `law.py`, MCP-amboð)
+- [FAQ.md](https://github.com/lexifina/global-law/blob/main/FAQ.md): spurningar og svar · [CONTRIBUTING.md](https://github.com/lexifina/global-law/blob/main/CONTRIBUTING.md): uppskot um broytingar · [MCP.md](https://github.com/lexifina/global-law/blob/main/MCP.md): MCP-ambætari · [REPRODUCE.md](https://github.com/lexifina/global-law/blob/main/REPRODUCE.md): hvussu tað er gjørt · [CHANGELOG.md](https://github.com/lexifina/global-law/blob/main/CHANGELOG.md)
+- [FRESHNESS.md](https://github.com/lexifina/global-law/blob/main/FRESHNESS.md): hvussu dagført hvørt savn er · [Eftirlit](https://github.com/lexifina/global-law/tree/main/monitoring): um dagføringarnar virka · [WATCHING.md](https://github.com/lexifina/global-law/blob/main/WATCHING.md): hvussu hvør almenn kelda verður fylgd fyri broytingar
+- [performance/](https://github.com/lexifina/global-law/tree/main/performance): hvussu skjót amboðini eru, mált
+- [visualisations/](https://github.com/lexifina/global-law/tree/main/visualisations): myndir og sambond tvørtur um lóggávu í øllum heiminum
+- [Veikleikar](https://github.com/lexifina/global-law/tree/main/vulnerabilities): feilir í lógum, sum tær eru kunngjørdar

@@ -1,0 +1,83 @@
+<svg xmlns="http://www.w3.org/2000/svg" width="880" height="752" viewBox="0 0 880 752" font-family="-apple-system,BlinkMacSystemFont,Segoe UI,Noto Sans,Helvetica,Arial,sans-serif">
+<rect x="0.5" y="0.5" width="879" height="751" rx="6" fill="#ffffff" stroke="#d1d9e0"/>
+<text x="24" y="38" font-size="16" font-weight="600" fill="#1f2328">Føroysk lóggáva sum git-søga</text>
+<rect x="604.6" y="24.5" width="155" height="20" rx="10" fill="none" stroke="#d1d9e0"/>
+<text x="682.0" y="38.5" font-size="11.5" font-weight="500" text-anchor="middle" fill="#59636e">dagført til 29. okt. 2026</text>
+<rect x="767.3" y="24.5" width="89" height="20" rx="10" fill="none" stroke="#d1d9e0"/>
+<text x="811.7" y="38.5" font-size="11.5" font-weight="500" text-anchor="middle" fill="#59636e">støða: gamalt</text>
+<rect x="24.5" y="60.5" width="831" height="58" rx="6" fill="#ffffff" stroke="#d1d9e0"/>
+<text x="40.0" y="87" font-size="20" font-weight="600" fill="#1f2328">1.329</text>
+<text x="40.0" y="106" font-size="12" fill="#59636e">lógir og kunngerðir</text>
+<line x1="190.4" y1="61" x2="190.4" y2="118" stroke="#d1d9e0"/>
+<text x="206.4" y="87" font-size="20" font-weight="600" fill="#1f2328">1.329</text>
+<text x="206.4" y="106" font-size="12" fill="#59636e">broytingar, sum commits</text>
+<line x1="356.8" y1="61" x2="356.8" y2="118" stroke="#d1d9e0"/>
+<text x="372.8" y="87" font-size="20" font-weight="600" fill="#1f2328">21.391</text>
+<text x="372.8" y="106" font-size="12" fill="#59636e">fílur við ásetingum</text>
+<line x1="523.2" y1="61" x2="523.2" y2="118" stroke="#d1d9e0"/>
+<text x="539.2" y="87" font-size="20" font-weight="600" fill="#1f2328">1</text>
+<text x="539.2" y="106" font-size="12" fill="#59636e" textLength="142" lengthAdjust="spacingAndGlyphs">høvundar: lógir, útgevarar</text>
+<line x1="689.6" y1="61" x2="689.6" y2="118" stroke="#d1d9e0"/>
+<text x="705.6" y="87" font-size="20" font-weight="600" fill="#1f2328">2026–2026</text>
+<text x="705.6" y="106" font-size="12" fill="#59636e">ára søga</text>
+<rect x="24.5" y="134.5" width="831" height="248" rx="6" fill="#ffffff" stroke="#d1d9e0"/>
+<text x="40.5" y="160.5" font-size="14" font-weight="600" fill="#1f2328">Broytingar eftir árinum, tær komu í gildi</text>
+<line x1="80.5" y1="330.5" x2="839.5" y2="330.5" stroke="#d1d9e0" stroke-width="1"/>
+<text x="72.5" y="334.5" font-size="11" text-anchor="end" fill="#59636e">0</text>
+<line x1="80.5" y1="255.5" x2="839.5" y2="255.5" stroke="#d1d9e0" stroke-width="0.6" stroke-dasharray="3 3"/>
+<text x="72.5" y="259.5" font-size="11" text-anchor="end" fill="#59636e">1.000</text>
+<line x1="80.5" y1="180.5" x2="839.5" y2="180.5" stroke="#d1d9e0" stroke-width="0.6" stroke-dasharray="3 3"/>
+<text x="72.5" y="184.5" font-size="11" text-anchor="end" fill="#59636e">2.000</text>
+<text x="98.6" y="346.5" font-size="11" text-anchor="middle" fill="#59636e">2006</text>
+<text x="170.9" y="346.5" font-size="11" text-anchor="middle" fill="#59636e">2008</text>
+<text x="243.1" y="346.5" font-size="11" text-anchor="middle" fill="#59636e">2010</text>
+<text x="315.4" y="346.5" font-size="11" text-anchor="middle" fill="#59636e">2012</text>
+<text x="387.7" y="346.5" font-size="11" text-anchor="middle" fill="#59636e">2014</text>
+<text x="460.0" y="346.5" font-size="11" text-anchor="middle" fill="#59636e">2016</text>
+<text x="532.3" y="346.5" font-size="11" text-anchor="middle" fill="#59636e">2018</text>
+<text x="604.6" y="346.5" font-size="11" text-anchor="middle" fill="#59636e">2020</text>
+<text x="676.9" y="346.5" font-size="11" text-anchor="middle" fill="#59636e">2022</text>
+<text x="749.1" y="346.5" font-size="11" text-anchor="middle" fill="#59636e">2024</text>
+<rect x="803.96" y="230.8" width="34.94" height="99.7" rx="1.5" fill="#1f883d"><title>2026: broytingar komnar í gildi: 1.329</title></rect>
+<text x="821.4" y="346.5" font-size="11" text-anchor="middle" fill="#59636e">2026</text>
+<text x="821.4" y="224.8" font-size="11" font-weight="600" text-anchor="middle" fill="#1f2328">1.329 í 2026</text>
+<text x="40.5" y="368.5" font-size="11.5" fill="#59636e">Broytingar dagfestar eftir gildisdegi: 1.329. Søguslag: current-only.</text>
+<rect x="24.5" y="396.5" width="831" height="152" rx="6" fill="#ffffff" stroke="#d1d9e0"/>
+<text x="40.5" y="422.5" font-size="14" font-weight="600" fill="#1f2328">Hvussu fullfíggjað, eftir almennum keldum, 12. nov. 2026</text>
+<text x="40.5" y="446.5" font-size="13" fill="#1f2328">Grundlóg</text>
+<text x="40.5" y="462.5" font-size="11.5" fill="#59636e">í goymsluni</text>
+<g><title>Grundlóg: 100 %</title><rect x="276.5" y="443.5" width="91.5" height="8" rx="4" fill="#eff2f5"/><rect x="276.5" y="443.5" width="91.5" height="8" rx="4" fill="#1f883d"/></g>
+<text x="424.0" y="450.5" font-size="13" font-weight="600" text-anchor="end" fill="#1f2328">100 %</text>
+<text x="40.5" y="482.5" font-size="13" fill="#1f2328">Høvuðslógir</text>
+<text x="40.5" y="498.5" font-size="11.5" fill="#59636e">partur av høvuðslógunum</text>
+<g><title>Høvuðslógir: 80 %</title><rect x="276.5" y="479.5" width="91.5" height="8" rx="4" fill="#eff2f5"/><rect x="276.5" y="479.5" width="73.2" height="8" rx="4" fill="#1f883d"/></g>
+<text x="424.0" y="486.5" font-size="13" font-weight="600" text-anchor="end" fill="#1f2328">80 %</text>
+<text x="40.5" y="518.5" font-size="13" fill="#1f2328">Landslóggáva</text>
+<text x="40.5" y="534.5" font-size="11.5" fill="#59636e">partur av almenna samlaða talinum</text>
+<g><title>Landslóggáva: 100 %</title><rect x="276.5" y="515.5" width="91.5" height="8" rx="4" fill="#eff2f5"/><rect x="276.5" y="515.5" width="91.5" height="8" rx="4" fill="#1f883d"/></g>
+<text x="424.0" y="522.5" font-size="13" font-weight="600" text-anchor="end" fill="#1f2328">100 %</text>
+<text x="456.0" y="446.5" font-size="13" fill="#1f2328">Økislóggáva</text>
+<text x="456.0" y="462.5" font-size="11.5" fill="#59636e">eingi øki við lóggávuvaldi</text>
+<text x="839.5" y="450.5" font-size="13" font-weight="600" text-anchor="end" fill="#59636e">ikki viðkomandi</text>
+<text x="456.0" y="482.5" font-size="13" fill="#1f2328">Dómsavgerðir</text>
+<text x="456.0" y="498.5" font-size="11.5" fill="#59636e">hægstu dómstólar í goymsluni</text>
+<g><title>Dómsavgerðir: 0 %</title><rect x="692.0" y="479.5" width="91.5" height="8" rx="4" fill="#eff2f5"/></g>
+<text x="839.5" y="486.5" font-size="13" font-weight="600" text-anchor="end" fill="#1f2328">0 %</text>
+<rect x="24.5" y="562.5" width="831" height="152" rx="6" fill="#ffffff" stroke="#d1d9e0"/>
+<text x="40.5" y="588.5" font-size="14" font-weight="600" fill="#1f2328">Hvussu rætt innihaldið er</text>
+<text x="40.5" y="612.5" font-size="13" fill="#1f2328">Broytingar við gildisdegi</text>
+<text x="40.5" y="628.5" font-size="11.5" fill="#59636e">partur av broytingunum</text>
+<g><title>Broytingar við gildisdegi: 100 %</title><rect x="276.5" y="609.5" width="91.5" height="8" rx="4" fill="#eff2f5"/><rect x="276.5" y="609.5" width="91.5" height="8" rx="4" fill="#1f883d"/></g>
+<text x="424.0" y="616.5" font-size="13" font-weight="600" text-anchor="end" fill="#1f2328">100 %</text>
+<text x="40.5" y="648.5" font-size="13" fill="#1f2328">Broytingar við almennari keldu</text>
+<text x="40.5" y="664.5" font-size="11.5" fill="#59636e">Source-linja ella leinki í commit</text>
+<g><title>Broytingar við almennari keldu: 100 %</title><rect x="276.5" y="645.5" width="91.5" height="8" rx="4" fill="#eff2f5"/><rect x="276.5" y="645.5" width="91.5" height="8" rx="4" fill="#1f883d"/></g>
+<text x="424.0" y="652.5" font-size="13" font-weight="600" text-anchor="end" fill="#1f2328">100 %</text>
+<text x="40.5" y="684.5" font-size="13" fill="#1f2328">Kannað móti almennu keldini</text>
+<text x="40.5" y="700.5" font-size="11.5" fill="#59636e">Lógasavnið (logir.fo)</text>
+<text x="424.0" y="688.5" font-size="13" font-weight="600" text-anchor="end" fill="#1f2328">29. okt. 2026</text>
+<text x="456.0" y="612.5" font-size="13" fill="#1f2328">Søvn landsins í global-law</text>
+<text x="456.0" y="628.5" font-size="11.5" fill="#59636e">landslóggáva: 1</text>
+<text x="839.5" y="616.5" font-size="13" font-weight="600" text-anchor="end" fill="#1f2328">1</text>
+<text x="24" y="736" font-size="11.5" fill="#59636e" textLength="832" lengthAdjust="spacingAndGlyphs">lexifina/faroe-islands-law við f46833f, gjørt 2026-11-13. Uttan skjalfestingar-commits. Umfang: Faroe Islands: Løgtingslógir, Kunngerðir and Løgtingslógarkunngerðir in…</text>
+</svg>
