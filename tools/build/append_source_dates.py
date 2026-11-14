@@ -139,6 +139,10 @@ The statutory text comes from Lógasavnið and is unchanged. Source dates and qu
     docs['README.md']=readme.encode('utf-8')
     docs['REPRODUCE.md']=b'# Source record\n\nOne observed current text per act, as supplied by Logasavnid on 29 October 2026. Original law blobs and tags are preserved. Source-date metadata is appended only after review of its source evidence. See data/source-dates.json for the dated, observation-only and held records.\n'
     docs['tools/build/repo/README.md']=docs['README.md']
+    # Since 2026-11-14 README.md is the Faroese README on the serbia-law model (README.en.md beside it), with its counts written by hand: it is left as it is.
+    if '](README.en.md)' in oldreadme:
+        docs.pop('README.md', None)
+        docs.pop('tools/build/repo/README.md', None)
     docs['tools/build/repo/REPRODUCE.md']=docs['REPRODUCE.md']
     # Ship exactly the country-owned canonical tools, not transient job copies.
     canonical = Path(__file__).resolve().parent
