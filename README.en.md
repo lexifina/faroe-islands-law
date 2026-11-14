@@ -1,34 +1,85 @@
-# The laws of the Faroe Islands
+# Faroe Islands: law history in git
 
-[Føroyskt](README.md) · **English**
+**English** · **[Ella les tað á føroyskum](README.md)**
 
 <picture>
 <source media="(prefers-color-scheme: dark)" srcset="data/effort-dark.svg">
 <img alt="Faroese law in this repository: what it holds, changes by the year they took effect, completeness against the official sources, and the correctness of what is held" src="data/effort-light.svg" width="880">
 </picture>
 
-Part of [lexifina/global-law](https://github.com/lexifina/global-law), one git history for every country's law: this is Faroe Islands' national law, which global-law reads at `faroe-islands/national/acts/`.
+The law of the Faroe Islands in git: one file per §, and each act's current text as Lógasavnið, the official law collection, publishes it. Lógasavnið keeps no earlier consolidations, so each act's record starts at the text read on 29 October 2026: `git log` lists every change to a § from that day, the act's notes name the acts that amended it, and its date record gives the day the current text took effect, where the source establishes it.
 
-This record preserves 1,329 official current-text acts listed by Lógasavnið (logir.fo) as in force on 29 October 2026: 444 Løgtingslógir, 882 Kunngerðir and 3 Løgtingslógarkunngerðir. The texts are Faroese and, where the source uses it, Danish. Each act has one observed current text, divided into provision and textual-annex files in the reading order in `index.txt`. Earlier wording is not reconstructed.
+Part of [lexifina/global-law](https://github.com/lexifina/global-law), one git history for every country's law: this is the national law of the Faroe Islands, which global-law reads at `faroe-islands/national/acts/`.
 
-The source-date correction set preserves every existing law-text file and original commit. It corrects the date claim through labelled append-only metadata records linked by `Corrects` and `Supersedes`.
+**What is in it now:** the 1,329 acts Lógasavnið listed as in force on 29 October 2026, each with its current text: 444 løgtingslógir (acts of the Løgting), 882 kunngerðir (executive orders) and 3 løgtingslógarkunngerðir (consolidated acts); for 659 of them, the day that text took effect. [`laws.csv`](laws.csv) lists every act with its dates, authority and folder; [`SOURCES.md`](SOURCES.md) says what each source gives.
 
-| Current-text date status | Acts | Meaning |
-| --- | ---: | --- |
-| Source-dated | 659 | `In-force` is established from the act's commencement clause or the latest source-named amendment. |
-| Observation only | 262 | `Text-as-of: 2026-10-29`; entry into force of the full current text is unresolved. No `In-force` date is assigned. |
-| Held | 408 | Date ambiguity or source images require further examination. Observed text remains accessible; no verified commencement is claimed. |
+Each act is in `<kind>/<year>/<number>/`, one file per § (`logtingslog/2000/70/paragraf-1.md` is § 1 of the Løgtingslóg um arbeiðsumhvørvi, the Working Environment Act, Løgtingslóg nr. 70 frá 11. mai 2000), with annexes as `fylgiskjal-<n>.md` and the reading order in `index.txt`. The Løgtingslóg um stýrisskipan Føroya, the Act on the Faroese system of government, is [`logtingslog/1994/103/`](logtingslog/1994/103/).
 
-`data/source-dates.json` retains source enactment, gazette publication and named amendment dates separately. An observation date is never an entry-into-force date. Source-dated current wording does not establish earlier wording; the record contains only the supplied current text. The source-date records correct the legal commencement claims; the observation reader preserves access to every original observed version. The unchanged historical commits remain visible in git.
+The text is in Faroese (13 acts in Danish, 28 in both), as Lógasavnið prints it. An English translation is not part of this record.
 
-Use `python tools/in_force_on.py YYYY-MM-DD ACT-PATH [UNIT]` to read a supported record. The observation reader preserves the published version-selection behavior. Date holds remain visible in metadata and do not remove existing observations; output does not certify legal effect. Consult the source-date records separately for commencement evidence.
+## Questions as git commands
 
-There are 31 image-bearing source acts with 107 image references in the observed pages. Those acts are held; this text record does not claim they are complete. The other unresolved date cases are identified in `data/source-dates.json`. This is a partial record, and current coverage beyond the source listing dated 29 October 2026 has not been established.
+| Question | Command |
+| --- | --- |
+| Every change to § 1 of the Working Environment Act (the first commit is its text as read) | `git log -p --word-diff -- logtingslog/2000/70/paragraf-1.md` |
+| Which acts amended each § of it, as Lógasavnið's notes name them? | `git grep "^logtingslog/2000/70," -- data/amendments.csv` |
+| The day its current text took effect, and the clause that gives it | `git show main:logtingslog/2000/70/date-basis.json` |
+| § 1 as this record holds it on a date (from 29 October 2026) | `python tools/in_force_on.py 2026-11-01 logtingslog/2000/70 paragraf-1` |
 
-The statutory text comes from Lógasavnið and is unchanged. Source dates and quotations are retained as supplied. Metadata and tools were prepared with AI assistance and reviewed against official source pages. Lógasavnið states that the text published in Kunngerðablaðið is authoritative.
+**Outside git**, we also host this record publicly, for free:
+
+- **[Ask Claude about Faroese law](https://global-law.lexifina.com/v1/try_claude?country=faroe-islands)**: opens Claude with a first question ready.
+- **[Ask ChatGPT](https://global-law.lexifina.com/v1/try_chatgpt?country=faroe-islands)**: the same question in ChatGPT.
+- **[Call the API in your browser](https://global-law.lexifina.com/v1/search_law?query=fr%C3%ADt%C3%AD%C3%B0&jurisdictions=faroe-islands)**: a search of Faroese law for "frítíð" (paid holiday), returned as JSON. See the [documentation here](https://lexifina.com/api/global-law).
+
+Both assistants read the record through the free Global law connector (MCP, `https://global-law.lexifina.com/mcp`); the first time, the chat gives you the link that adds it. Ask in Faroese or in English.
+
+**Host it yourself easily.** All it takes is git and Python, and the tools run on your machine:
+
+```sh
+git clone --depth 1 https://github.com/lexifina/global-law && cd global-law
+python3 tools/countries.py add faroe-islands/national/acts
+python3 tools/law.py show 2026-11-01 faroe-islands/national/acts/logtingslog/2000/70/paragraf-1.md
+```
+
+Opened in Claude Code, Cursor, VS Code or Codex, the clone also starts a local MCP server with the same tools ([MCP.md](https://github.com/lexifina/global-law/blob/main/MCP.md)).
+
+## Dates
+
+Each act's text is one commit dated at noon, Faroe time, on 29 October 2026, the day it was read: Lógasavnið gives no date for its consolidations. That commit's `In-force:` trailer is the reading day, not the day the text took effect; the correction commits of 4 November 2026 (`Kind: correction`) withdraw it and record, in [`data/source-dates.json`](data/source-dates.json) and the act's `date-basis.json`:
+
+- for 659 acts, the day the current text took effect, from the act's own commencement clause or that of the latest amendment the source names (`In-force:`, the clause quoted in `In-force-basis:`);
+- for 262 acts, only `Text-as-of: 2026-10-29`: when the whole current text took effect is not established, so no day is given;
+- for 408 acts, held (commencement split, delegated or retroactive, no commencement clause, or images still to check): the reason, and no day.
+
+Every text is credited to its publisher, Lógasavnið (Løgmansskrivstovan): without the earlier wording no line can be credited to the act that wrote it, so `git blame` names Lógasavnið. The acts that amended a provision are named in each act's `notes.md` and in [`data/amendments.csv`](data/amendments.csv) (9,801 rows naming 1,409 amending acts).
+
+## How it is checked
+
+- `tools/build/check_repo.py` reads every act back from git in `index.txt` order and compares its letters and digits with the page Lógasavnið served, independently of the builder: 12,890,604 letters and digits of 1,329 acts at the build, no mismatch. The sha256 of every page read is in [`data/source-sha256.tsv`](data/source-sha256.tsv).
+- It also checks that every commit's trailers parse, that there are no merge commits and no dates after the build day, and that `tools/in_force_on.py` prints the right text and refuses a date before the record.
+- A date is appended only after a review of its source evidence; the corrections change no law text ([`REPRODUCE.md`](REPRODUCE.md)).
+- History is append-only: corrections are new commits that name the commit they correct (`Corrects:`), and no published commit is rewritten.
+
+## What it does not show
+
+- **Earlier wording.** Lógasavnið keeps no earlier consolidations, and the acts as first published in Kunngerðablaðið were not read: nothing before 29 October 2026 is here.
+- **When some texts took effect.** 262 acts give only the day they were read and 408 are held; `data/source-dates.json` gives each reason.
+- **Images** (forms, tables, formulas drawn as pictures) are `[image]` in the files: 31 acts have 107 of them, and those acts are held.
+- **Other rules on Lógasavnið**: acts no longer or not yet in force, amending acts (listed apart), and Danish laws and orders in force for the Faroe Islands.
+- **Case law, treaties and bills.** None is here.
+
+## Sources
+
+| Source | Kind | Past versions | Notes |
+| --- | --- | --- | --- |
+| [Lógasavnið](https://logir.fo) (Løgmansskrivstovan) | Official law collection: løgtingslógir, kunngerðir and løgtingslógarkunngerðir | no, the current text only | Each act's text, its notes naming the amending acts, and its dates; the text published in Kunngerðablaðið is binding |
 
 ## Licence
-Source: Lógasavnið, https://logir.fo, the Faroese law collection published by Løgmansskrivstovan. The site's footer reads "© Øll rættindi tilskilað" (all rights reserved), but official texts are not protected by copyright in the Faroe Islands: Løgtingslóg nr. 30 frá 30. apríl 2015 um upphavsrætt (Upphavsrættarlógin), § 9, stk. 1, as published on logir.fo (`logtingslog/2015/30/paragraf-9.md`), reads: "Lógir, kunngerðir, rundskriv frá myndugleikum, reglugerðir, dómar og onnur líknandi skjøl, sum tað almenna letur gera, eru ikki vard av upphavsrætti." (Laws, executive orders, circulars from the authorities, regulations, judgments and other similar documents that public authorities have made are not protected by copyright.) Under stk. 2, independent contributions to such documents stay protected, but may be reproduced together with them. The reservation on the site may cover its own material (design, software, editorial apparatus). The wording of the acts was not changed; it was only split into files and lines.  Lexifina's own contributions (the tools, the arrangement and the commit messages) are CC0. See [`LICENSE`](LICENSE).
+
+See [`LICENSE`](LICENSE). Official texts are not protected by copyright in the Faroe Islands (Løgtingslóg nr. 30 frá 30. apríl 2015 um upphavsrætt, § 9, stk. 1, here as `logtingslog/2015/30/paragraf-9.md`); their wording was not changed. Lexifina's tools, file arrangement, commit messages and documentation are CC0 1.0.
+
+The tools and metadata were prepared with AI assistance; no AI model changed the text of an act.
 
 ## More
 
