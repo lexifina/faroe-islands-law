@@ -30,7 +30,8 @@ The text is in Faroese (13 acts in Danish, 28 in both), as Lógasavnið prints i
 
 - **[Ask Claude about Faroese law](https://global-law.lexifina.com/v1/try_claude?country=faroe-islands)**: opens Claude with a first question ready.
 - **[Ask ChatGPT](https://global-law.lexifina.com/v1/try_chatgpt?country=faroe-islands)**: the same question in ChatGPT.
-- **[Call the API in your browser](https://global-law.lexifina.com/v1/search_law?query=fr%C3%ADt%C3%AD%C3%B0&jurisdictions=faroe-islands)**: a search of Faroese law for "frítíð" (paid holiday), returned as JSON. See the [documentation here](https://lexifina.com/api/global-law).
+- **[Search Faroese law on our site](https://lexifina.com/law?country=faroe-islands&q=fr%C3%ADt%C3%AD%C3%B0)**: a search for "frítíð" (paid holiday), with each provision's text and its versions, no account needed.
+- **[Developer REST API](https://global-law.lexifina.com/v1/search_law?query=fr%C3%ADt%C3%AD%C3%B0&jurisdiction=faroe-islands)**: the same search as JSON, with no key. See the [documentation here](https://lexifina.com/api/global-law).
 
 Both assistants read the record through the free Global law connector (MCP, `https://global-law.lexifina.com/mcp`); the first time, the chat gives you the link that adds it. Ask in Faroese or in English.
 

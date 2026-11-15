@@ -30,7 +30,8 @@ Teksturin er á føroyskum (13 skjøl á donskum, 28 á báðum), sum Lógasavni
 
 - **[Spyr Claude um føroyska lóggávu](https://global-law.lexifina.com/v1/try_claude?country=faroe-islands)**: letur Claude upp við einum fyrsta spurningi til reiðar.
 - **[Spyr ChatGPT](https://global-law.lexifina.com/v1/try_chatgpt?country=faroe-islands)**: sami spurningur í ChatGPT.
-- **[Kalla API'ið í kaganum](https://global-law.lexifina.com/v1/search_law?query=fr%C3%ADt%C3%AD%C3%B0&jurisdictions=faroe-islands)**: leiting í føroyskari lóggávu eftir „frítíð“, svarað í JSON. Skjalfestingin er [her](https://lexifina.com/api/global-law).
+- **[Leita í føroyskari lóggávu á heimasíðu okkara](https://lexifina.com/law?country=faroe-islands&q=fr%C3%ADt%C3%AD%C3%B0)**: leiting eftir „frítíð“, við tekstinum í hvørji áseting og útgávum hennara, uttan konto.
+- **[REST API fyri forritarar](https://global-law.lexifina.com/v1/search_law?query=fr%C3%ADt%C3%AD%C3%B0&jurisdiction=faroe-islands)**: sama leiting sum JSON, uttan lykil. Skjalfestingin er [her](https://lexifina.com/api/global-law).
 
 Báðir hjálpararnir lesa savnið gjøgnum ókeypis Global law-sambindingina (MCP, `https://global-law.lexifina.com/mcp`); fyrstu ferð gevur kjakið tær leinkið, sum leggur hana afturat. Spyr á føroyskum ella á enskum.
 
