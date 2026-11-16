@@ -61,6 +61,7 @@ Every text is credited to its publisher, Lógasavnið (Løgmansskrivstovan): wit
 - It also checks that every commit's trailers parse, that there are no merge commits and no dates after the build day, and that `tools/in_force_on.py` prints the right text and refuses a date before the record.
 - A date is appended only after a review of its source evidence; the corrections change no law text ([`REPRODUCE.md`](REPRODUCE.md)).
 - History is append-only: corrections are new commits that name the commit they correct (`Corrects:`), and no published commit is rewritten.
+- [vulnerabilities/](vulnerabilities/README.en.md): possible drafting mistakes in this law, found by global-law's detectors and checked by hand. Not run yet.
 
 ## What it does not show
 
@@ -81,6 +82,10 @@ Every text is credited to its publisher, Lógasavnið (Løgmansskrivstovan): wit
 See [`LICENSE`](LICENSE). Official texts are not protected by copyright in the Faroe Islands (Løgtingslóg nr. 30 frá 30. apríl 2015 um upphavsrætt, § 9, stk. 1, here as `logtingslog/2015/30/paragraf-9.md`); their wording was not changed. Lexifina's tools, file arrangement, commit messages and documentation are CC0 1.0.
 
 The tools and metadata were prepared with AI assistance; no AI model changed the text of an act.
+
+## Visualisations
+
+- [visualisations/](visualisations/README.en.md): charts drawn from this repository. Not drawn yet.
 
 ## More
 

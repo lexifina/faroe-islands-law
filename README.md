@@ -61,6 +61,7 @@ Hvør tekstur er tilskrivaður útgevaranum, Lógasavninum (Løgmansskrivstovan)
 - Tað kannar eisini, at linjurnar aftast í hvørjum goymingarboði kunnu lesast, at eingin merge-goyming er og eingin dagur eftir byggidagin, og at `tools/in_force_on.py` prentar rætta tekstin og noktar einum degi undan savninum.
 - Ein dagfesting verður bert løgd afturat, eftir at prógvið í keldunum er eftirkannað; rættingarnar broyta ongan lógartekst ([`REPRODUCE.md`](REPRODUCE.md)).
 - Søgan verður bert løgd afturat: rættingar eru nýggjar goymingar, sum nevna ta goyming, tær rætta (`Corrects:`), og eingin útgivin goyming verður skrivað um.
+- [vulnerabilities/](vulnerabilities/): møguligar orðingarfeilir í hesum rætti, funnir av kanningaramboðunum hjá global-law og eftirkannaðir við hond. Ikki koyrt enn.
 
 ## Hvat savnið ikki vísir
 
@@ -83,6 +84,10 @@ Sí [`LICENSE`](LICENSE). Almennir tekstir eru ikki vardir av upphavsrætti í F
 Amboðini og metadátað vórðu gjørd við hjálp frá vitlíki; einki vitlíkismodell hevur broytt tekstin í einum skjali.
 
 Hetta er ein umseting av ensku útgávuni ([README.en.md](README.en.md)); um tær eru ólíkar, er tað enska útgávan, sum galdur.
+
+## Myndageringar
+
+- [visualisations/](visualisations/): myndir gjørdar úr hesum goymslunum. Ikki gjørdar enn.
 
 ## Meira
 
